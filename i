@@ -1122,17 +1122,6 @@ ia3d.com
 ia450.com
 ia5.voicefive.com
 ia56s.com
-ia600104.us.archive.org
-ia600400.us.archive.org
-ia600504.us.archive.org
-ia600706.us.archive.org
-ia600800.us.archive.org
-ia600807.us.archive.org
-ia601203.us.archive.org
-ia601205.us.archive.org
-ia601500.us.archive.org
-ia601605.us.archive.org
-ia601700.us.archive.org
 ia7.com
 ia80.com
 ia801605.us.archive.org
