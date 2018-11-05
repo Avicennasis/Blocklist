@@ -149819,7 +149819,6 @@ kor-programms.com
 kor-trak.pl
 kor.kuki.co.jp
 kor.nkhumanrights.or.kr
-kor.privateinternetaccess.com
 kor.ru
 kor1.zapto.org
 kor30.com
