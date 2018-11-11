@@ -42,9 +42,7 @@ q-cloudglobal.com
 q-computer.com
 q-computers.com
 q-counter.com
-q-cum-burrs.tumblr.com
 q-derm.pl
-q-diggity.tumblr.com
 q-dis.com
 q-drone.com
 q-e.asia
@@ -64,7 +62,6 @@ q-go.biz
 q-gold.cf
 q-gratuit.com
 q-hardcelebs-menstr.da.ru
-q-hentai.tumblr.com
 q-horse.com
 q-hotelvillas.com
 q-housing.com
@@ -1213,7 +1210,6 @@ qa.ngm.franklyinc.com
 qa.ops.curalate.com
 qa.optimizely.com
 qa.origin.craft.advertising.com
-qa.pdx.edu
 qa.pix.dco.advertising.com
 qa.pixel.printsites.net
 qa.rlcdn.com
@@ -1393,7 +1389,6 @@ qaawm.googlevideo.com
 qaawp.googlevideo.com
 qaawxelfattto.co.uk
 qaax.com
-qaaz.gov
 qaaz.pw
 qaazama.com
 qaazh.googlevideo.com
@@ -1422,7 +1417,6 @@ qabdj.googlevideo.com
 qabdp.googlevideo.com
 qabejyfu.ibnsites.com
 qabelil-muntanji.com
-qabernadi.tumblr.com
 qabeus.en.envirowipes.co.uk
 qabgc.googlevideo.com
 qabge.googlevideo.com
@@ -1601,7 +1595,6 @@ qadec.googlevideo.com
 qadee.googlevideo.com
 qadeeem.com
 qadeh.googlevideo.com
-qadelphin.tumblr.com
 qadeqfrocmetixaq.jupotiqreju.com
 qaderookuhj.tk
 qades.googlevideo.com
@@ -1770,7 +1763,6 @@ qaevt.googlevideo.com
 qaevw.googlevideo.com
 qaevz.googlevideo.com
 qaexal.com
-qaexertin.tumblr.com
 qaexhuu.blog.com
 qaexpertise.com
 qaexpresso.colombiaonline.com
@@ -2280,7 +2272,6 @@ qalbw.googlevideo.com
 qalby.com
 qalbz.googlevideo.com
 qaldo.com
-qaldyari.tumblr.com
 qaleader.com
 qaleaders.com
 qalearning.com
@@ -2380,7 +2371,6 @@ qama88.blog.com
 qamails.com
 qamamaga.blog.com
 qamar.com
-qamarapple.com
 qamari.com
 qamarket.com
 qamart.com
@@ -2390,7 +2380,6 @@ qamateur.com
 qamaze.com
 qambai.oaw.getbigg.ru
 qambet.com
-qamc.edu.pk
 qamcii.com
 qamco.com
 qamcompany.com
@@ -2466,7 +2455,6 @@ qandabot.com
 qandala.com
 qandamail.com
 qandashirts.com
-qandbxxx.tumblr.com
 qandex.com
 qandf.com
 qandg.com
@@ -3137,7 +3125,6 @@ qastsofte.com
 qastu.com
 qastudyguides.com
 qastvelferdz.info
-qasubstit.tumblr.com
 qasuc.googlevideo.com
 qasucpjvloy.juqiwrekukig.com
 qasuf.googlevideo.com
@@ -3167,7 +3154,6 @@ qat-tea.com
 qat.comscore.com
 qatair.com
 qatakunu.maddsites.com
-qatalyst.tumblr.com
 qatar-business-guide.net
 qatar-careers.com
 qatar-co.com
@@ -3488,7 +3474,6 @@ qatest-31082017.net
 qatest-cp4327-2-0827-ek.org
 qatest-prod21072014-la-domreg.net
 qatestofficecps.com
-qatesttwai.gov
 qatet.googlevideo.com
 qatet.us
 qatez.googlevideo.com
@@ -4036,7 +4021,6 @@ qazwsx.kl.com.ua
 qazwsx.learnerblogs.org
 qazwx.googlevideo.com
 qazx.info
-qazxcujnkl.s3-website-us-west-2.amazonaws.com
 qazxsw.com
 qazxsw.pl
 qazxsw.pw
@@ -4748,7 +4732,6 @@ qbhtu.googlevideo.com
 qbhtx.googlevideo.com
 qbhuwp.polo.hangoutathome.com
 qbhuymklopyui.s3-website-us-west-2.amazonaws.c
-qbhuymklopyui.s3-website-us-west-2.amazonaws.com
 qbhv.com
 qbhwh.googlevideo.com
 qbhwk.googlevideo.com
@@ -6446,7 +6429,6 @@ qbzxu.googlevideo.com
 qbzxx.googlevideo.com
 qc-cs.com
 qc-doxies.com
-qc-girl700.tumblr.com
 qc-graphix.net
 qc-i.uidaitopqdir.com
 qc-static.coccoc.com
@@ -6474,7 +6456,6 @@ qc0dqjd.biz
 qc1.net
 qc10.com
 qc2012.com
-qc2423.tumblr.com
 qc3d.com
 qc4.pw
 qc4oue1r.top
@@ -6561,7 +6542,6 @@ qcares.com
 qcartoon.com
 qcartridge.com
 qcasc.googlevideo.com
-qcasey.tumblr.com
 qcasf.googlevideo.com
 qcashextraeurodice.com
 qcashmagiceurodice.com
@@ -6683,7 +6663,6 @@ qcbxk.googlevideo.com
 qcbxy.googlevideo.com
 qcbyi.googlevideo.com
 qcbyp.com
-qcc.mass.edu
 qcc.phlort.ru
 qcc2du.com
 qcca.com
@@ -7657,7 +7636,6 @@ qclyz.googlevideo.com
 qcm-concours.blogspot.com
 qcmallards.com
 qcmallardsboosters.com
-qcman333.tumblr.com
 qcmarine.com.au
 qcmary.com
 qcmcb.googlevideo.com
@@ -8836,7 +8814,6 @@ qcymq.googlevideo.com
 qcymt.googlevideo.com
 qcymw.googlevideo.com
 qcymz.googlevideo.com
-qcyngcpl.tumblr.com
 qcyob.googlevideo.com
 qcyod.googlevideo.com
 qcyoe2tw9n7e.semiramis-asbl.org
@@ -9310,7 +9287,6 @@ qdelq.googlevideo.com
 qdelt.googlevideo.com
 qdelw.googlevideo.com
 qdelz.googlevideo.com
-qdemea.tumblr.com
 qdemi.com
 qdemo.com
 qdemy.com
@@ -10240,7 +10216,6 @@ qdogl.googlevideo.com
 qdogm.googlevideo.com
 qdogo.googlevideo.com
 qdogr.googlevideo.com
-qdogsims.tumblr.com
 qdojb.googlevideo.com
 qdoje.googlevideo.com
 qdojh.googlevideo.com
@@ -10810,7 +10785,6 @@ qdtzk.googlevideo.com
 qdtzm.googlevideo.com
 qdtzp.googlevideo.com
 qdtzs.googlevideo.com
-qdu.edu.cn
 qdu8.com
 qduac.googlevideo.com
 qduaf.googlevideo.com
@@ -11525,7 +11499,6 @@ qebodu.com
 qeboi.googlevideo.com
 qeborga.com
 qebosedud.tk
-qebowlslu.tumblr.com
 qebpznuiggm.com
 qebqc.googlevideo.com
 qebqf.googlevideo.com
@@ -11586,7 +11559,6 @@ qebyy.googlevideo.com
 qec.newports.edu.pk
 qecaa.googlevideo.com
 qecad.googlevideo.com
-qecatholi.tumblr.com
 qecau.googlevideo.com
 qecavfrnbquyu.jucawoprepapog.com
 qecdb.googlevideo.com
@@ -13462,7 +13434,6 @@ qestofillmoneytoto.top
 qestominflowme.top
 qestore.com
 qesty.googlevideo.com
-qesubject.tumblr.com
 qesuc.googlevideo.com
 qesui.googlevideo.com
 qesupej.com
@@ -13476,7 +13447,6 @@ qeswj.googlevideo.com
 qeswl.googlevideo.com
 qeswu.googlevideo.com
 qesww.googlevideo.com
-qesyjutu87.tumblr.com
 qeszb.googlevideo.com
 qesze.googlevideo.com
 qeszh.googlevideo.com
@@ -13530,7 +13500,6 @@ qetou.googlevideo.com
 qetow.googlevideo.com
 qetowers.com
 qetox.googlevideo.com
-qetpussymelissa.tumblr.com
 qetqk.googlevideo.com
 qetqp.googlevideo.com
 qetqs.googlevideo.com
@@ -13903,7 +13872,6 @@ qewyu.googlevideo.com
 qewzaqw.com
 qexa.net
 qexbb.googlevideo.com
-qexbertonesass.tumblr.com
 qexbh.googlevideo.com
 qexbj.googlevideo.com
 qexbm.googlevideo.com
@@ -14487,7 +14455,6 @@ qfdxl.googlevideo.com
 qfdxo.googlevideo.com
 qfdxr.googlevideo.com
 qfe-s.com
-qfe2n-oqssk.tumblr.com
 qfebc.googlevideo.com
 qfebh.googlevideo.com
 qfebk.googlevideo.com
@@ -15450,7 +15417,6 @@ qfnsn.googlevideo.com
 qfnsq.googlevideo.com
 qfnsx.googlevideo.com
 qfntxytqmvaj.com
-qfnu.edu.cn
 qfnuf.googlevideo.com
 qfnuy.googlevideo.com
 qfnva.googlevideo.com
@@ -17294,7 +17260,6 @@ qgire.googlevideo.com
 qgirg.googlevideo.com
 qgirj.googlevideo.com
 qgirk.googlevideo.com
-qgirl222266undertale.tumblr.com
 qgirm.googlevideo.com
 qgirp.googlevideo.com
 qgitc.googlevideo.com
@@ -19213,7 +19178,6 @@ qhdyx.googlevideo.com
 qhdzgbnb.com
 qhdzy.com
 qhe.xn--l1adhh.xn--p1ai
-qheadhunterzq.tumblr.com
 qheal.com
 qhealthinsurance.com
 qhealthservice.com
@@ -19595,7 +19559,6 @@ qhhxo.googlevideo.com
 qhhxq.googlevideo.com
 qhhxt.googlevideo.com
 qhhxw.googlevideo.com
-qhhxzny.gov.cn
 qhhyr.com
 qhhzllfmir.cn
 qhhzoom.us
@@ -20106,7 +20069,6 @@ qhntq.googlevideo.com
 qhnts.googlevideo.com
 qhntv.googlevideo.com
 qhnty.googlevideo.com
-qhnu.edu.cn
 qhnuc.googlevideo.com
 qhnut.googlevideo.com
 qhnuz.googlevideo.com
@@ -20683,7 +20645,6 @@ qhufe.googlevideo.com
 qhufv.googlevideo.com
 qhufy.googlevideo.com
 qhug.com
-qhugh.tumblr.com
 qhuh.com
 qhuhc.googlevideo.com
 qhuhq.googlevideo.com
@@ -20930,7 +20891,6 @@ qhxah.googlevideo.com
 qhxak.googlevideo.com
 qhxan.googlevideo.com
 qhxap.googlevideo.com
-qhxb.lib.tsinghua.edu.cn
 qhxbc.googlevideo.com
 qhxbe.googlevideo.com
 qhxbh.googlevideo.com
@@ -22688,7 +22648,6 @@ qiktx.googlevideo.com
 qiku74663lizi.kecreyisulipan.info
 qikungdancing.com
 qikurl.com
-qikurygo22.tumblr.com
 qikuvibifrnbtod.joyuwajareel.com
 qikuwoquj.cn
 qikw.com
@@ -22996,7 +22955,6 @@ qinardst.tk
 qinas.googlevideo.com
 qinasc.com
 qinashqo.blog.com
-qinationa.tumblr.com
 qinaturalfoods.com
 qinav.googlevideo.com
 qinay.googlevideo.com
@@ -23449,7 +23407,6 @@ qiobf.googlevideo.com
 qiobngzs.cn
 qiobq.googlevideo.com
 qiobt.googlevideo.com
-qiobviati.tumblr.com
 qiobw.googlevideo.com
 qiobz.googlevideo.com
 qioc.com
@@ -23583,7 +23540,6 @@ qipansan.com
 qipaoqipao.com
 qipaos.com
 qipar.com
-qipatihy51.tumblr.com
 qipba.googlevideo.com
 qipbc.googlevideo.com
 qipbf.googlevideo.com
@@ -23654,7 +23610,6 @@ qiprf.googlevideo.com
 qipri.googlevideo.com
 qipro.googlevideo.com
 qiproducts.com
-qiprotest.tumblr.com
 qiprox.com
 qiprq.googlevideo.com
 qiprt.googlevideo.com
@@ -23889,7 +23844,6 @@ qirkp.googlevideo.com
 qirks.googlevideo.com
 qirkv.googlevideo.com
 qirky.googlevideo.com
-qirlswholoveqirls.tumblr.com
 qirmaios.org
 qirnc.googlevideo.com
 qirnf.googlevideo.com
@@ -24103,7 +24057,6 @@ qissing.com
 qissiq.com
 qissiq.net
 qissogatinha.blogspot.com.br
-qissoqisso.tumblr.com
 qisss.googlevideo.com
 qisst.com
 qist.co.nz
@@ -25968,7 +25921,6 @@ qjlyfjcfq.cn
 qjm-autosales.com
 qjm.net
 qjm.pheikmajide.com
-qjmac82.tumblr.com
 qjmbb.googlevideo.com
 qjmbcquicker.review
 qjmbe.googlevideo.com
@@ -28683,7 +28635,6 @@ qkrrk.googlevideo.com
 qkrrs.googlevideo.com
 qkrrv.googlevideo.com
 qkrrx.googlevideo.com
-qkrskawn.tumblr.com
 qkrtc.googlevideo.com
 qkrtf.googlevideo.com
 qkrti.googlevideo.com
@@ -29623,7 +29574,6 @@ qldbf.googlevideo.com
 qldbh.googlevideo.com
 qldbi.googlevideo.com
 qldbk.googlevideo.com
-qldbloke.tumblr.com
 qldbn.googlevideo.com
 qldboats.com
 qldbq.googlevideo.com
@@ -31817,7 +31767,6 @@ qmaec.googlevideo.com
 qmaef.googlevideo.com
 qmaeh.googlevideo.com
 qmaey.googlevideo.com
-qmaggieqsextapee.tumblr.com
 qmagic.com
 qmagicbingoseurodice.com
 qmagicbingoseurodice.pl
@@ -31863,7 +31812,6 @@ qmams.googlevideo.com
 qmamv.googlevideo.com
 qmamy.googlevideo.com
 qman.com
-qman152.tumblr.com
 qmania.de
 qmanic.com
 qmanifest.us
@@ -31872,7 +31820,6 @@ qmapo.googlevideo.com
 qmapr.googlevideo.com
 qmapt.googlevideo.com
 qmarc.com
-qmarcos.tumblr.com
 qmarhs.com
 qmarkheater.com
 qmarkheaters.com
@@ -31881,7 +31828,6 @@ qmarkresearch.co1.qualtrics.com
 qmarliu.trade
 qmart.co.nz
 qmart.net
-qmaryse.tumblr.com
 qmasdcapital.com
 qmasg.googlevideo.com
 qmasj.googlevideo.com
@@ -32257,7 +32203,6 @@ qmetr.googlevideo.com
 qmett.googlevideo.com
 qmetw.googlevideo.com
 qmetz.googlevideo.com
-qmeup.tumblr.com
 qmeuxytpxbf.com
 qmevatietu.bestrealcorp.ru
 qmevb.googlevideo.com
@@ -32985,7 +32930,6 @@ qmmyu.googlevideo.com
 qmmzz.reward-zone.axaxk.com
 qmn.net
 qmn.phlort.ru
-qmn.tumblr.com
 qmn4y25.gfdysyymsd2.us
 qmname.com
 qmncg.googlevideo.com
@@ -33126,7 +33070,6 @@ qmoms.com
 qmomx.googlevideo.com
 qmoneygrandpalace.com
 qmonkey.com
-qmonster.com
 qmonsters.com
 qmook.googlevideo.com
 qmoon.googlevideo.com
@@ -34157,7 +34100,6 @@ qnakx.googlevideo.com
 qnalf.ilitou.ru
 qnalue.com
 qnam98w4.ovahkecfr.com
-qnamexxx.tumblr.com
 qnamixer.com
 qnamv.googlevideo.com
 qnanh.googlevideo.com
@@ -34189,7 +34131,6 @@ qnasj.googlevideo.com
 qnasm.googlevideo.com
 qnasp.googlevideo.com
 qnasr.googlevideo.com
-qnass30.tumblr.com
 qnational.com
 qnavc.googlevideo.com
 qnave.googlevideo.com
@@ -38095,7 +38036,6 @@ qoqfl.googlevideo.com
 qoqfn.googlevideo.com
 qoqfo.googlevideo.com
 qoqfq.googlevideo.com
-qoqfr.tumblr.com
 qoqft.googlevideo.com
 qoqfz.googlevideo.com
 qoqhd.googlevideo.com
@@ -38344,7 +38284,6 @@ qoskaaqicmc.ws
 qoskeytrhd.com
 qoslb.googlevideo.com
 qoslc.googlevideo.com
-qoslovin.tumblr.com
 qoslq.googlevideo.com
 qoslt.googlevideo.com
 qoslu.googlevideo.com
@@ -38387,7 +38326,6 @@ qostq.googlevideo.com
 qostt.googlevideo.com
 qostu.com
 qosu.net
-qosufybe94.tumblr.com
 qosurfer.tk
 qosurn.us
 qosuu.googlevideo.com
@@ -39763,7 +39701,6 @@ qphoqvjvdhklf.co.uk
 qphost.su
 qphostdns.com
 qphoto.net
-qphotosen.tumblr.com
 qphpisxjg.com
 qphpq.com
 qphqe.googlevideo.com
@@ -42112,7 +42049,6 @@ qqgfr.googlevideo.com
 qqgfu.googlevideo.com
 qqgfx.googlevideo.com
 qqgie.googlevideo.com
-qqgifpusssyorgy.tumblr.com
 qqgih.googlevideo.com
 qqgij.googlevideo.com
 qqgik.googlevideo.com
@@ -43093,7 +43029,6 @@ qqqgx.googlevideo.com
 qqqib.googlevideo.com
 qqqie.googlevideo.com
 qqqih.googlevideo.com
-qqqiishxoxxj.tumblr.com
 qqqik.googlevideo.com
 qqqingl.com
 qqqinstagram.com
@@ -43149,7 +43084,6 @@ qqqql.top
 qqqqm.top
 qqqqqq.info
 qqqqqqqqqqq.com
-qqqqqqqqqqqqgdguydd.tumblr.com
 qqqqs.com
 qqqqtrading.com
 qqqqtt.000webhostapp.com
@@ -43193,7 +43127,6 @@ qqqxd.googlevideo.com
 qqqxg.googlevideo.com
 qqqxj.googlevideo.com
 qqqxl.googlevideo.com
-qqqyoutube.com
 qqqyuu002.in
 qqqyuu004.in
 qqqz.net
@@ -44680,7 +44613,6 @@ qretx.googlevideo.com
 qreverse.net
 qreverything.com
 qrevu.bid
-qrew15.tumblr.com
 qrewc.googlevideo.com
 qrewe.com
 qrewf.googlevideo.com
@@ -44991,7 +44923,6 @@ qribi.googlevideo.com
 qribl.googlevideo.com
 qribo.googlevideo.com
 qribr.googlevideo.com
-qrichfiel.tumblr.com
 qrici.com
 qricket.com
 qridentity.com
@@ -45047,7 +44978,6 @@ qriolanding.savetubevideo.com
 qrioseo.com
 qriosity-managingit.com
 qriosoft.com
-qrious-arab.tumblr.com
 qrip.com
 qripc.googlevideo.com
 qripk.googlevideo.com
@@ -45436,7 +45366,6 @@ qrmoe.googlevideo.com
 qrmoh.googlevideo.com
 qrmoj.googlevideo.com
 qrmom.googlevideo.com
-qrmonster.com
 qrmovies.com
 qrmox.googlevideo.com
 qrmp3.com
@@ -45679,7 +45608,6 @@ qrovo.com
 qrowf.googlevideo.com
 qrowh.googlevideo.com
 qrowi.googlevideo.com
-qrowin-shitposts.tumblr.com
 qrowk.googlevideo.com
 qrown.googlevideo.com
 qroworld.com
@@ -46853,7 +46781,6 @@ qsbhu.googlevideo.com
 qsbhx.googlevideo.com
 qsbible.com
 qsbie.googlevideo.com
-qsbigdick.tumblr.com
 qsbix.googlevideo.com
 qsbj356jlkb24trhbj44dklasbkb.com
 qsbj356jlkb24trhbj88dklasbkb.com
@@ -47053,7 +46980,6 @@ qsdgy.googlevideo.com
 qsdid.googlevideo.com
 qsdif.googlevideo.com
 qsdii.googlevideo.com
-qsdirtythoughts.tumblr.com
 qsdit.googlevideo.com
 qsdiw.googlevideo.com
 qsdiy.com
@@ -48468,7 +48394,6 @@ qssem.googlevideo.com
 qssep.googlevideo.com
 qsses.googlevideo.com
 qsseu.googlevideo.com
-qssex.tumblr.com
 qssfe.googlevideo.com
 qssfg.googlevideo.com
 qssfj.googlevideo.com
@@ -49221,7 +49146,6 @@ qt71jt76kd94bn.biz
 qt8.net
 qt818u.onl.onlinetrees.co.uk
 qt8jcg3t4g.mobi
-qt93.tumblr.com
 qt999.com
 qt9frsa349.mobi
 qt9wypk8akj.net
@@ -49824,7 +49748,6 @@ qtfsn.googlevideo.com
 qtfsy.googlevideo.com
 qtftq.com
 qtfuc.googlevideo.com
-qtfuck.tumblr.com
 qtfuf.googlevideo.com
 qtfuv.googlevideo.com
 qtfuy.googlevideo.com
@@ -49868,8 +49791,6 @@ qtghp.googlevideo.com
 qtghr.googlevideo.com
 qtghu.googlevideo.com
 qtghx.googlevideo.com
-qtgirl9.tumblr.com
-qtgirlsuniverse.tumblr.com
 qtgjc.googlevideo.com
 qtgjq.googlevideo.com
 qtgjs.googlevideo.com
@@ -49956,7 +49877,6 @@ qthepmg.com
 qther.googlevideo.com
 qthes.googlevideo.com
 qtheu.googlevideo.com
-qthevag.tumblr.com
 qtheworld.com
 qthex.googlevideo.com
 qthfd.googlevideo.com
@@ -50773,7 +50693,6 @@ qtoysaustin.com
 qtoyt.googlevideo.com
 qtoyw.googlevideo.com
 qtoyz.googlevideo.com
-qtp89.tumblr.com
 qtpatootie.com
 qtpawzpoodles.tripod.com
 qtpcc.googlevideo.com
@@ -50808,7 +50727,6 @@ qtpicosmetics.com
 qtpiecosmetics.com
 qtpies.com
 qtpii.com
-qtpix.apple.com
 qtpjc5911eomgod.support
 qtpkc.googlevideo.com
 qtpke.googlevideo.com
@@ -51194,7 +51112,6 @@ qttdy.googlevideo.com
 qtte.com
 qttest.com
 qttfs.googlevideo.com
-qttg.tumblr.com
 qttgl.googlevideo.com
 qttgo.googlevideo.com
 qttgq.googlevideo.com
@@ -51799,7 +51716,6 @@ qu24.com
 qu28po16yu21sh.biz
 qu2buku.com
 qu33r.com
-qu33rpr0n.tumblr.com
 qu3gbv.easy.faststartwebinars.com
 qu3x9eu2vw.info
 qu4.net
@@ -51821,7 +51737,6 @@ qua1.com
 quaa.com
 quaakglasses.us
 quaal.com
-quaashie.tumblr.com
 quaast1.com
 quaba.com
 quabbadan.com
@@ -51846,7 +51761,6 @@ quaccobaptistchurch.com
 quace.us
 quachanh.com
 quachil.newsgarcinialret.eu
-quachimba.tumblr.com
 quack.kfu.com
 quacka.com
 quackaroo.com
@@ -51886,7 +51800,6 @@ quackpays.com
 quackpest.com.au
 quackquackducky.com
 quackquacks.com
-quacksandpokephilia.tumblr.com
 quacksocial.com
 quacksocial.net
 quacksoft.com
@@ -52096,7 +52009,6 @@ quadfrog.com
 quadgame.com
 quadgames.com
 quadgate.de
-quadgirl69.tumblr.com
 quadgp.com
 quadgram.com
 quadgraphic.com
@@ -52230,7 +52142,6 @@ quadrascan.com
 quadrasecure.com
 quadraseps.com
 quadraset.com
-quadrasexual.tumblr.com
 quadrashop.com
 quadrasoftware.com
 quadrasperse.com
@@ -52261,7 +52172,6 @@ quadrats.com
 quadratsusrria.download
 quadratto.com
 quadratus.fr
-quadratwish.tumblr.com
 quadrc.com
 quadrecycle.com
 quadrent.com
@@ -52647,7 +52557,6 @@ quakemarine.com
 quakemark.com
 quakemarketing.com
 quakemind.com
-quakemonster.com
 quakemusic.org
 quakencats.com
 quakenet.org
@@ -52695,7 +52604,6 @@ quakerslist.trade
 quakersquare.com
 quakersteam.com
 quakerstore.com
-quakertown-pa.gov
 quakertownfamilydoctor.com
 quakertownpa.com
 quakertownquilts.com
@@ -53274,7 +53182,6 @@ quality-meds.net
 quality-medz.ru
 quality-medztop.ru
 quality-no-option.com
-quality-nsfw.tumblr.com
 quality-nudes.com
 quality-obtain.com
 quality-of-service.com
@@ -53363,7 +53270,6 @@ quality-portraits.net
 quality-post.com
 quality-process.com
 quality-profits.com
-quality-pron.tumblr.com
 quality-puzzle.com
 quality-replicass.com
 quality-rides.com
@@ -53442,7 +53348,6 @@ qualityadultmovies.com
 qualityadultproducts.com
 qualityadultsites.com
 qualityadulttoys.com
-qualityadultvideoslist.tumblr.com
 qualityadvisers.com
 qualityaerialshoot.net
 qualityaffordable.com
@@ -53604,7 +53509,6 @@ qualitybatteries.co.uk
 qualitybattery.com
 qualitybazaar.com
 qualitybb.com
-qualitybbc.tumblr.com
 qualitybeachtowels.com
 qualitybeatsradio.co.uk
 qualitybeautysupplies.com.au
@@ -53639,7 +53543,6 @@ qualitybookshop.com
 qualitybootcamp.com
 qualitybooth.com
 qualitybooths.com
-qualitybooty.tumblr.com
 qualitybottles.com
 qualitybrasil.com
 qualitybrickwork.com
@@ -53750,7 +53653,6 @@ qualitycoat.com
 qualitycoats.com
 qualitycodec.com
 qualitycoffins.com
-qualitycollectorrebelworld.tumblr.com
 qualitycollisionbodyshop.com
 qualitycomfortable-techie.tech
 qualitycomp.net
@@ -53897,7 +53799,6 @@ qualityfake.com
 qualityfamilygifts.com
 qualityfamilygifts.net
 qualityfamilytime.com
-qualityfap.tumblr.com
 qualityfarmandfleet.com
 qualityfarms.com
 qualityfeel.com
@@ -53913,7 +53814,6 @@ qualityfinds.us
 qualityfire.com
 qualityfires.co.uk
 qualityfireworks.com
-qualityfirstaz.gov
 qualityfirstconstructionllc.com
 qualityfirstcorp.com
 qualityfirstcorp.net
@@ -53958,7 +53858,6 @@ qualitygamestorelist.com
 qualitygaming.com
 qualitygaragedoorrepair.com
 qualitygauges.com
-qualitygayerotica.tumblr.com
 qualitygaygallery.info
 qualitygaymovies.com
 qualitygaypicture.info
@@ -54028,7 +53927,6 @@ qualityhelper.com
 qualityhelps.com
 qualityhenna.com
 qualityhentai.com
-qualityhentai.tumblr.com
 qualityhentaimovies.com
 qualityherbs.net
 qualityhi.com
@@ -54149,7 +54047,6 @@ qualityintelligence.com
 qualityinternetlinks.com
 qualityinterracialmovies.com
 qualityinterracialpaysites.com
-qualityinterracials.tumblr.com
 qualityintime.com
 qualityinvestments.com
 qualityira.com
@@ -54297,7 +54194,6 @@ qualitymodels.com
 qualitymodulars.com
 qualitymoney.com
 qualitymonitor.com
-qualitymonster.com
 qualitymortgagenj.com
 qualitymortgagequotes.com
 qualitymotorbikes.com
@@ -54608,9 +54504,7 @@ qualitysextube.com
 qualitysexvideo.com
 qualitysexvideos.com
 qualitysexvids.com
-qualitysexwithbbc.tumblr.com
 qualitysexxx.com
-qualitysexxx.tumblr.com
 qualitysexy.com
 qualitysharing.com
 qualityshedbuilders.com
@@ -54683,7 +54577,6 @@ qualitystores.org
 qualitystreet.co.uk
 qualitystreet.net
 qualitystrong.com
-qualitystudentanchorblr.tumblr.com
 qualitystuff.com
 qualitystuffforsale.com
 qualitystyle.net
@@ -54793,7 +54686,6 @@ qualitytrading.com
 qualitytraffic.net
 qualitytrain.net
 qualitytrainings.com
-qualitytrannypictures.tumblr.com
 qualitytransfers.com
 qualitytransparency.net
 qualitytransparts.com
@@ -55122,7 +55014,6 @@ quandev.com
 quandixing.net
 quandjou.com
 quandlommecourt.chez.tiscali.fr
-quando2.tumblr.com
 quandoaluaapareceu.blogspot.ca
 quandoaluaapareceu.blogspot.ch
 quandoaluaapareceu.blogspot.co.id
@@ -55248,7 +55139,6 @@ quanjiwang.cc
 quankao.com
 quanli-z.com
 quanlihan.blog.com
-quanlizzle.tumblr.com
 quanlotnu.com
 quanly.vinataynguyen.com
 quanlybenhvien.com
@@ -55270,7 +55160,6 @@ quanoel.com
 quanoo.com
 quanow.com
 quanpingtai.com
-quanpornhub.com
 quanpphoto.com
 quanpro.com
 quanqiuka.com
@@ -55478,7 +55367,6 @@ quantitativehedgefund.com
 quantitativemanagement.com
 quantitativemind.com
 quantitativetrades.com
-quantithe.tumblr.com
 quantitieslimited.com
 quantity-apply.com
 quantity-boat.com
@@ -55600,7 +55488,6 @@ quantum-code-system.net
 quantum-codejapan.com
 quantum-crypto.net
 quantum-cryptocurrency.com
-quantum-dom.tumblr.com
 quantum-encrypted.com
 quantum-entrainment.com
 quantum-gaming.com
@@ -55699,7 +55586,6 @@ quantumbrief.com
 quantumbritain.com
 quantumbrk.com
 quantumbrokers.com
-quantumbromance.tumblr.com
 quantumbrt.com
 quantumbuck.com
 quantumbucks.com
@@ -56149,7 +56035,6 @@ quantumsentinel.com
 quantumservers.com
 quantumservicing.com
 quantumsex.com
-quantumsex.tumblr.com
 quantumshamanism.com
 quantumshangai.com
 quantumshenzhen.com
@@ -56307,7 +56192,6 @@ quanxunwangxin.com
 quanxunzhibowang.com
 quanxunzx.com
 quanyincenter.com
-quanyingbin.tumblr.com
 quanyinmartialarts.com
 quanyipin.com
 quanysososh.net
@@ -56329,17 +56213,14 @@ quaporno.com
 quapqiul.blog.com
 quaqr.com
 quaqtaqchristianfellowship.com
-quaqua17.tumblr.com
 quaquaversality.com
 quaque.com
-quar77.tumblr.com
 quara-best.com
 quaral.net
 quaralux.com
 quarantapuntotre.com
 quarante-ml.com
 quarante.com
-quarante23.tumblr.com
 quarantesimo93.tubesmobile.com
 quarantine.co.uk
 quarantine.com
@@ -56386,7 +56267,6 @@ quark.na.mine.zpool.ca
 quark.plaimedia.com
 quark.usa.nicehash.com
 quark2adobe.com
-quark69.tumblr.com
 quarkbet.com
 quarkbtc.com
 quarkbusk.com
@@ -56575,8 +56455,6 @@ quarterdeckapartments.com
 quarterdeckhotel.co.uk
 quarterdeckresort.com
 quarterdiscover.com
-quarterdollar.tumblr.com
-quarterdollarnetflix.com
 quarteresplanade.com
 quarterexchange.com
 quarterflips.com
@@ -56587,7 +56465,6 @@ quarterhorse.ch
 quarterhorse.co.nz
 quarterhorse.cz
 quarterhorsecentral.net
-quarterhorsegirl.tumblr.com
 quarterhorselink.com
 quarterhorseman.com
 quarterhorsemaresforsale.com
@@ -56632,7 +56509,6 @@ quarterlysummits.com
 quartermaine.com
 quartermaster.freeserve.co.uk
 quartermaster.nl
-quartermasterd.tumblr.com
 quartermastershop.com
 quartermasterusa.com
 quartermatsissue.com
@@ -56933,7 +56809,6 @@ quartzbattery.com
 quartzblack.com
 quartzblends.com
 quartzblends.net
-quartzboi.tumblr.com
 quartzclean.com
 quartzclockmovement.com
 quartzcolorgranules.com
@@ -57012,7 +56887,6 @@ quarzstein.com
 quarzstone.com
 quarzt.com
 quasad.com
-quasadila.tumblr.com
 quasamepoint.com
 quasar-ent.net
 quasar-husada.com
@@ -57043,7 +56917,6 @@ quasarmining.co.za
 quasarnet.co
 quasarnetwork.com
 quasaronline.com
-quasarpornhub.com
 quasarrealty.com
 quasarservices.com
 quasarslots.com
@@ -57138,7 +57011,6 @@ quashnow.com
 quashop.com
 quashop.info
 quashreality.com
-quasi2modo.tumblr.com
 quasibinary.com
 quasicapital.com
 quasicarbon.com
@@ -57296,7 +57168,6 @@ quattrofrance.com
 quattrolegends.com
 quattromedia.net
 quattromobile.com
-quattroocchi.tumblr.com
 quattropayroll.co.za
 quattropole.com
 quattropro.com
@@ -57348,7 +57219,6 @@ quaybar.com
 quaycapital.com
 quayclub.com
 quayco.com
-quaycounty-nm.gov
 quaycsya.chez.com
 quaydsarra.com
 quayear.com
@@ -57362,7 +57232,6 @@ quayliving.com
 quaymotors.com
 quayphimchupanh.com
 quayradio.com
-quays01.tumblr.com
 quayservices.com
 quayside-conservatories.co.uk
 quayside.co.za
@@ -57396,8 +57265,6 @@ quaywestport.com
 quaywestradio.com
 quaz.pl
 quazai.com
-quazalcoatl.tumblr.com
-quazamodo.tumblr.com
 quazar.miner.center
 quazar.xminingpool.com
 quazasolutions.com
@@ -57417,7 +57284,6 @@ quazytrain.com
 quazz.com
 quazz.eu
 quazza.com
-quazzi729.tumblr.com
 qub.ac.uk
 qub.ca
 qub2.com
@@ -57432,7 +57298,6 @@ qubamosque.com
 qubamosque.org
 quban.googlevideo.com
 qubana.com
-qubangz.tumblr.com
 qubans.com
 qubanye.com
 qubaoshop.com
@@ -57461,7 +57326,6 @@ qubecash.com
 qubecasting.com
 qubecom.com
 qubecon.com
-qubee-opic.tumblr.com
 qubeeentertainment.com
 qubeholdings.com
 qubeicd.com
@@ -57879,7 +57743,6 @@ qudso.googlevideo.com
 qudstours.com
 qudt.web-log.nl
 qudt3r.auto.drivealexus.com
-qudtls-83.tumblr.com
 qudtoldibhb.com
 qudufyxo.blog.com
 qudus.com
@@ -57900,7 +57763,6 @@ qudzpxhcywh.biz
 que-arepazo.com
 que-arepazo.net
 que-culo-morena.com.ar
-que-de-la-queue.tumblr.com
 que-des-amateurs.com
 que-des-salopes.com
 que-diabos.blogspot.ae
@@ -58076,10 +57938,8 @@ queamor.com
 quean.com
 quean.net
 quean.nu
-quean2hiscake.tumblr.com
 queanbeyan.net
 queanbeyanrealestate.com
-queancake.tumblr.com
 queandjones.com
 queanimes.com
 queano.com
@@ -58160,7 +58020,6 @@ quebec3465.com
 quebec69.com
 quebecadult.com
 quebecam.com
-quebecamateur.tumblr.com
 quebecart.com
 quebecassurance.net
 quebecassurances.com
@@ -58289,7 +58148,6 @@ quebecmodels.com
 quebecmoto.com
 quebecnature.com
 quebecnitelife.com
-quebeco.tumblr.com
 quebecofficinalis.com
 quebecoin.miningpoolhub.com
 quebecoisdlours.homestead.com
@@ -58394,7 +58252,6 @@ quebragalhovip.com
 quebralinks.com.br
 quebrandotabu.com
 quebrandotabus.com
-quebrangulo.al.gov.br
 quebranozes.com
 quebranto.com
 quebraogalho.com
@@ -58686,8 +58543,6 @@ queeb.com
 queec.googlevideo.com
 queee.com
 queee.googlevideo.com
-queeenslut.tumblr.com
-queeenvictory.tumblr.com
 queeer.com
 queeer.net
 queef.com
@@ -58704,42 +58559,26 @@ queen-24.net
 queen-annes-guesthouse.co.uk
 queen-busanamuslimcoid.masterweb.id
 queen-charlotte.com
-queen-chubby.tumblr.com
 queen-clinic.com
 queen-crown.com
-queen-cumslut.tumblr.com
 queen-domain.link
 queen-domain.net
 queen-drone.com
 queen-fip.com
 queen-games.de
-queen-gaygent-arachne.tumblr.com
 queen-j.com
 queen-lasershow.com
-queen-lesbean.tumblr.com
 queen-lingerie.com
 queen-lita.bravepages.com
-queen-lucia.tumblr.com
 queen-mary.com
 queen-maturies.biz
-queen-nefertitibastet.tumblr.com
-queen-of-anime-tiddie.tumblr.com
-queen-of-bondage.tumblr.com
-queen-of-castle-hell.tumblr.com
-queen-of-debauchery.tumblr.com
 queen-of-heels.de
-queen-of-panties.tumblr.com
 queen-of-spades.biz
-queen-of-the-gape.tumblr.com
-queen-of-tits.tumblr.com
-queen-of-titties-13.tumblr.com
-queen-ofknives.tumblr.com
 queen-panel.com
 queen-rap.com
 queen-ring.biz
 queen-sexy.50webs.com
 queen-sheet-set.com
-queen-stacey.tumblr.com
 queen-tech.firm.in
 queen-were.tk
 queen.2hondo.net
@@ -58762,7 +58601,6 @@ queenaccess.com
 queenacre.com
 queenacrerealty.com
 queenadahotel.com.tr
-queenadeledelray.tumblr.com
 queenadrena.com
 queenadv.com
 queenadvice.com
@@ -58775,7 +58613,6 @@ queenamy.com
 queenan.com
 queenandchurch.com
 queenandcrescenthotel.com
-queenandcuck.tumblr.com
 queenandjohn.com
 queenandroyalty.com
 queenangels.com
@@ -58806,7 +58643,6 @@ queenathletica.com
 queenauctions.com
 queenautographs.com
 queenavenue.com
-queenazherspitsfire.tumblr.com
 queenb.com
 queenb.com.au
 queenb2b.co
@@ -58824,10 +58660,8 @@ queenbeefashions.com
 queenbeefloral.com
 queenbeehair.com
 queenbeehoneyfarm.com
-queenbeehotwife.tumblr.com
 queenbeeinteriordesigns.com
 queenbeejewelry.com
-queenbeeliv01.tumblr.com
 queenbeepatisserie.com
 queenbees.com
 queenbeesusa.com
@@ -58835,21 +58669,17 @@ queenbeewholesale.com
 queenbeez.com
 queenbella.com
 queenberry.com
-queenbeystyle.tumblr.com
 queenbible.com
 queenbid.com
 queenbig.com
 queenbiggest.cn
-queenbitch1989.tumblr.com
 queenbitchbrand.com
 queenbitchh.com
-queenbitchlarkin.tumblr.com
 queenbitchoftheuniverse.com
 queenblack.com
 queenblockchain.com
 queenblog.cn
 queenbloom.com
-queenblowie.tumblr.com
 queenblue.com
 queenbook.com
 queenboss.com
@@ -58860,7 +58690,6 @@ queenboys.com
 queenbrand.com
 queenbridges.com
 queenbrooklyn.com
-queenbsexii.tumblr.com
 queenbspa.com
 queenbutterfly.com
 queenbuy.com
@@ -58872,7 +58701,6 @@ queencanopybed.com
 queencaptainsbed.com
 queencard.com
 queencars.com
-queencashmerepussy.tumblr.com
 queencasino.biz
 queencasinos.com
 queencat.com
@@ -58885,12 +58713,8 @@ queencharlotte.com
 queencharlotteadventures.com
 queencharlottelodge.com
 queencharm.com
-queenchebs.tumblr.com
-queenchelly.tumblr.com
-queenchikkbug.tumblr.com
 queenchocolate.com
 queenchristie.com
-queenchristycanyon.tumblr.com
 queencigs.com
 queencity.com
 queencity.net
@@ -58943,7 +58767,6 @@ queenconcert.com
 queenconnect.cn
 queenconnection.com
 queenconsort.com
-queenconsuelabananahammock.tumblr.com
 queenconvertible.com
 queenconvertibles.com
 queencorgi.com
@@ -58980,7 +58803,6 @@ queencrowns.com
 queencs.net
 queency.com
 queendaisy.wz.cz
-queendamurk.tumblr.com
 queendance.com
 queenday.com
 queendaybed.com
@@ -58988,7 +58810,6 @@ queendaybeds.com
 queendeal.cn
 queendeals.cn
 queendelapop.com
-queendeleona.tumblr.com
 queendin.com
 queendisco.com
 queendiscount.cn
@@ -58997,7 +58818,6 @@ queendivas.com
 queendog.com
 queendomain.com
 queendomme.com
-queendomnudes.tumblr.com
 queendot.cn
 queendragtv.com
 queendragtv.net
@@ -59046,7 +58866,6 @@ queenforum.cn
 queenforums.cn
 queenfromqueens.com
 queenfrost.com
-queenfucker.tumblr.com
 queenfuneral.com
 queenfur888.alibabaonline.com
 queenfur888.aliexpress.com
@@ -59061,7 +58880,6 @@ queengold.com
 queenguide.xyz
 queenhair.aliexpress.com
 queenhan.com
-queenharrie.tumblr.com
 queenhead.com
 queenheadphones.com
 queenhealthy.com
@@ -59070,7 +58888,6 @@ queenhelen.com
 queenhigh.com
 queenhilda.com
 queenhome.net
-queenhornymilf.tumblr.com
 queenhotel.co.uk
 queenhouse.net
 queenhouse.pl
@@ -59079,13 +58896,11 @@ queenhype.com
 queenia-smile.000webhostapp.com
 queeniechan.com
 queeniedenovo.com
-queeniekia.tumblr.com
 queeniela.com
 queenieland.com
 queeniemaid.nl
 queeniemusic.com
 queenienonahwren.ru
-queenieofaces.tumblr.com
 queenieonline.com
 queenies.be
 queenies.com
@@ -59116,9 +58931,7 @@ queeningvideos.com
 queeningvod.com
 queenink.com
 queeniot.com
-queenirishentai.tumblr.com
 queenisabelinn.com
-queenisburning.tumblr.com
 queenish.com
 queenizigg.com
 queenjamesbible.com
@@ -59128,7 +58941,6 @@ queenjewel.com
 queenjia.com
 queenjugs.com
 queenjuliana.com
-queenkat13.tumblr.com
 queenkdiary.com
 queenkey.com
 queenkeyholder.blogspot.ae
@@ -59198,26 +59010,22 @@ queenkeyholder.blogspot.sk
 queenkeyholder.blogspot.sn
 queenkeyholder.blogspot.tw
 queenkeyholder.blogspot.ug
-queenkimiko.tumblr.com
 queenking.com.ar
 queenking.net
 queenkong.com
 queenkorea.com
 queenlady.net
 queenlane.com
-queenlatex.tumblr.com
 queenlatifahmusic.com
 queenlaundry.com
 queenleague.com
 queenlebron.com
 queenleds.com
 queenlegal.com
-queenlesbiancore.tumblr.com
 queenlimousine.com
 queenlin.kcthornton.claudiodagostino.leebrowell.he
 queenlin.kcthornton.claudiodagostino.leebrowell.herminesonny.com
 queenlink.com
-queenlioness09.tumblr.com
 queenlive.net
 queenlizzy.com
 queenloss.net
@@ -59248,10 +59056,7 @@ queenmedic.ru.com
 queenmega.cn
 queenmill.net
 queenmiminyc.com
-queenmiminyc.tumblr.com
 queenmin.com
-queenminxxx.tumblr.com
-queenmissunderstood.tumblr.com
 queenmonaco.com
 queenmorris.com
 queenmortgage.com
@@ -59264,7 +59069,6 @@ queennepal.net
 queenneptune.com
 queennews.com
 queennewstraders.com
-queennia.tumblr.com
 queennina.com
 queennorgay.co.vu
 queenofacn.com
@@ -59298,11 +59102,9 @@ queenofdiscounts.com
 queenofearring.com
 queenofearrings.com
 queenofescort.com
-queenoffetish.tumblr.com
 queenoffice.info
 queenofflirts.com
 queenofflorida.com
-queenoffuck.tumblr.com
 queenoffutbol.com
 queenofgermany.com
 queenofgospel.com
@@ -59331,7 +59133,6 @@ queenofmydomains.net
 queenofmyheart.net
 queenofnonherpes.com
 queenofnylon.com
-queenofobscene.tumblr.com
 queenofouterspace.com
 queenofpain.com
 queenofpeacecatholicchurch.com
@@ -59353,18 +59154,11 @@ queenofsexsite.com
 queenofsexworld.com
 queenofsexy.com
 queenofshebadc.com
-queenofshemalesbaileyjay.tumblr.com
 queenofsky.com
 queenofsmut.com
-queenofsmut18.tumblr.com
 queenofsold.com
 queenofsouthcarolina.com
-queenofspades0412.tumblr.com
-queenofspades32.tumblr.com
-queenofspadesonly.tumblr.com
-queenofspadesslutty.tumblr.com
 queenofspadestattoos.com
-queenofspadeswives.tumblr.com
 queenofspoons.com
 queenofsteampunk.com
 queenofswing.com
@@ -59443,15 +59237,12 @@ queenofthedorks.blogspot.tw
 queenofthedorks.blogspot.ug
 queenofthefairies.com
 queenofthegaypower.com
-queenofthehomosexuals.tumblr.com
 queenofthekitchen.net
-queenofthenightxxx.tumblr.com
 queenofthepole.net
 queenoftherockies.com
 queenofthesouthonline.co.uk
 queenoftheweb.com
 queenofthezombies.com
-queenoftiaras.tumblr.com
 queenoftrailers.com
 queenofwandstarot.com
 queenofweed.net
@@ -59483,7 +59274,6 @@ queenquesboutique.com
 queenrachel.com
 queenraniafoundation.com
 queenraqui.com
-queenraynarvaezjr.tumblr.com
 queenrealtime.cn
 queenremyhair.com
 queenresortkohtao.com
@@ -59505,13 +59295,11 @@ queens-land.net
 queens-of-porn.com
 queens-of-porn.de
 queens-of-sex.com
-queens-of-the-porn-age.tumblr.com
 queens-racing.com
 queens-snowdonia.co.uk
 queens-sports-club.co.uk
 queens-valley.com
 queens.com
-queens.edu
 queens.nl
 queens4aday.com
 queens80.cjb.net
@@ -59519,7 +59307,6 @@ queensaba.com
 queensacrifice.com
 queensairman.com
 queensale.com
-queensandjacks4spades.tumblr.com
 queensandkings.biz
 queensapartmentforrent.com
 queensarah.com
@@ -59620,7 +59407,6 @@ queensevent.com
 queensex.com
 queensexy.com
 queensexy.net
-queensexybitch.tumblr.com
 queenseyewear.com
 queensfalcon.com
 queensfalcons.com
@@ -59645,7 +59431,6 @@ queensgaels.com
 queensgate-shopping.co.uk
 queensgenesis.com
 queensgirl.com
-queensgirlsprincesses.tumblr.com
 queensgonewild.com
 queensgourmet.com
 queensgreens.net
@@ -59751,7 +59536,6 @@ queenslandertours.com
 queenslandescorts.com
 queenslandflooringcentre.com.au
 queenslandfuels.com
-queenslandgirls.tumblr.com
 queenslandgolftours.com
 queenslandholidays.com.au
 queenslandhoteldirectory.com
@@ -59828,7 +59612,6 @@ queensmusic.com
 queensn.us
 queensnake.com
 queensnake.net
-queensnake.tumblr.com
 queensnake.ws
 queensnassau.com
 queensnassauhomeinspection.com
@@ -59842,7 +59625,6 @@ queensof30a.com
 queensofalysbeach.com
 queensofbondage.com
 queensofbooty.com
-queensofbutt.tumblr.com
 queensofchic.com
 queensofcoaching.com
 queensofcountry.com
@@ -59853,10 +59635,8 @@ queensoferoticbabes.com
 queensoferoticteens.com
 queensoferoticteens.net
 queensofficespace.com
-queensofhighgarden.tumblr.com
 queensofjazz.com
 queensofphonesex.com
-queensofporn.tumblr.com
 queensofrosemarybeach.com
 queensofseaside.com
 queensofsex.usa.gs
@@ -59867,7 +59647,6 @@ queensofthebiblebelt.com
 queensofthegape.com
 queensofthekingdom.com
 queensofthescreen.com
-queensofthesexage.tumblr.com
 queensofthestoneagelyrics.com
 queensoftlens.com
 queensoftwerk.com
@@ -59892,7 +59671,6 @@ queenspennysaver.com
 queensperiodontist.com
 queenspersonalinjuryattorney.com
 queensperth.co.uk
-queenspet.tumblr.com
 queenspets.com
 queensphoto.com
 queensphotography.com
@@ -59995,8 +59773,6 @@ queenstuff.com
 queensu.ca
 queensu.qualtrics.com
 queensugar.net
-queensunflowers.tumblr.com
-queensuniversity.edu
 queensuniversitygoldengaels.com
 queensup.com
 queensurf.cn
@@ -60031,8 +59807,6 @@ queensyard.com
 queenszip.com
 queentaxi.com
 queentech.com
-queentee11.tumblr.com
-queenteenage.tumblr.com
 queentel.com
 queenterprises.com
 queenterrace.com
@@ -60090,14 +59864,11 @@ queenyasmin.com
 queenyasmin.de
 queenyfacials.com
 queenyla.com
-queenylesbian.tumblr.com
 queenylove.com
 queenys.com
-queenz-from-zhe-darkside.tumblr.com
 queenz-s.com
 queenzenobia.com
 queenzsoftware.com
-queer-4-futa.tumblr.com
 queer-america-blog.blogspot.ae
 queer-america-blog.blogspot.al
 queer-america-blog.blogspot.am
@@ -60167,19 +59938,13 @@ queer-america-blog.blogspot.tw
 queer-america-blog.blogspot.ug
 queer-america.com
 queer-arts.org
-queer-as-fuckkk.tumblr.com
 queer-forum.com
-queer-gifs.tumblr.com
-queer-kid.tumblr.com
-queer-lana-orgasm.tumblr.com
-queer-little-baby-dyke.tumblr.com
 queer-males.com
 queer-online.de
 queer-reviews.com
 queer-search.com
 queer-search.net
 queer-sex.com
-queer-sex.tumblr.com
 queer.com
 queer.de
 queer.fr
@@ -60200,21 +59965,16 @@ queeractivist.com
 queeragenda.com
 queeramerica.com
 queerandhere.com
-queerandkinky.tumblr.com
 queerapp.com
 queerarmy.com
 queerart.com
 queeras.com
-queerascat.tumblr.com
-queeraschinocherry.tumblr.com
 queerasfolk.fr.st
 queerasfolk.nl
 queerasfuck.org
-queerasfuckyall.tumblr.com
 queerasian.com
 queerasianamerica.com
 queerasil.com
-queerasinfuckyou.tumblr.com
 queeraspunk.com
 queeraspunkfilm.com
 queerass.com
@@ -60223,7 +59983,6 @@ queerattitude.com
 queerbabies.com
 queerbanner.com
 queerbar.com
-queerbate.tumblr.com
 queerbean.com
 queerbear.com
 queerbears.com
@@ -60327,7 +60086,6 @@ queerchurch.com
 queercinema.com
 queerclass.com
 queerclick.com
-queerclick.tumblr.com
 queerclickgallery.com
 queerclickshop.com
 queercloset.blogger.com.br
@@ -60342,7 +60100,6 @@ queercontent.com
 queercore.com
 queercreditcard.com
 queercruises.com
-queercuddleslut.tumblr.com
 queerculturalcenter.org
 queercum.com
 queerdaily.com
@@ -60434,38 +60191,25 @@ queerdvd.com
 queerdyke.com
 queered.stream
 queerelf.com
-queerestqueer.tumblr.com
 queerestxyxlws.download
 queereview.com
-queereview.tumblr.com
 queerex.com
 queerfactory.com
 queerfashion.com
 queerfatfemme.com
 queerfeldein.de
-queerfeministarab.tumblr.com
-queerfemmebabygirl.tumblr.com
-queerfemmedomme.tumblr.com
-queerfemmefuck.tumblr.com
-queerfemmeslut.tumblr.com
 queerfetish.com
-queerfetishstuff.tumblr.com
 queerfever.com
-queerfever.tumblr.com
 queerfilm.com
 queerfilm.de
 queerfilms.eu
 queerfilter.com
 queerfinance.com
 queerfinder.com
-queerflexible.tumblr.com
 queerflix.com
 queerflixxx.com
 queerfolks.com
-queerfootlove.tumblr.com
 queerfreeporn.com
-queerfuckery.tumblr.com
-queerfucking.tumblr.com
 queergalaxy.com
 queergames.com
 queergate.com
@@ -60474,34 +60218,24 @@ queergays.com
 queergaytube.com
 queerghetto.com
 queergiftcards.us
-queergirlinredneckland.tumblr.com
-queergirlpenfriends.tumblr.com
-queergirlquestions.tumblr.com
 queergirls.com
 queergonewild.com
 queergov.com
-queergraffiti.tumblr.com
 queergroupsex.com
-queergrrlriot.tumblr.com
 queerguyz.com
 queerhana.net
-queerhawkeye.tumblr.com
 queerhealthcare.com
 queerheaven.com
-queerhistoryqdm.tumblr.com
 queerhomo.com
 queerhorror.com
 queerhouse.com
-queerical.tumblr.com
 queeriebradshaw.com
 queerinc.com
 queerincomics.com
 queerincomics.net
 queerinfo.com
-queering-out-loud.tumblr.com
 queeringchurch.com
 queeringfashion.com
-queeringfeministreality.tumblr.com
 queeringsapmi.com
 queeringtheair.com
 queeringtheapparatus.blogspot.ae
@@ -60574,7 +60308,6 @@ queeringtheapparatus.blogspot.ug
 queeringthechurch.com
 queerinjustice.com
 queerinvestor.com
-queerio.tumblr.com
 queerists.com
 queerit.com
 queerix.com
@@ -60582,12 +60315,6 @@ queerjewels.com
 queerjokes.com
 queerjungle.com
 queerjustice.org
-queerking-forcock.tumblr.com
-queerkink.tumblr.com
-queerkinkster.tumblr.com
-queerkinkyconglomerate.tumblr.com
-queerkitten666.tumblr.com
-queerkittenprincess.tumblr.com
 queerliberals.com
 queerlink.net
 queerlinks.com
@@ -60602,7 +60329,6 @@ queerloving.com
 queerlust.com
 queerlybeloved.com
 queerlychristian.com
-queerlysadistic.tumblr.com
 queermales.com
 queermall.com
 queermart.com
@@ -60679,9 +60405,7 @@ queerme.blogspot.ug
 queerme.com
 queermedia.net
 queermenearme.com
-queermenofcolorinlove.tumblr.com
 queermenow.net
-queermexicanslut.tumblr.com
 queermontrealmen.blogspot.ae
 queermontrealmen.blogspot.al
 queermontrealmen.blogspot.am
@@ -60759,20 +60483,15 @@ queernation.co.nz
 queernation.org
 queernations.com
 queernet.org
-queernetflix.com
 queernews.com
 queernews.pl
 queernic.com
-queernipple.tumblr.com
 queernoises.tk
 queeroasis.com
 queeroftheyear.com
 queeromatic.com
-queeromokid.tumblr.com
 queerotica.com
-queeroticomics.tumblr.com
 queeroz.com
-queerpaccino.tumblr.com
 queerpalace.com
 queerpalm.com
 queerparents.org
@@ -60791,17 +60510,13 @@ queerpoint.com
 queerporn.com
 queerporn.net
 queerporn.tv
-queerpornchurch.tumblr.com
 queerpornnation.com
 queerpornsearch.com
 queerporntube.com
-queerporntv.tumblr.com
-queerposts.tumblr.com
 queerpride.net
 queerprocesscenterdetect.in
 queerprofessionals.com
 queerprom.com
-queerpuke.tumblr.com
 queerpunk.com
 queerquestioning.com
 queerquestions.blogspot.ae
@@ -60889,19 +60604,14 @@ queerschlag.de
 queerseek.com
 queerservices.com
 queersex.nl
-queersex.tumblr.com
 queersexmovies.com
 queersexpictures.com
-queersexualkink.tumblr.com
-queersexzone.tumblr.com
-queersherlockian.tumblr.com
 queershopping.com
 queersighted.com
 queersinthecity.com
 queerskin.com
 queerslave.com
 queersmut.com
-queersmut.tumblr.com
 queersource.com
 queersouthbeach.com
 queerspace.com
@@ -60923,7 +60633,6 @@ queerstepmom.com
 queerstepsister.com
 queerster.com
 queerster.net
-queerstoriesqdm.tumblr.com
 queerstower.com
 queerstreaming.com
 queerstreams.com
@@ -60939,17 +60648,12 @@ queertampa.com
 queertap.com
 queerthechurch.com
 queertheory.com
-queertheoryissexy.tumblr.com
-queerthoughtsworld.tumblr.com
-queerthulu.tumblr.com
 queerthumbs.com
 queertickets.com
 queertime.com
 queertips.com
-queertittyfuck.tumblr.com
 queertix.com
 queertraffic.de
-queertransfetish.tumblr.com
 queertrio.com
 queertubesex.com
 queertv.btinternet.co.uk
@@ -60972,7 +60676,6 @@ queerweddings.com
 queerwest.com
 queerwild.com
 queerwolf.com
-queerwolf.tumblr.com
 queerwomen.com
 queerworld.com
 queerx.com
@@ -61038,7 +60741,6 @@ quehagoconesto.com
 quehand.net
 quehariastuconelmono.com
 quehaycuba.com
-quehaynetflix.com
 quehaypahoypanama.com
 quehc.googlevideo.com
 quehd.googlevideo.com
@@ -61208,7 +60910,6 @@ queledirias.com
 quelee.com
 quelegal.com
 queleregalo.com
-quelesfemmessontbelles.tumblr.com
 quelfire.com
 quelfournisseur.com
 quelhadoop.com
@@ -61273,7 +60974,6 @@ quellreality.com
 quellthecough.com
 quellyourhunger.com
 quelnom.com
-quelo-girls.tumblr.com
 quelocompren.com
 quelogic.com
 queloides-exhibit.com
@@ -61401,7 +61101,6 @@ quenenasblog.blogspot.no
 quenenasblog.blogspot.pt
 quenenasblog.blogspot.sk
 quenenastk.foroactivo.com
-quenenie.tumblr.com
 quenergy.com
 queness.com
 quenha.com
@@ -61420,7 +61119,6 @@ quenottes.com
 quenovias.com
 quens.mobi
 quensillo.com
-quenspades.tumblr.com
 quensu.ca
 quensumun.info
 quentasia.net
@@ -61438,7 +61136,6 @@ quentinbooks.co.uk
 quentinc.net
 quentinconstruction.com
 quentincraven.com
-quentincummings.tumblr.com
 quentindaniels.com
 quentindexter.info
 quentindodd.com
@@ -61555,7 +61252,6 @@ quepandulces.com.ar
 quepao736.com
 quepasa.cl
 quepasa.com
-quepasablinky.tumblr.com
 quepasaconsulting.com
 quepasada.com
 quepasahavana.com
@@ -61571,7 +61267,6 @@ quepasoayer.com.ve
 quepay.com
 quepbafta.com
 quepcs.com
-quepechotes.tumblr.com
 quepei653.com
 quepeinado.com
 quepeladoguate.com
@@ -61671,7 +61366,6 @@ quercuseight.com
 quercusenergy.com
 quercusestates.com
 quercuslandscapes.com
-quercusone.tumblr.com
 quercusreview.com
 quercusrubra.com
 quercy-tourisme.com
@@ -61697,7 +61391,6 @@ queregresen.com
 quereis.com
 querelavi56.tubesmobile.com
 querellas.com
-querellethc.tumblr.com
 quereltrailers.com
 queremosayudar.com
 queremosemprender.com
@@ -61822,13 +61515,9 @@ queroserjornalista.com
 querosermais.com.br
 querosite.com
 querosuper.com.br
-querotatuagem.tumblr.com
 queroteblog.blogs.sapo.pt
 querotenho.com
-queroteporinteiro.tumblr.com
 queroterumsite.com
-queroteusar.tumblr.com
-querotravesti.tumblr.com
 querotudo.com
 querotudoagora.com
 querou107.com
@@ -61838,7 +61527,6 @@ queroumencontro.com
 queroumforum.com
 queroumnamorado.com
 queroumsite.com
-querounogay.tumblr.com
 querovencer.com
 querover.com
 queroversexo.net
@@ -61847,7 +61535,6 @@ querovoce.com
 querovotar.org
 querpandone.com
 querplex.com
-querquelife.tumblr.com
 querqus.com
 querrien.com
 querro.com
@@ -61891,7 +61578,6 @@ query-eu-west-1.petametrics.com
 query-europe-west1.petametrics.com
 query-fb6cjraf9cejut2a.petametrics.com
 query-gce.petametrics.com
-query-google.com
 query-itunes.com
 query-lkdk9usg5av95fvs.petametrics.com
 query-ofpar94pul5j6qhu.petametrics.com
@@ -62070,7 +61756,6 @@ queservice.com
 quesevayantodos.com
 quesexe.com
 quesexo.com
-quesexo.tumblr.com
 quesexy.es
 quesfist.blogspot.ae
 quesfist.blogspot.al
@@ -62349,7 +62034,6 @@ questcellular.com
 questcenfig.com
 questcenter.com
 questceque.com
-questcequecestqueca.tumblr.com
 questchen.com
 questchess.com
 questchina.com
@@ -62413,7 +62097,6 @@ questforalpha.com
 questforbibletreasures.com
 questforcannabis.com
 questford.com
-questfordesires.tumblr.com
 questforflavor.com
 questforfreedom.com
 questforgold.com
@@ -62434,7 +62117,6 @@ questforthebestfl.com
 questforthecure.com
 questfortheday.com
 questfortheegyptianadventure.com
-questfortheperfectass.tumblr.com
 questfortherest.com
 questforthewest.com
 questfortruelove.com
@@ -62496,7 +62178,6 @@ question-fear.com
 question-habit.com
 question-ios.com
 question-mac.com
-question-mark69.tumblr.com
 question-operate.com
 question-outlook.com
 question-pc.com
@@ -62520,7 +62201,6 @@ questionablemedia.com
 questionablemorals.com
 questionableproductions.co.uk
 questionablesearch.com
-questionablestitchery.tumblr.com
 questionace.com
 questionaddress.com
 questionaids.com
@@ -62590,7 +62270,6 @@ questiongroup.com
 questionguy.com
 questionhomes.com
 questioning-christianity.com
-questioning-my-sexuality.tumblr.com
 questioning-sexuality.meetup.com
 questioningchristian.com
 questioningchristianity.com
@@ -62598,7 +62277,6 @@ questioningchristianitypodcast.com
 questioningdishtowel.info
 questioninglife.com
 questioningmind.com
-questioningourfriendship.tumblr.com
 questionings.net
 questioningthebible.com
 questionitemnumber6526627822.bravehost.com
@@ -62671,7 +62349,6 @@ questionsaboutheartdisease.com
 questionsabouthomosexuality.com
 questionsaboutreligion.com
 questionsabouttheamish.com
-questionsandacts.tumblr.com
 questionsandanswerslive.com
 questionsanswer.com
 questionsanswered.com
@@ -62908,9 +62585,7 @@ quetalfaenon.com
 quetangas.com
 quetango.com
 quetard.free.fr
-queteapy.tumblr.com
 quetearreo.com
-quetebuttsex.tumblr.com
 quetechnology.com
 quetee.com
 quetejuegas.com
@@ -62974,8 +62649,6 @@ queub.com
 queudlateub.canalblog.com
 queuducu.free.fr
 queudusexe.i-gloo.net
-queue-balls-goons.tumblr.com
-queue-balls.tumblr.com
 queue-code.com
 queue-du-bonheur.com
 queue-du-cul.com
@@ -63049,7 +62722,6 @@ queurdtreevaig.com
 queuron.com
 queurow.pro
 queus.googlevideo.com
-queustionablesex.tumblr.com
 queutard.com
 quevacilon.com
 quevaina.com
@@ -63090,7 +62762,6 @@ quewey.com
 quewigwomag.szm.com
 quewin.com
 quewindowproblems.com
-quewlesbians.tumblr.com
 quewor.us
 queworld.com
 quewp.com
@@ -63429,7 +63100,6 @@ quhtq.googlevideo.com
 quhtt.googlevideo.com
 quhtw.googlevideo.com
 quhu.info
-quhuang4.tumblr.com
 quhuvuqi0ddb0lurokop.juyoreoweyoyi.com
 quhuw47bd6zuzor.kajogrenoka.info
 quhvg.googlevideo.com
@@ -63509,7 +63179,6 @@ quibs.us
 quibtches.com
 quibussie.nl
 quic-en-groigne.com
-quic.gov
 quicacal.com
 quicalc.net
 quicamotus.com
@@ -63530,7 +63199,6 @@ quiches.stream
 quichethis.com
 quichocho.com
 quichoisir.com
-quick---suck-it.tumblr.com
 quick-access.net
 quick-accounting-book-pro-help-support.com
 quick-acne-treatment.com
@@ -63567,14 +63235,12 @@ quick-counter.net
 quick-creations.com
 quick-creditcard.com
 quick-creditcards.com
-quick-cummer.tumblr.com
 quick-decor-dz.com
 quick-divide.com
 quick-dollars.com
 quick-down-win.com
 quick-download.info
 quick-earner.com
-quick-eat-my-cock.tumblr.com
 quick-escort.nl
 quick-eu.com
 quick-exchange.com
@@ -63586,8 +63252,6 @@ quick-feed.ru
 quick-fick.com
 quick-fixes.com
 quick-fuck.co.uk
-quick-fuckmymouth.tumblr.com
-quick-giveme-yourcock.tumblr.com
 quick-goen.tk
 quick-googleloango.xyz
 quick-googleways.xyz
@@ -63601,7 +63265,6 @@ quick-helpme.net
 quick-home-loan.search.biz
 quick-home-loans.net
 quick-id.com
-quick-impregnate-me.tumblr.com
 quick-inserate.at
 quick-inserate.ch
 quick-invest.cf
@@ -63654,7 +63317,6 @@ quick-search.ws
 quick-searcher.com
 quick-seeker.com
 quick-sell.net
-quick-sex-movies.tumblr.com
 quick-sex.jouwpagina.nl
 quick-share.com
 quick-short-breaks.com
@@ -63698,7 +63360,6 @@ quick.comuf.com
 quick.earthsolution.org
 quick.einahdalrock.com
 quick.games.free.fr
-quick.gov
 quick.info
 quick.insightfirst.com
 quick.oldbmwy.com
@@ -63916,7 +63577,6 @@ quickbookquickensupport.com
 quickbookquickensupport.net
 quickbooks--support.com
 quickbooks-2015-support.com
-quickbooks-2015-support.tumblr.com
 quickbooks-accountant.com
 quickbooks-accounting-supports.com
 quickbooks-customer-service.org
@@ -63994,7 +63654,6 @@ quickbooks.com.vn
 quickbooks.geeksforu.com
 quickbooks.iconnect.solutions
 quickbooks.numberaustralia.com
-quickbooks1.tumblr.com
 quickbooks18008894209.com
 quickbooks2021.com
 quickbooks247.support
@@ -64579,7 +64238,6 @@ quickcryptoloans.com
 quickcryptopay.com
 quickcss.com
 quickcum.com
-quickcum.tumblr.com
 quickcupcakes.com
 quickcupid.com
 quickcupidheaven.info
@@ -64635,7 +64293,6 @@ quickdepo.com
 quickdeposits.com
 quickdesigners.com
 quickdevelop.com
-quickdicks.tumblr.com
 quickdietclub.com
 quickdigitalgroup.com
 quickdikfix.com
@@ -65231,7 +64888,6 @@ quickfoodmart.com
 quickfoodmenu.com
 quickfoodmenus.com
 quickfoot.com
-quickfordick.tumblr.com
 quickforeclosures.com
 quickfox.com
 quickfreedom.com
@@ -65419,13 +65075,11 @@ quickieholidays.com
 quickiehookup.com
 quickielist.com
 quickieloan.com
-quickielover.tumblr.com
 quickielube.com
 quickiemail.com
 quickienews.com
 quickienews.net
 quickienewyork.com
-quickienewyork.tumblr.com
 quickieonline.com
 quickieoutee.com
 quickieoutie.com
@@ -65434,7 +65088,6 @@ quickieporn.com
 quickies.com
 quickies4pc.net
 quickies5bucks.com
-quickiesandcream.tumblr.com
 quickiesex.com
 quickiesinthekitchen.com
 quickiespizza.com
@@ -66868,7 +66521,6 @@ quidprobono.com
 quidproco.com
 quidproductions.com
 quidpromo.com
-quidpropunk.tumblr.com
 quidproquote.com
 quidquiz.com
 quidr.googlevideo.com
@@ -67104,8 +66756,6 @@ quierotiendasdevideosporno.com
 quierotikal.com
 quierotrabajardesdecasa.com
 quierotrabajargt.com
-quierotuleche.tumblr.com
-quierotupene.tumblr.com
 quierotv.com
 quierounacasa.com
 quierouncredito.com
@@ -67127,7 +66777,6 @@ quieroxxx.com
 quieroya.com
 quiescencemusic.com
 quiescentaquatics.com
-quiescentdelights.tumblr.com
 quieshotelnewquay.co.uk
 quiesn.net
 quiestalice.free.fr
@@ -67138,9 +66787,7 @@ quiestmoinscher.com
 quiestmort.com
 quiet-actions.com
 quiet-competence.com
-quiet-dominance.tumblr.com
 quiet-interactions.net
-quiet-master.tumblr.com
 quiet.earthsolution.org
 quietacadamy.com
 quietaccountant.com
@@ -67153,7 +66800,6 @@ quietafternoon.com
 quietaircompressor.com
 quietairpurifier.com
 quietalert.com
-quietandnumb.tumblr.com
 quietangel.com
 quietanza.com
 quietasachurchmouse.com
@@ -67178,7 +66824,6 @@ quietcaribbeanvilla.com
 quietcast.com
 quietchamber.com
 quietchannel.com
-quietcharms.tumblr.com
 quietchill.com
 quietchoices.com
 quietchopper.com
@@ -67239,7 +66884,6 @@ quietes.us
 quietestdishwasher.com
 quietevery.net
 quietexpert.com
-quietf0ols.tumblr.com
 quietfast.com
 quietfeet.com
 quietfence.net
@@ -67254,8 +66898,6 @@ quietfortune.com
 quietfurniture.com
 quietgalleries.com
 quietgirl.com
-quietgirldirtymind.tumblr.com
-quietgirldirtythoughts.tumblr.com
 quiethacking.com
 quietheadphones.com
 quietheartchurch.com
@@ -67282,7 +66924,6 @@ quietinvent.co.uk
 quietinvestor.com
 quietiskept.com
 quietize.com
-quietjenny.tumblr.com
 quietjet.net
 quietjourney.com
 quietkayaking.com
@@ -67292,31 +66933,19 @@ quietkool.com
 quietlabs.com
 quietlabs.net
 quietlandscape.com
-quietlesbian.tumblr.com
 quietlioncoaching.com
 quietlittlechibi.com
-quietlittlekinkygirl.tumblr.com
-quietly-deviant.tumblr.com
-quietly-naked.tumblr.com
-quietly-us.tumblr.com
 quietly.net
 quietlyandgive.tk
-quietlyblushing.tumblr.com
 quietlychristian.com
 quietlycontrollingmix.com
-quietlydom.tumblr.com
 quietlyeffective.com
-quietlyexcessive.tumblr.com
-quietlygay.tumblr.com
 quietlylearn.com
-quietlylurking.tumblr.com
 quietlymakemoney.com
 quietlyshouting.com
 quietlyspoken.com
 quietlyworking.com
-quietlyykinky.tumblr.com
 quietmanhattan.com
-quietmansvault.tumblr.com
 quietmarket.tk
 quietmaster.net
 quietmemories.com
@@ -67338,7 +66967,6 @@ quietnation.com
 quietnest.com
 quietniece.net
 quietnight.co.uk
-quietobservation.tumblr.com
 quietoclock.net
 quietoffices.com
 quietofficespace.com
@@ -67452,11 +67080,9 @@ quietrush.com
 quietschboys.com
 quietscheenten.com
 quietschente.com
-quietsexualthunder.tumblr.com
 quietship.com
 quietsilver.com
 quietsitting.com
-quietslut69.tumblr.com
 quietsmart.com
 quietsociety.com
 quietspeak.net
@@ -67466,7 +67092,6 @@ quietsteam.com
 quietsteps.com
 quietstonepanels.com
 quietstory.com
-quietstranger.tumblr.com
 quietstream.net
 quietstrong.net
 quietstudio.com
@@ -67513,13 +67138,11 @@ quifen.com
 quifeurou.com
 quiff.com
 quiffbourg.com
-quiffsandfringe.tumblr.com
 quifh.googlevideo.com
 quifiqu.com
 quifk.googlevideo.com
 quiflosa.com
 quifn.googlevideo.com
-quifox.tumblr.com
 quifp.googlevideo.com
 quifs.googlevideo.com
 quifv.googlevideo.com
@@ -67727,7 +67350,6 @@ quilchena.com
 quild.googlevideo.com
 quilderns.com
 quildon.com
-quilesboy.tumblr.com
 quilezar.blog.com
 quilg.googlevideo.com
 quilibra.com
@@ -67774,7 +67396,6 @@ quillertriumph.co.uk
 quilles.net
 quillhaven.com
 quillhouse.nl
-quillian0.tumblr.com
 quillien.com
 quilligansfc.co.uk
 quilligraphy-market.com
@@ -67842,7 +67463,6 @@ quiltartist.com
 quiltauctions.com
 quiltaway.com
 quiltbagfire.com
-quiltbagtoo.tumblr.com
 quiltbee.com
 quiltbias.com
 quiltblockparty.com
@@ -68137,13 +67757,11 @@ quinara.com
 quinault.net
 quinaultbchresort.com
 quinaultbeachresort.com
-quinaultbear.tumblr.com
 quinb.com
 quinbi.com
 quinc.googlevideo.com
 quincadres.com
 quincailler.com
-quincaline.tumblr.com
 quincalleria.com
 quincash.com
 quince8.com
@@ -68193,7 +67811,6 @@ quincianera.com
 quincoelectrical.com
 quinconces.com
 quinct.com
-quincy.edu
 quincy.ru
 quincy230kvreinforcement.com
 quincyaaron.com
@@ -68226,7 +67843,6 @@ quincyhospital.org
 quincyhotels.com
 quincyhouserexburg.com
 quincyhydroponics.com
-quincyil.gov
 quincyilapartments.com
 quincyinsurance.net
 quincyjones.com
@@ -68236,7 +67852,6 @@ quincylandscaping.com
 quincylastminute.com
 quincylocksmiths.com
 quincylohman.com
-quincyma.gov
 quincyma.net
 quincymaapartments.com
 quincymacondos.com
@@ -68247,7 +67862,6 @@ quincyproperty.com
 quincyraceways.com
 quincyrealtor.com
 quincyreaves.com
-quincyroe.tumblr.com
 quincys.com
 quincyshop.com
 quincysrestaurants.com
@@ -68279,7 +67893,6 @@ quindown.net
 quinel.bloggarcinialheck.eu
 quinenveutdusexe.canalblog.com
 quines.dx.am
-quinessballstretcher.tumblr.com
 quinesworld.co.uk
 quinetik.com
 quinformation.com
@@ -68327,9 +67940,7 @@ quinlantree.com
 quinlaw.com
 quinlin.com
 quinn-model.com
-quinn-robertson.tumblr.com
 quinn.nu
-quinn1331.tumblr.com
 quinn69.com
 quinnaerospace.com
 quinnanderson.com
@@ -68369,7 +67980,6 @@ quinnhelix.com
 quinni.pl
 quinnie.com
 quinnipiac-info.org
-quinnipiac.edu
 quinnipiacathletics.com
 quinnipiacbobcats.net
 quinnipiacbraves.net
@@ -68740,7 +68350,6 @@ quintonbaptist.com
 quintoncarter.com
 quintoncatheter.com
 quintone.com
-quintoned.tumblr.com
 quintonfire.com
 quintonhazell.pl
 quintonhouse.com
@@ -68772,7 +68381,6 @@ quinware.com
 quinwonderful.com
 quinzaines.com
 quinzano.com
-quinzelade.tumblr.com
 quinzemetrecarre.com
 quioc.googlevideo.com
 quioe.googlevideo.com
@@ -68974,7 +68582,6 @@ quirkyaros.com
 quirkybags.com
 quirkybeautiful.com
 quirkybets.com
-quirkyblackgirls.tumblr.com
 quirkybrownlove.com
 quirkycandles.com
 quirkycars.com
@@ -68989,7 +68596,6 @@ quirkydog.net
 quirkyfacts.com
 quirkyfoods.com
 quirkygift.com
-quirkygirlhere.tumblr.com
 quirkygoodness.com
 quirkyguru.com
 quirkyinspired.com
@@ -69020,7 +68626,6 @@ quirkyshirt.com
 quirkyshirts.com
 quirkyshoes.com
 quirkysmut.com
-quirkysmut.tumblr.com
 quirkyspirit.com
 quirkystore.com
 quirkystudios.com
@@ -69028,7 +68633,6 @@ quirkystuff.com
 quirkyverve.com
 quirkywackjob.com
 quirkyway.com
-quirkywhore.tumblr.com
 quirldoua.com
 quirlies.de
 quirly.info
@@ -69064,7 +68668,6 @@ quiruelasdevidriales.com
 quirurgicas.com
 quirurgicos.com
 quirus.com
-quis2002.tumblr.com
 quisa.com
 quisacon.narod.ru
 quisalento.com
@@ -69176,7 +68779,6 @@ quistfinancial.com
 quistionerete90.tubesmobile.com
 quistle.com
 quisumbing.com
-quisyyy.tumblr.com
 quit-a-thon.com
 quit-caffeine.com
 quit-chewing-tobacco.com
@@ -69215,7 +68817,6 @@ quitandjoin.com
 quitania.new-christmas.ru
 quitania.ruchristmas.ru
 quitanieves.com
-quitapenasfsb.tumblr.com
 quitapey.blog.com
 quitapp.com
 quitaramp.com
@@ -69232,7 +68833,6 @@ quitbeingstupid.com
 quitbeingstupid.net
 quitblaine.biz
 quitblocking.me
-quitblowingjob-joke.tumblr.com
 quitbooze.com
 quitboringme.com
 quitbullying.com
@@ -69339,8 +68939,6 @@ quite-lewd.blogspot.sk
 quite-lewd.blogspot.sn
 quite-lewd.blogspot.tw
 quite-lewd.blogspot.ug
-quite-the-darkside.tumblr.com
-quite-womanly.tumblr.com
 quite.tokyo
 quiteabitcoin.com
 quiteacatch.com
@@ -69361,7 +68959,6 @@ quitecreative.com
 quitecross.com
 quitecute.com
 quitedelicious.com
-quitedistracting.tumblr.com
 quitefetching.com
 quitefilm.com
 quitefrankly.com
@@ -69375,7 +68972,6 @@ quitelex.com
 quitelike.com
 quitelove.com
 quitelovelynow.tk
-quitemystery.tumblr.com
 quitename.info
 quitenice.com
 quitenote.com
@@ -69394,12 +68990,10 @@ quiterhau.land.ru
 quiterias.com.br
 quiteright-sunner.tk
 quiterly.com
-quitesimplydaddysgirl.tumblr.com
 quiteskeptical.com
 quitesocial.com
 quitesomething.com
 quitespring.com
-quitethefreak.tumblr.com
 quiteunlike.tk
 quiteunlikely.com
 quiteuseless.com
@@ -69410,7 +69004,6 @@ quitfbnow.com
 quitfirst.com
 quitflorida.com
 quitflying.com
-quitforblowjob.tumblr.com
 quitforcash.com
 quitforgood.com
 quitforgood.net
@@ -69423,7 +69016,6 @@ quitg.googlevideo.com
 quitgames.com
 quitgiggling.com
 quitgoingtochurch.com
-quitgoogle.com
 quith.net
 quithappy.tk
 quither.com
@@ -69649,7 +69241,6 @@ quiveradnet.com
 quiveradult.com.au
 quiverain.com
 quiverbone.com
-quiverbooks.tumblr.com
 quivercove.com
 quiveredjddtwyyz.download
 quiverforge.com
@@ -69673,7 +69264,6 @@ quiverwave.com
 quivery.stream
 quiveusautermafemme.centerblog.net
 quividox.com
-quivins.tumblr.com
 quivira.org
 quivivo.com
 quivussystems.com
@@ -69704,7 +69294,6 @@ quixotescastle.com
 quixotescloset.com
 quixoticcode.com
 quixoticconsulting.com
-quixoticelixor.tumblr.com
 quixoticism.com
 quixoticroads.com
 quixoticworld.com
@@ -69861,7 +69450,6 @@ quizhunt.com
 quizi.googlevideo.com
 quizic.com
 quizien.nl
-quiziepoo.tumblr.com
 quizies.com
 quizified.com
 quizila.info
@@ -70095,7 +69683,6 @@ qujgw.googlevideo.com
 qujgz.googlevideo.com
 qujiaren.com
 qujib.googlevideo.com
-qujibo2333.tumblr.com
 qujid.googlevideo.com
 qujig.googlevideo.com
 qujingw.com
@@ -70120,7 +69707,6 @@ qujly.googlevideo.com
 qujmwfa.tk
 qujnukg.info
 qujof.googlevideo.com
-qujoh.tumblr.com
 qujoi.googlevideo.com
 qujol.googlevideo.com
 qujoo.googlevideo.com
@@ -70581,7 +70167,6 @@ qunaai.com
 qunaer.com
 qunaerwang.com
 qunar.com
-qunaripenis.tumblr.com
 qunasou.com
 qunatcast.com
 qunatejiajipiao.com
@@ -70824,8 +70409,6 @@ qunzai.com
 qunzg.com
 quo-tees.com
 quo-vadimus.net
-quo-vadis-kiel.tumblr.com
-quoalab.tumblr.com
 quoapps.es
 quoashei.com
 quoastno.blog.com
@@ -70875,7 +70458,6 @@ quoctuan.com
 quoctuanmobile.com
 quocuy.com
 quocvinh.com
-quocvinhjs27.tumblr.com
 quocy.googlevideo.com
 quod-est-dicendum.org
 quod3pr0bjk0lszjgik2.littlematchagirl.com.au
@@ -71595,7 +71177,6 @@ quotific.com
 quotika.com
 quotimed.com
 quotimus.com
-quoting-shakespeare-to-ducks.tumblr.com
 quotingai.com
 quotingangelic.com
 quotingchurchill.com
@@ -71644,7 +71225,6 @@ quoverbis.com
 quoverwscience.com
 quovh.googlevideo.com
 quoviscreative.com
-quovismodo.tumblr.com
 quovs.googlevideo.com
 quovuf.com
 quovv.googlevideo.com
@@ -72045,7 +71625,6 @@ qurh.com
 qurhubo.com
 quriame.us
 quriousities.com
-quriousjak.tumblr.com
 qurithe.us
 quritus0ddb0kuqop.jirepokoreuyi.com
 qurix.com
@@ -72239,13 +71818,11 @@ qusws.googlevideo.com
 qusy.com
 qusys.com
 quszo.googlevideo.com
-qut.edu.au
 qutab.googlevideo.com
 qutad.googlevideo.com
 qutadarfroctimekec.jiyayreripi.com
 qutaiji.com
 qutaisi.com
-qutan.tumblr.com
 qutaofang.com
 qutap.com
 qutas.com
@@ -73289,7 +72866,6 @@ qvcst.googlevideo.com
 qvcsw.googlevideo.com
 qvcsz.googlevideo.com
 qvct.phlort.ru
-qvctc.commnet.edu
 qvctours.com
 qvcug.googlevideo.com
 qvcuj.googlevideo.com
@@ -73417,7 +72993,6 @@ qvecn.googlevideo.com
 qvecv.googlevideo.com
 qvecy.googlevideo.com
 qvedtgogxtqpbhocp.com
-qveen-nymphet.tumblr.com
 qveens.com
 qveer.xn--m1abhd.xn--p1ai
 qvefc.googlevideo.com
@@ -73817,7 +73392,6 @@ qvipf.googlevideo.com
 qvipgrandfestival.com
 qvipw.googlevideo.com
 qvipy.googlevideo.com
-qvir-nsn.gov
 qvira.googlevideo.com
 qvird.googlevideo.com
 qvirg.googlevideo.com
@@ -75355,7 +74929,6 @@ qwalks.com
 qwalls.com
 qwamljxsucljzsglpgeuvobn.com
 qwana.com
-qwanderson.tumblr.com
 qwandry.com
 qwandry.net
 qwanki.com
@@ -75368,7 +74941,6 @@ qwantmoneydrey.top
 qwantos.com
 qwants.com
 qwantz.com
-qwapi.apple.com
 qwapi.com
 qwaqwarivola.com
 qwarbfi.vulv.3inchesnow.ru
@@ -75394,7 +74966,6 @@ qwaxytm.cn
 qway.net
 qwaytbaud.com
 qwazcvfrtyhnjk.s3-website-us-west-2.amazonaws.
-qwazcvfrtyhnjk.s3-website-us-west-2.amazonaws.com
 qwaze.com
 qwazee.com
 qwazi.com
@@ -75814,7 +75385,6 @@ qwecx.googlevideo.com
 qwecy.googlevideo.com
 qwedasertafoas.com
 qwedating.ru
-qwedcfrtyhj.s3-website-us-west-2.amazonaws.com
 qwedcfv.com
 qwedfgs.com
 qwedo.ru
@@ -75834,8 +75404,6 @@ qweenebee.eugenegrimes.bobweber.randyruff.annaminny.com
 qweenwut.com
 qweenz.com
 qweepq.com
-qweergasm-porn.tumblr.com
-qweerosexual.tumblr.com
 qweers.com
 qweerz.com
 qweeso.com
@@ -75978,14 +75546,11 @@ qwerty.eqo.de
 qwerty.onthe.io
 qwerty.web-pros.co.uk
 qwerty001.ucoz.net
-qwerty0592x.tumblr.com
 qwerty1.info
-qwerty1967.tumblr.com
 qwerty1x.tk
 qwerty2.free.fr
 qwerty2.info
 qwerty6.info
-qwerty802.tumblr.com
 qwertyart.com
 qwertyasdf.com
 qwertyblog.com
@@ -77401,7 +76966,6 @@ qwrvs.googlevideo.com
 qwrvv.googlevideo.com
 qwrvx.googlevideo.com
 qwryc.googlevideo.com
-qwryiksmdnxkezjsmdmcm.tumblr.com
 qwryq.googlevideo.com
 qwryt.googlevideo.com
 qwryw.googlevideo.com
@@ -78518,7 +78082,6 @@ qxedt.googlevideo.com
 qxedv.googlevideo.com
 qxedy.googlevideo.com
 qxeedmi.xn--b1acmce3adp2d5at.xn--p1ai
-qxeenbusvyo-xo.tumblr.com
 qxeepvks.freewebhostingpro.com
 qxega.googlevideo.com
 qxegi.googlevideo.com
@@ -80162,7 +79725,6 @@ qxxdm.googlevideo.com
 qxxdp.googlevideo.com
 qxxds.googlevideo.com
 qxxdv.googlevideo.com
-qxxfantasymanu.tumblr.com
 qxxgc.googlevideo.com
 qxxgf.googlevideo.com
 qxxgi.googlevideo.com
@@ -80426,7 +79988,6 @@ qybin.googlevideo.com
 qybiq.googlevideo.com
 qybit.googlevideo.com
 qybiv.googlevideo.com
-qybixxx.tumblr.com
 qybiy.googlevideo.com
 qybkaprfdl.com
 qybla.googlevideo.com
@@ -81683,7 +81244,6 @@ qypqs.googlevideo.com
 qypqx.googlevideo.com
 qypr0rm2mn7huydnwg.science
 qyprn76wmr.mobi
-qyprotozo.tumblr.com
 qypsc.googlevideo.com
 qypsf.googlevideo.com
 qypsh.googlevideo.com
@@ -83796,7 +83356,6 @@ qztas.googlevideo.com
 qztau.googlevideo.com
 qztax.googlevideo.com
 qztb.net
-qztc.edu
 qztccy.com
 qztdn.googlevideo.com
 qztdq.googlevideo.com

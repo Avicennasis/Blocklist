@@ -5,7 +5,6 @@ j--lesbian-video-im.da.ru
 j-0.com
 j-0gn.baixeinfiltrato.net
 j-2.com
-j-2004.tumblr.com
 j-3.net
 j-5.info
 j-777.com
@@ -20,18 +19,13 @@ j-a-y.com
 j-ab.com
 j-ack.com
 j-ad.dominiosfree.net
-j-adore-penis.tumblr.com
 j-aferrie.com
 j-affiliate.com
 j-affiliate.net
-j-aime-le-s-e-x.tumblr.com
 j-aime-les-sushi.com
 j-almar.com
 j-aloe.com
 j-amazon.com
-j-ammo305.tumblr.com
-j-and-a-xoxo.tumblr.com
-j-and-t-midwest-hotwife.tumblr.com
 j-apparel.com
 j-architect.com
 j-art.by
@@ -50,7 +44,6 @@ j-bart.pobox.ne.jp
 j-batteries.com
 j-battery.com
 j-be.com
-j-bethetruth.tumblr.com
 j-bible.com
 j-biggestshemale-un.da.ru
 j-bio.com
@@ -78,7 +71,6 @@ j-cat.net
 j-cavalone.com
 j-cd.com
 j-celeb.net
-j-chastain.tumblr.com
 j-chat.de
 j-chkmail.org
 j-christianautismfoundation.com
@@ -100,7 +92,6 @@ j-curve-recruitment.co.uk
 j-cuties.com
 j-cycling.org
 j-dar.ca
-j-dart.tumblr.com
 j-dc.net
 j-diet.com
 j-digital.com
@@ -157,7 +148,6 @@ j-gate.com
 j-gateway.com
 j-geissler.com
 j-gf.com
-j-giri-gl.tumblr.com
 j-girls-collection.com
 j-girls.com
 j-gourmet.com
@@ -171,7 +161,6 @@ j-heartland.com
 j-heaven.tripod.com
 j-help.ru
 j-hentai.com
-j-hermit.tumblr.com
 j-hill.com
 j-hlodge.com
 j-home.com
@@ -236,11 +225,9 @@ j-loan.com
 j-lockphoto.com
 j-locomo.com
 j-lonude.com
-j-loomis.tumblr.com
 j-lou-gay.i-gloo.net
 j-louise.com
 j-ltd.com
-j-maccockworship.tumblr.com
 j-mai.com
 j-mail.com
 j-master.gr.jp
@@ -255,7 +242,6 @@ j-mike.com
 j-mikuniya.com
 j-mine.com
 j-mnetworks.com
-j-mobear.tumblr.com
 j-mobility.com
 j-models.net
 j-momo.co.jp
@@ -282,7 +268,6 @@ j-o-g-o-s.com
 j-o-i-n.net
 j-o-i-nlife.com
 j-o-paris2024.com
-j-o-q.tumblr.com
 j-o-r.com
 j-o.net
 j-oa.com
@@ -296,7 +281,6 @@ j-p4p8.kieyopowertochange.net
 j-page.com
 j-pal.com
 j-panic.com
-j-panties.tumblr.com
 j-partners.com
 j-parts.com
 j-password.com
@@ -324,7 +308,6 @@ j-pro.com
 j-properties.com
 j-ps.com
 j-pub.com
-j-pup.tumblr.com
 j-pussy.ca
 j-pussy.com
 j-px.com
@@ -334,14 +317,12 @@ j-r-t.com
 j-raahcon.com
 j-rape.com
 j-rape.w2w.cc
-j-real-solid.tumblr.com
 j-reaz.com
 j-reits.com
 j-rentacar.co.jp
 j-rentalcars.co.nz
 j-reserve.com
 j-rhomesolutions.com
-j-riddick-muscle.tumblr.com
 j-rk.com
 j-robert-scott.com
 j-rock.com
@@ -377,9 +358,7 @@ j-smut.com
 j-source.com
 j-spiral.com
 j-sports.com
-j-sprat.tumblr.com
 j-squaredllc.com
-j-stars-215.tumblr.com
 j-stash.com
 j-step.or.jp
 j-stolen-pantycinem.da.ru
@@ -406,7 +385,6 @@ j-top.com
 j-top100.com
 j-top50.net
 j-trafficimj.tf
-j-tributes.tumblr.com
 j-tron.com
 j-tts.com
 j-tunnel.com
@@ -561,7 +539,6 @@ j.somewrite.jp
 j.sprout-ad.com
 j.tchuisuo.com
 j.theadsnet.com
-j.tinyurl.com
 j.tonn.tripod.com
 j.traffichunt.com
 j.union.ijinshan.com
@@ -628,14 +605,11 @@ j0fajh.allpornpass.com
 j0ftyshieroevw7baknjf9wczyqev1509434311.nuid.imrwo
 j0ftyshieroevw7baknjf9wczyqev1509434311.nuid.imrworldwide.com
 j0g5.com
-j0hntitor.tumblr.com
 j0ji.com
 j0jssfhykt.kaeyucoolenjoy.net
-j0k3r13.tumblr.com
 j0k3rj0k3r.tk
 j0ker.nl
 j0l.com
-j0m0n5t3r-deactivated20130317.tumblr.com
 j0mx3kvherxlsbae4u.review
 j0ne.com
 j0oc7a60b2b942dn4xgpvq2hci.trade
@@ -665,7 +639,6 @@ j109.com
 j10ai.cn
 j10church.com
 j10updata.johnywalkerup.com
-j1100011.tumblr.com
 j110228.upc-j.chello.nl
 j1108j.cn
 j11j.com
@@ -688,7 +661,6 @@ j17.shangc.net
 j17.xiumu.cn
 j172annecj61.free.fr
 j173187.upc-j.chello.nl
-j17d22.tumblr.com
 j17k66v1.mobi
 j17v.com
 j18.caiyupasadenastarnews.net
@@ -848,7 +820,6 @@ j2gworld.com
 j2gyq1.auto.drivealexus.com
 j2images.co.uk
 j2inter.com
-j2ismyjam.tumblr.com
 j2isvx2m-awh.com
 j2j1.com
 j2j3qdpznecoxkxiqzrwikccq.science
@@ -910,7 +881,6 @@ j30.justppc.net
 j30ako4.yuuquelitethemes.net
 j30timeless.com
 j311dj.eas.earnmoneywithken.com
-j314alley.tumblr.com
 j316.pl
 j31m.com
 j31man.com
@@ -935,7 +905,6 @@ j3aq6n.easy.faststartwebinars.com
 j3be76.eas.earnmoneywithken.com
 j3creations.net
 j3d.com
-j3davenport.tumblr.com
 j3dj.com
 j3ervx.top
 j3f7yz7.aidirhowwemadeitinafrica.com
@@ -993,7 +962,6 @@ j4.shinobi.jp
 j4.signclck.com
 j40.net
 j4000.ddns.net
-j4111.tumblr.com
 j41118c33e91a8341550f736ae45a00200.ws
 j411df4ec758d2618f776a33774d0e53cb.ws
 j42r.com
@@ -1011,7 +979,6 @@ j4a.com
 j4a.net
 j4bf75605e3940e6f7c1ff9d02cedae50b.ws
 j4ckd4w.ugu.pl
-j4cky20.tumblr.com
 j4co4ryvj4.info
 j4consultingllc.com
 j4dt6ugpbb.kameleoon.eu
@@ -1067,7 +1034,6 @@ j520s.gzcl999.cn
 j52nz.net
 j53x2n.close.futureisready.com
 j55.eu
-j551100.tumblr.com
 j56.com
 j56rhfva.ziedigrafpedia.com
 j57.socialnetworkindustry.com
@@ -1484,7 +1450,6 @@ j9.zap3x.com
 j906016.myjino.ru
 j907oriodp.info
 j911.com
-j91169.tumblr.com
 j927.com
 j933.com
 j93557g.com
@@ -1544,7 +1509,6 @@ j9yjhftncdjxxh3feel3q4.bid
 j9yw9inxtz.info
 j9z7z6y9.biz
 j_murach.gaebvycijol.com
-ja-2070.tumblr.com
 ja-adulina.mylog.pl
 ja-bbb.com
 ja-bong.com
@@ -1562,7 +1526,6 @@ ja-keita.com
 ja-kirchenzeitung.at
 ja-media.de
 ja-nigeria.org
-ja-no-skianator.tumblr.com
 ja-pan.com
 ja-thomfamily.com
 ja-tsuruoka.or.jp
@@ -1642,7 +1605,6 @@ jaackdsc.com
 jaacon.com
 jaacs.com
 jaade.site.voila.fr
-jaades-dom-m.tumblr.com
 jaadi.com
 jaaditpu.blog.com
 jaado.com
@@ -1678,7 +1640,6 @@ jaakkpaint1.irishinnovations.com
 jaala3.000webhostapp.com
 jaallen.com
 jaalmag.com
-jaalmanza.tumblr.com
 jaam.com.au
 jaam.me
 jaam.net
@@ -1822,32 +1783,25 @@ jabarty.com
 jabas.com
 jabasta.com
 jabatan.com
-jabatheslut.tumblr.com
 jabatopee.hldns.ru
 jabavuhfrcitoso.jazureigoga.com
 jabaza.com
 jabb75.canalblog.com
 jabba-wocky.com
 jabbaa.com
-jabbacosplay.tumblr.com
 jabbahut.com
 jabbalot.com
 jabbar.net
-jabbas-love-palace.tumblr.com
 jabbascript.com
 jabbaspalace.com
-jabbathaslutt.tumblr.com
 jabbathecat.com
 jabbathehuttster.com
-jabbatheslutt.tumblr.com
-jabbathesmut.tumblr.com
 jabbawocky.com
 jabbba.co.vu
 jabbdstjyus.com
 jabbeak.net
 jabbee.com
 jabber-hispano.org
-jabber-time.tumblr.com
 jabber.answers.com
 jabber.apinc.org
 jabber.cc
@@ -1950,7 +1904,6 @@ jabclub.com
 jabco.net
 jabcomix.com
 jabcomix.net
-jabcomixfan.tumblr.com
 jabconsultec.com
 jabcr.googlevideo.com
 jabcrow.com
@@ -2079,7 +2032,6 @@ jablum.us
 jablunkov.com
 jablw.googlevideo.com
 jably.com
-jabm1970.tumblr.com
 jabmedia.com
 jabmist.com
 jabmusic.com
@@ -2147,11 +2099,9 @@ jabqq.googlevideo.com
 jabqt.googlevideo.com
 jabqv.googlevideo.com
 jabqy.googlevideo.com
-jabr360.tumblr.com
 jabra.com
 jabra.com.ua
 jabrac.pl
-jabradi1.tumblr.com
 jabradio.com
 jabraheadset.com
 jabrajump.com
@@ -2181,7 +2131,6 @@ jabski.com
 jabsocial.com
 jabstar.com
 jabstourism.com
-jabswife.tumblr.com
 jabsystems.com
 jabta.googlevideo.com
 jabtd.googlevideo.com
@@ -2258,9 +2207,6 @@ jac-in-a-box.co.uk
 jac-recruitment.my
 jac.co.jp
 jac.denisesasaki.tomshog.kingrom.agacetammy.com
-jac0o003.tumblr.com
-jac1x2.tumblr.com
-jac63.tumblr.com
 jac8.com
 jacaa.googlevideo.com
 jacaa.us
@@ -2278,7 +2224,6 @@ jacago.com
 jacaholding.net
 jacai.googlevideo.com
 jacal.net
-jacall13.tumblr.com
 jacalyn.net
 jacalynshelley.com
 jacalynyoung.net
@@ -2364,12 +2309,9 @@ jacdj.googlevideo.com
 jacds.googlevideo.com
 jacdu.googlevideo.com
 jacdx.googlevideo.com
-jaceboogie174.tumblr.com
-jacee77.tumblr.com
 jaceed.com
 jaceed.net
 jaceeonline.com
-jaceguys.tumblr.com
 jacejameson.com
 jacejohnson.com
 jacekgrabowski.com
@@ -2379,11 +2321,8 @@ jacekozdoba.pl
 jacekphoto.com
 jacela.com
 jacelinfyne.com
-jacelovescock.tumblr.com
-jaceloxxxwood.tumblr.com
 jacelstours.com
 jacemattsonart.com
-jacemax.tumblr.com
 jacemer.us
 jacenki.us
 jacentabrunhilde.su
@@ -2403,7 +2342,6 @@ jacf.net
 jacfc.googlevideo.com
 jacfdrex.com
 jacga.com
-jacgayline.tumblr.com
 jacgb.co.uk
 jacgc.googlevideo.com
 jacgf.googlevideo.com
@@ -2508,7 +2446,6 @@ jacintheellene.be
 jacinthes.com
 jacinto-murat.pt
 jacintoalonsoehijossl.com
-jacintocity-tx.gov
 jacio.googlevideo.com
 jacir.googlevideo.com
 jacisch.us
@@ -2518,18 +2455,15 @@ jacity.info
 jaciu.googlevideo.com
 jacivmrixd.ws
 jaciw.googlevideo.com
-jacizal.tumblr.com
 jacizis.hostoi.com
 jacjacobsen.com
 jacjones.com
 jacjqd.www.13900139000.com
 jacjuggling.co.uk
 jack-abbas.in
-jack-aka-randomboobguy.tumblr.com
 jack-alkhouri.com
 jack-allen.com
 jack-and-jill-boutique.myshopify.com
-jack-anywhere.tumblr.com
 jack-ass.net
 jack-be-nimble.com
 jack-betty.jp
@@ -2537,18 +2471,15 @@ jack-bosch.com
 jack-canfield.com
 jack-dahmen.us
 jack-flash.com
-jack-frostitutes.tumblr.com
 jack-goetsch.us
 jack-grable.us
 jack-hand.com
 jack-handy.com
 jack-iddon.com
-jack-johnson-chronicles.tumblr.com
 jack-kearney.com
 jack-london.com
 jack-mail.com
 jack-mayberry.com
-jack-my-cock.tumblr.com
 jack-off.com
 jack-pinette.us
 jack-post.com
@@ -2563,7 +2494,6 @@ jack-travel.com
 jack-tyler.net
 jack-wagner.website
 jack-wolfskin.net
-jack-writes.tumblr.com
 jack.allday.com
 jack.beautyspaguide.com
 jack.jrxproduction.com
@@ -2644,14 +2574,12 @@ jack3617.blogspot.sn
 jack3617.blogspot.tw
 jack3617.blogspot.ug
 jack3d.net
-jack3dick85.tumblr.com
 jack3dreview.com
 jack4.com
 jack420.com
 jack4daniel.com
 jack4flash.no-ip.org
 jack4jack.com
-jack4none.tumblr.com
 jack4ushouse.com
 jack54.canalblog.com
 jack762.info
@@ -2669,7 +2597,6 @@ jackadi.com
 jackadmit.info
 jackagree.info
 jackaholic.com
-jackaholicxxx.tumblr.com
 jackahuahua.com
 jackai.com
 jackaizik.com
@@ -2694,7 +2621,6 @@ jackalopemusic.com
 jackaloperealestate.com
 jackalopes.org
 jackalopespaceindustries.com
-jackalopexx.tumblr.com
 jackalpack.com
 jackalpartners.co.uk
 jackals.com
@@ -2705,7 +2631,6 @@ jackamatic.com
 jackamonclersweden.com
 jackamoroso.com
 jackanal.com
-jackandallison2.tumblr.com
 jackandbetty.com
 jackanddonna2015.com
 jackandhill.typepad.com
@@ -2800,7 +2725,6 @@ jackandrewsis.blogspot.tw
 jackandrewsis.blogspot.ug
 jackandruby.com
 jackandsean.com
-jackandshelley.tumblr.com
 jackandsherry.net
 jackandstella.com
 jackandsusie.com
@@ -2833,7 +2757,6 @@ jackass.com
 jackass.de
 jackass.net
 jackass.tv
-jackass55.tumblr.com
 jackassapps.com
 jackassblog.com
 jackassbroker.com
@@ -2851,7 +2774,6 @@ jackassgermany.com
 jackassgov.com
 jackassguys.mylivepage.ru
 jackasshole.com
-jackasshole22.tumblr.com
 jackassitaly.com
 jackassjokes.com
 jackasskids.com
@@ -2885,7 +2807,6 @@ jackazz.nl
 jackback.tk
 jackbacon.com
 jackbak.com
-jackbaker1994.tumblr.com
 jackbakerman.com
 jackbalderson.com
 jackballs.com
@@ -2895,24 +2816,19 @@ jackbarlow.com
 jackbarmby.com
 jackbarton.com
 jackbat.com
-jackbator.tumblr.com
 jackbauerfacts.com
 jackbauerle.com
 jackbaur57.no-ip.biz
 jackbaz.com
-jackbb26.tumblr.com
-jackbb27.tumblr.com
 jackbeach.com
 jackbeat.com
 jackbeats.com
 jackbee.com
-jackbeer77.tumblr.com
 jackbellamy.com
 jackbenedict.com
 jackbenimbleonline.com
 jackbertram.com
 jackbesick.com
-jackbettison35.tumblr.com
 jackbice.com
 jackbiddar.com
 jackbill.com
@@ -2946,7 +2862,6 @@ jackboxharddrive.com
 jackboxpimp.com
 jackboy7204.zapto.org
 jackboys.com
-jackbrent71.tumblr.com
 jackbritten.com
 jackbrolsma.com
 jackbrown.cl
@@ -2958,7 +2873,6 @@ jackburgner.com
 jackburnsitup.com
 jackburton.com
 jackburton.net
-jackburtonsays.tumblr.com
 jackbusharchitect.com
 jackbutters.com
 jackcables.com
@@ -3006,7 +2920,6 @@ jackcloths.com
 jackclub.com
 jackcola.com
 jackcollier.com
-jackcollinsm.tumblr.com
 jackcollinsrentals.com
 jackcome.com
 jackcompanies.com
@@ -3023,7 +2936,6 @@ jackcountycowboychurch.com
 jackcouponsandcards.com
 jackcph.com
 jackcrazy.com
-jackcredy1.tumblr.com
 jackcrisp.com
 jackcrooks.com
 jackcrow.com
@@ -3032,10 +2944,8 @@ jackcruickshank.net
 jackcurran.com
 jackcurry.com
 jackcy.com
-jackdaman118.tumblr.com
 jackdanielgrill.com
 jackdaniellounge.com
-jackdaniells.tumblr.com
 jackdanielounge.com
 jackdaniels.110mb.com
 jackdaniels.com
@@ -3067,7 +2977,6 @@ jackdevsite.com
 jackdiamonds.com
 jackdiana.com
 jackdick.com
-jackdick19.tumblr.com
 jackdillon.com
 jackdirect.com
 jackdive.com
@@ -3145,7 +3054,6 @@ jacken-herren.net
 jacken-shop24.de
 jackenbillig.com
 jackenbilligat.com
-jackencock.tumblr.com
 jackendamen.com
 jackende.com
 jackendeutschland.com
@@ -3154,7 +3062,6 @@ jackengunstiginberlin.com
 jackengunstigsale.com
 jackenherren.com
 jackenkaufenoutlet.com
-jackenman.tumblr.com
 jackenonline.com
 jackenonlinebillig.com
 jackenonlinenverkauf.de
@@ -3175,12 +3082,8 @@ jackenwinter.com
 jackeparajumpers.com
 jackeppel.co.uk
 jackerden.com
-jackerjohnson.tumblr.com
-jackerwhore.tumblr.com
 jackes-sale.com
 jackeshop.com
-jackessem.tumblr.com
-jacket--off.tumblr.com
 jacket-catch.com
 jacket-claim.com
 jacket-market.com
@@ -3209,8 +3112,6 @@ jacketforsale.com
 jacketforwomen.com
 jackethook.com
 jackethut.com
-jacketitallnight.tumblr.com
-jacketjack.tumblr.com
 jacketkingdom.net
 jacketmariahnegotiation.com
 jacketmonclercoatjp.org
@@ -3288,7 +3189,6 @@ jacketwrestling.com
 jacketyl.info
 jackevents.com
 jackeweste.com
-jackeylandhyde.tumblr.com
 jackfact.com
 jackfake984.ddns.net
 jackfalls.com
@@ -3325,8 +3225,6 @@ jackfrog.com
 jackfrost.jpmac.fanatik.ramin.carlinfan.com
 jackfrostbigboulder.com
 jackfruits.com
-jackfuckcum.tumblr.com
-jackfuckingpot.tumblr.com
 jackfull.com
 jackfurriercreditcard.com
 jackgallery.com
@@ -3338,7 +3236,6 @@ jackgass.com
 jackgate.com
 jackgerdes.net
 jackgift.com
-jackgilinskysmut.tumblr.com
 jackgirlz.com
 jackgivens.com
 jackgodwin.com
@@ -3351,12 +3248,10 @@ jackgreenhough.com
 jackgreeninsurance.com
 jackgriggs.com
 jackgrimes.com
-jackh9151.tumblr.com
 jackhaan.com
 jackhagan.com
 jackhair.ca
 jackhair.com
-jackhamma17.tumblr.com
 jackhammerbaseball.com
 jackhammerbreaks.homestead.com
 jackhammerclub.com
@@ -3368,11 +3263,9 @@ jackhammerz.com
 jackhanks.com
 jackhanlon.com
 jackhanville.com
-jackharder.tumblr.com
 jackharding.net
 jackhargis.com
 jackharlan.com
-jackharrerpics.tumblr.com
 jackhart.com
 jackhaworthcarpets.com
 jackhaynes.com
@@ -3395,8 +3288,6 @@ jackhillgraduateengineer.com
 jackhim.net
 jackhob.com
 jackhodgkiss.com
-jackhoffery.tumblr.com
-jackhoffposts.tumblr.com
 jackhogankarate.com
 jackholes.com
 jackholeshirt.com
@@ -3415,7 +3306,6 @@ jackhunt.com
 jackhurst.com
 jacki-personallyyours.com
 jackidea.com
-jackideviant.tumblr.com
 jackie-boettcher.us
 jackie-bonnette.us.org
 jackie-bowyer.us
@@ -3504,10 +3394,8 @@ jackiefischer.com
 jackieflowers.com
 jackiefood.com
 jackiefrost.com
-jackiefucher.tumblr.com
 jackiegandthreec.com
 jackiegardner.com
-jackiegleeson.tumblr.com
 jackiegold.com
 jackiegonzalez.com
 jackiegray.com
@@ -3557,7 +3445,6 @@ jackiemoore.info
 jackiemoore.org
 jackiemooresex.info
 jackiemotors.com
-jackiemsdeep.tumblr.com
 jackiemurray.com
 jackienathan.com
 jackienejaime.com
@@ -3568,7 +3455,6 @@ jackieosells.com
 jackiepapandrew.com
 jackiepearl.com
 jackiepena.com
-jackieperinet06.tumblr.com
 jackiephillipsflowers.com
 jackiepho.com
 jackieplage.com
@@ -3665,13 +3551,6 @@ jackiesdepravedthoughts.blogspot.sn
 jackiesdepravedthoughts.blogspot.tw
 jackiesdepravedthoughts.blogspot.ug
 jackiesdrivingschool.com
-jackieseroticassfuckingdreams.tumblr.com
-jackieseroticbdsmdreams.tumblr.com
-jackieseroticcocksuckingdream.tumblr.com
-jackieseroticlesbiandream.tumblr.com
-jackieseroticsissydreams.tumblr.com
-jackieseroticstrapondreams.tumblr.com
-jackieserotictransexualdreams.tumblr.com
 jackiesexy.com
 jackiesfashion.com
 jackiesflowers.com
@@ -3680,7 +3559,6 @@ jackiesglass.com
 jackieshair.com
 jackieshen.net
 jackieshouse.com
-jackiesilkygurl.tumblr.com
 jackiesimmonds.co.uk
 jackiesjewelryandbridal.com
 jackiesjewels.com
@@ -3711,44 +3589,30 @@ jackiewang.com
 jackiewebb.com
 jackiewilliamson.com
 jackiewillis.com
-jackiexxx26.tumblr.com
 jackieyoung.net
 jackiezimmerman.com
 jackiisabelita.com
 jackijaclin.ru
 jackill07.biz
-jackilovexxx.tumblr.com
 jackimoreen.in
 jackimos.com
-jackin-the-beanstalk.tumblr.com
 jackincandy.com
 jackinchat.com
 jacking-off.com
 jacking.org
-jackingandjillingoffworld.tumblr.com
 jackingaround.net
 jackingatwork.com
-jackingforjizzus.tumblr.com
 jackingin.com
-jackinginsf.tumblr.com
 jackingjack.com
 jackingjill.com
-jackingnow.tumblr.com
 jackingoff.com
 jackingoffatwork.com
 jackingteens.com
 jackingtins.press
-jackingymboy.tumblr.com
-jackinit147.tumblr.com
 jackinitiative.com
-jackinjosh65.tumblr.com
-jackinlakeview.tumblr.com
-jackinnow.tumblr.com
 jackinsearch.com
 jackintech.com
 jackinthebeanstalk.com
-jackinthedesert.tumblr.com
-jackinthejock-deactivated201404.tumblr.com
 jackintheoffice.co.uk
 jackinthepack.com
 jackinworld.com
@@ -3766,7 +3630,6 @@ jackjackass.com
 jackjackman.com
 jackjackr.com
 jackjacks.com
-jackjackyocock.tumblr.com
 jackjam.com
 jackjaya.id
 jackjdhfj.space
@@ -3775,7 +3638,6 @@ jackjester.com
 jackjimandjose.com
 jackjive.com
 jackjob.com
-jackjohk.tumblr.com
 jackjohnny.com
 jackjohnson.net
 jackjohnsonfilm.com
@@ -3785,10 +3647,8 @@ jackjoint.com
 jackjoker.com
 jackjones.com
 jackjorgensen.com
-jackjsbae.tumblr.com
 jackjumper.com
 jackjumps.com
-jackk777.tumblr.com
 jackkahan.com
 jackkane.com
 jackkavanaghtrust.com
@@ -3921,7 +3781,6 @@ jacklim.com
 jacklindberg.com
 jacklindgren.com
 jacklive.com
-jackljj.tumblr.com
 jacklocker.com
 jacklofton.com
 jacklogistics.com
@@ -3929,7 +3788,6 @@ jacklondoninn.com
 jacklondons.net
 jacklondonsquare.com
 jacklott.com
-jacklovesanal.tumblr.com
 jacklovesjill.com
 jackluby.com
 jacklucky81.hopto.org
@@ -3991,7 +3849,6 @@ jackmarks.com
 jackmarproperties.com
 jackmartin.com
 jackmartininsurance.net
-jackmaster67.tumblr.com
 jackmasters.net
 jackmasterson.com
 jackmayers.com
@@ -4009,7 +3866,6 @@ jackmctamney.com
 jackme.com
 jackmeades.com
 jackmehof.com
-jackmemaybe.tumblr.com
 jackmeme.com
 jackmen.com
 jackmeoff.com
@@ -4017,7 +3873,6 @@ jackmeoff.net
 jackmerwin.com
 jackmichael.com
 jackmillers.com
-jackmillor.tumblr.com
 jackmind.com
 jackminer.com
 jackmint.com
@@ -4029,7 +3884,6 @@ jackmoff.com
 jackmoney.com
 jackmoody.com
 jackmoodyphotography.com
-jackmooreblog.tumblr.com
 jackmore.com
 jackmoreno.com
 jackmorgan.net
@@ -4053,11 +3907,7 @@ jackmurphy.com
 jackmurphystadium.com
 jackmusic.dk
 jackmussett.com
-jackmybaby.tumblr.com
-jackmybutthole.tumblr.com
-jackmycock69.tumblr.com
 jackmyhog.com
-jacknbro.tumblr.com
 jacknealonspub.com
 jackneedham.com
 jackneer.com
@@ -4065,18 +3915,14 @@ jacknegotiates.com
 jackneill.com
 jacknelson.com
 jacknet.com
-jacknherbox.tumblr.com
 jacknicholsonlife.com
 jacknicklausgolfcourses.com
 jacknight.com
-jacknipple.tumblr.com
 jacknjen-baby.com
 jacknjenny.com
-jacknjill2616.tumblr.com
 jacknjilljewels.com
 jacknjills.com
 jacknjilltoys.com
-jacknjoy.tumblr.com
 jacknmydick.com
 jacknoff.com
 jacknoffshirts.com
@@ -4171,10 +4017,8 @@ jackoff.com
 jackoff.tv
 jackoff.xyz
 jackoff101.com
-jackoff247.tumblr.com
 jackoffboys.com
 jackoffboys.de
-jackoffbud.tumblr.com
 jackoffcam.com
 jackoffcentral.com
 jackoffclub.net
@@ -4186,10 +4030,8 @@ jackoffhub.com
 jackoffinlingerie.com
 jackoffinpanties.com
 jackoffinstruction.com
-jackoffinstructions.tumblr.com
 jackoffjacks.com
 jackoffjunkie.com
-jackoffjunkie.tumblr.com
 jackoffmaterial.com
 jackoffmaterial2.blogspot.ae
 jackoffmaterial2.blogspot.al
@@ -4395,19 +4237,15 @@ jackoffonyourfeet.blogspot.tw
 jackoffonyourfeet.blogspot.ug
 jackoffpayperview.com
 jackoffpics.com
-jackoffpill.tumblr.com
 jackoffpix.com
 jackoffprick.com
 jackoffs.com
 jackoffshorties.com
 jackoffson.com
 jackoffstation.com
-jackoffstuff.tumblr.com
 jackoffsuit.com
 jackofftime.com
 jackofftome.com
-jackofftomywife.tumblr.com
-jackofftoo.tumblr.com
 jackofftoporn.com
 jackofftv.com
 jackoffvideo.com
@@ -4417,17 +4255,12 @@ jackofodds.com
 jackofravens.com
 jackofskills.com
 jackofspades.net
-jackofspadesboy.tumblr.com
-jackofspadesohio.tumblr.com
-jackofspadesxiii.tumblr.com
 jackohm.com
 jackohman.com
 jackoillee.com
 jackokoles.com
 jackolan.com
 jackolantern.net
-jackolanternbunny-deactivated20.tumblr.com
-jackolanternbunny.tumblr.com
 jackolanternpatterns.com
 jackolanternresort.com
 jackolivier.com
@@ -4579,7 +4412,6 @@ jackosman2.blogspot.sk
 jackosman2.blogspot.sn
 jackosman2.blogspot.tw
 jackosman2.blogspot.ug
-jackospadesxxx.tumblr.com
 jackosports.com
 jackosworld.com
 jackot.net
@@ -4604,7 +4436,6 @@ jackparty.com
 jackpass.com
 jackpearl.com
 jackpearls.com
-jackperv.tumblr.com
 jackpettrey.com
 jackpho.com
 jackphotography.com
@@ -4712,7 +4543,6 @@ jackpot.pbphgwbr.in
 jackpot007.com
 jackpot2go.com
 jackpot411.com
-jackpot4u.tumblr.com
 jackpot4win.com
 jackpot777-game.net
 jackpot777game.ru
@@ -4931,7 +4761,6 @@ jackpotxr.com
 jackpoty.com
 jackpotzilla.com
 jackpowerjuicer.com
-jackpowerx.tumblr.com
 jackpoyner.com
 jackpreet.myblogtoolbar.com
 jackprendergast.com
@@ -5006,7 +4835,6 @@ jackrussellterriersrule.com
 jackruth.com
 jackrutherford.com
 jackruthrfurd.com
-jackryan1123.tumblr.com
 jackryanxxx.com
 jacks-amateurs.com
 jacks-bookmark.com
@@ -5041,13 +4869,11 @@ jacksbeanstalk.com
 jacksbight.com
 jacksbit.com
 jacksbjlessons.com
-jacksblog13.tumblr.com
 jacksblowjoblessons.com
 jacksblowjoblessons.us2.list-manage2.com
 jacksbluesshack.com
 jacksbodyshop.com
 jacksborochurch.com
-jacksboys.tumblr.com
 jacksbrasserie.co.uk
 jacksbridal.com
 jacksbrush.com
@@ -5161,13 +4987,11 @@ jacksellars.com
 jacksellors.com
 jacksemail.com
 jacksenweb.com
-jacksepticeye-confesssions.tumblr.com
 jackservice.com
 jacksex.com
 jacksf.com
 jacksfamily.com
 jacksfavoriteporn.com
-jacksfavos.tumblr.com
 jacksfetish.com
 jacksfetishtube.com
 jacksfloodlight.com
@@ -5194,12 +5018,9 @@ jackshire.com
 jackshotel.com
 jackshoverboards.com
 jacksicecream.com
-jacksiejohn.tumblr.com
 jacksimple.com
 jacksinclair.com
-jacksing-off.tumblr.com
 jacksinnott.com
-jacksinraw.tumblr.com
 jacksinserts.com
 jacksinsertsandcoupons.com
 jacksinternational.com
@@ -5214,7 +5035,6 @@ jacksjotty.com
 jacksjournal.com
 jacksjuice.com
 jackskaggs.com
-jackskindahere.tumblr.com
 jackskinner.com
 jackskins.com
 jackslade.com
@@ -5223,7 +5043,6 @@ jackslashdaniel.com
 jackslawncare.com
 jackslogcabin.com
 jackslounge.com
-jackslumper.tumblr.com
 jacksmack.com
 jacksmagic.com
 jacksmagicbeanstalk.com
@@ -5233,12 +5052,10 @@ jacksmattress.com
 jacksmedia.com
 jacksmiles.com
 jacksmith.com
-jacksmith169.tumblr.com
 jacksmithformayor.com
 jacksmusicshoppe.com
 jacksnack.com
 jacksnell.com
-jacksnewdick.tumblr.com
 jacksnudebar.com
 jacksocks.com
 jacksoft.biz
@@ -5255,7 +5072,6 @@ jackson-ky.com
 jackson-mich.org
 jackson-photo.com
 jackson-rip.007webs.com
-jackson-sc.gov
 jackson-songs.com
 jackson-sports.com
 jackson-square.com
@@ -5267,8 +5083,6 @@ jackson.cc.mi.us
 jackson.com.sg
 jackson.org
 jackson.su
-jackson00.tumblr.com
-jackson208.tumblr.com
 jackson39211.com
 jackson443.com
 jackson58-09.com
@@ -5307,7 +5121,6 @@ jacksonbibleonline.com
 jacksonbiblestudents.com
 jacksonbiz.com
 jacksonblake.com
-jacksonblue212.tumblr.com
 jacksonbookexchange.com
 jacksonbooks.com
 jacksonbootcamp.com
@@ -5351,11 +5164,9 @@ jacksonclan.com
 jacksoncloudsupport.com
 jacksoncloudtech.com
 jacksonco.com
-jacksoncoga.gov
 jacksoncoindiana.com
 jacksoncompany.com
 jacksoncountry.com
-jacksoncounty-il.gov
 jacksoncountybank.com
 jacksoncountychristian.com
 jacksoncountydemocrats.com
@@ -5716,7 +5527,6 @@ jacksonmotorcycles.com
 jacksonmountain.com
 jacksonmoutainhomes.com
 jacksonmoxc.com
-jacksonms.gov
 jacksonmugshots.com
 jacksonmurdock.com
 jacksonmusic.co.uk
@@ -5726,7 +5536,6 @@ jacksonmusicforum.com
 jacksonn.com
 jacksonnazarenechurch.com
 jacksonnews.com
-jacksonnude.tumblr.com
 jacksonnunes.com
 jacksonnurse.com
 jacksonobamacare.com
@@ -5734,7 +5543,6 @@ jacksonoliveira.com
 jacksononbroadway.com
 jacksononline.com
 jacksonpack.com
-jacksonpackguns.tumblr.com
 jacksonpain.com
 jacksonparkbarandgrill.com
 jacksonparkchurch.com
@@ -5763,7 +5571,6 @@ jacksonproject.com
 jacksonpromotions.com
 jacksonpsychologists.com
 jacksonpublishing.com
-jacksonrancheria-nsn.gov
 jacksonrecords.com
 jacksonrecycle.com
 jacksonretail.com
@@ -5774,7 +5581,6 @@ jacksonridgechurch.com
 jacksonroad.com
 jacksonrobinson.com
 jacksonross.com
-jacksonrufus.tumblr.com
 jacksonrun.com
 jacksons-fencing.co.uk
 jacksons-insurance.co.uk
@@ -5814,7 +5620,6 @@ jacksonsrareguitars.com
 jacksonsrestaurant.com.au
 jacksonsroofing.com
 jacksonsshop.com
-jacksonstatham.tumblr.com
 jacksonstore.com
 jacksonstravels.com
 jacksonstreetchurch.com
@@ -5844,14 +5649,12 @@ jacksontncvb.com
 jacksontnhotels.com
 jacksontnjobs.com
 jacksontownhouse.com.au
-jacksontownship-pa.gov
 jacksontrail.com
 jacksontrailchristian.com
 jacksontrailchristianschool.com
 jacksontrainingcenter.com
 jacksontreeremoval.com
 jacksontrust.com
-jacksontwp-pa.gov
 jacksontyler.com
 jacksonunderworld.com
 jacksonunlimited.com
@@ -6040,7 +5843,6 @@ jacksonvillemortgagebroker.com
 jacksonvillemortuary.com
 jacksonvillemugshots.com
 jacksonvillenationalcemetery.com
-jacksonvillenc.gov
 jacksonvillencfurniture.com
 jacksonvillenchomes28546.net
 jacksonvillenight.com
@@ -6129,7 +5931,6 @@ jacksonwedding.com
 jacksonwhole.com
 jacksonwi.com
 jacksonwire.com
-jacksonwolfexxx.tumblr.com
 jacksonwolff.com
 jacksonwright.com
 jacksonwy.com
@@ -6214,8 +6015,6 @@ jacksplayground.com
 jackspolicegarage.com
 jackspools.com
 jacksporn.com
-jackspornblog-deactivated201408.tumblr.com
-jackspornblog.tumblr.com
 jackspornstars.com
 jacksprague.com
 jacksproduce.com
@@ -6262,12 +6061,10 @@ jackstown.com
 jackstoys.com
 jackstracks.com
 jackstravel.com
-jackstraw-89.tumblr.com
 jackstreasure.com
 jackstrees.com
 jackstroke.com
 jackstroker.com
-jackstroker.tumblr.com
 jackstuart.info
 jackstuartxxx.com
 jackstudio.com
@@ -6303,19 +6100,15 @@ jacktechnologies.com
 jackteller.com
 jacktemple.com
 jacktest.com
-jacktheadult.tumblr.com
-jacktheangelofaeons.tumblr.com
 jackthecreditslayer.com
 jackthecreeper.com
 jacktheflash.net
 jackthefuckenripper.com
 jackthefucker.com
 jackthefuckingripper.com
-jackthegaydog.tumblr.com
 jackthehacker.com
 jacktheladfilms.com
 jackthelass.co.uk
-jackthepackage.tumblr.com
 jackthepainter.com
 jackthepainter.net
 jacktheplumber.com
@@ -6348,17 +6141,13 @@ jacktraps.com
 jacktravers.com
 jacktrc.us
 jacktrip.com
-jacktripper018.tumblr.com
 jacktroy.com
 jacktuba.com
 jacktuff.com
 jacktv.ru
 jacktweed.com
-jacktwister.tumblr.com
 jackumentary.com
 jackumentary.net
-jackuncut.tumblr.com
-jackuoffnow.tumblr.com
 jackuprig.com
 jackusa.com
 jackvandean.com
@@ -6411,7 +6200,6 @@ jackwiltshire.com
 jackwines.com
 jackwinston.com
 jackwipes.com
-jackwithmyleft.tumblr.com
 jackwknight.com
 jackwlee.com
 jackwolfskin-online.com
@@ -6427,9 +6215,6 @@ jackwow.com
 jackwren.com
 jackx.com
 jackxxx.com
-jackxxx.tumblr.com
-jackxxxbara.tumblr.com
-jacky-c.tumblr.com
 jacky-line.de
 jacky-location.com
 jacky-shop.msk.ru
@@ -6437,7 +6222,6 @@ jacky-smtp.com
 jacky-teeniefactory.de
 jacky.co.kr
 jacky.et.fendi.free.fr
-jacky128.tumblr.com
 jacky14.com
 jackyang.com
 jackyblog.com
@@ -6534,7 +6318,6 @@ jackysan.com
 jackysapphirethecat.com
 jackyshow.com
 jackyson.dyndns.info
-jackystjames.tumblr.com
 jackyswear.nl
 jackyswelt.de
 jackytouch.com
@@ -6652,7 +6435,6 @@ jaclynbabara.in
 jaclyncaseporn.info
 jaclynco.com
 jaclyncsmithsphotographyllc.com
-jaclynjoyce13.tumblr.com
 jaclynlee.com
 jaclynmae.com
 jaclynmichel.com
@@ -6684,7 +6466,6 @@ jaco.box.sk
 jaco.nmi.no
 jacoachbag-jpbuy.com
 jacoachbagsale.com
-jacob-721.tumblr.com
 jacob-and-lauren.com
 jacob-arabians.de
 jacob-brown.com
@@ -6696,7 +6477,6 @@ jacob-group.com
 jacob-meindert.de
 jacob-naumann-gbr.com
 jacob-rohrbach-inn.com
-jacob-smutsides.tumblr.com
 jacob.aa978.com
 jacob.disam.etsii.upm.es
 jacob.finke.ws
@@ -6735,7 +6515,6 @@ jacobbuxton.com
 jacobcalvinsimmons.com
 jacobcap.com
 jacobcars.com
-jacobcastellanos.tumblr.com
 jacobchambers.com
 jacobchan.com
 jacobchapelbaptistchurch.com
@@ -6757,7 +6536,6 @@ jacobcuff.com
 jacobcummings.com
 jacobdaddy.com
 jacobdaly.com
-jacobdark19.tumblr.com
 jacobdecroce.com
 jacobdenobel.com
 jacobdesign.com
@@ -6778,9 +6556,7 @@ jacobeo.net
 jacobeo2021.com
 jacobephrem.com
 jacobephrem.in
-jacobey-nash.tumblr.com
 jacobfair.com
-jacobflings.tumblr.com
 jacobforman.com
 jacobfoundation.com
 jacobfrancis.com
@@ -6807,11 +6583,9 @@ jacobhjelm.com
 jacobhobbs.com
 jacobholman.com
 jacobholt.com
-jacobhotgayreblogs.tumblr.com
 jacobhouse.com
 jacobhoward.com
 jacobhuff.com
-jacobhunterxxx.tumblr.com
 jacobi-richter.de
 jacobia.com
 jacobiindustries.com
@@ -6870,7 +6644,6 @@ jacobmcnulty.com
 jacobmeggers.com
 jacobmelrosefishing.com
 jacobmileta.com
-jacobmilkgay.tumblr.com
 jacobmobley.com
 jacobmoreno.com
 jacobmorrin.com
@@ -7073,7 +6846,6 @@ jacobxx.org.uk
 jacobxxx.co.uk
 jacobxxx.me.uk
 jacobxxx.org.uk
-jacobxxxcarr.tumblr.com
 jacobyassociates.com
 jacobygc.com
 jacobyhouse.com
@@ -7096,7 +6868,6 @@ jacofitness.com
 jacoform.ch
 jacoform.com
 jacoformschuhe.ch
-jacofrance.tumblr.com
 jacoh.googlevideo.com
 jacohills.com
 jacoi.googlevideo.com
@@ -7113,7 +6884,6 @@ jacome.com
 jacomeplaza.com
 jacometti.com
 jacomfg.com
-jacomo-xxx-com.tumblr.com
 jacomo-xxx.com
 jacomputer.com
 jacomputer.dk
@@ -7301,7 +7071,6 @@ jacquelinesiven.com
 jacquelinesjourneys.com
 jacquelinesplace.com
 jacquelinestein.com
-jacquelinesuicide.tumblr.com
 jacquelinesummersporn.info
 jacquelinesung.com
 jacquelinet.com
@@ -7451,7 +7220,6 @@ jacquesphilippe.com
 jacquespot.com
 jacquesrichard.com
 jacquessmith.com
-jacquesthing.tumblr.com
 jacquestrappe.com
 jacquestrifin.be
 jacquesturpin.tammyrothschild.oddu.perkins.carmine
@@ -7503,10 +7271,8 @@ jacquieetmichel.free.fr
 jacquieetmichel.info
 jacquieetmichel.net
 jacquieetmichel.org
-jacquieetmichel.tumblr.com
 jacquieetmichelblog.com
 jacquieetmichelcontact.net
-jacquieetmichelcontact.tumblr.com
 jacquieetmichelelite.com
 jacquieetmichelgay.net
 jacquieetmichelstore.com
@@ -7563,7 +7329,6 @@ jacs.net
 jacsasians.com
 jacsh.com
 jacshuman.com
-jacsi.tumblr.com
 jacsinc.com
 jacspin.com
 jacsspiralslicers.com
@@ -7588,13 +7353,11 @@ jacu.com
 jacuadpu1403.demdex.net
 jacub.googlevideo.com
 jacubesa.blog.com
-jacubianboi.tumblr.com
 jacubsworld.com
 jacuh.googlevideo.com
 jacuizzi.com
 jacula.co.kr
 jaculating.p4vjwgwgevnmyl.biobing.download
-jaculation-cumshot-gifs.tumblr.com
 jaculus.com
 jacumbaartscouncil.com
 jacumbaspa.com
@@ -7639,7 +7402,6 @@ jacwi.googlevideo.com
 jacwk.googlevideo.com
 jacwy.googlevideo.com
 jacwza.com
-jacxxxb.tumblr.com
 jacyandfriends.com
 jacyandrewsporn.info
 jacyjavohu.info
@@ -7661,17 +7423,14 @@ jad.fisbonline.com
 jad.ks.ua
 jad.rcyqqau.hardbig.ru
 jad3.ru
-jada-stevens-hdpornvideos.tumblr.com
 jada.ada.org
 jada.net
 jadaanitabird.ru
 jadaarabians.com
 jadaav.com
-jadababe3.tumblr.com
 jadabangcock.com
 jadabarbey.in
 jadabetta.com
-jadablack1985.tumblr.com
 jadabrown.com
 jadacub.net
 jadad.com
@@ -7761,7 +7520,6 @@ jadajuggs.com
 jadakelly.com
 jadamail.com
 jadamic.com
-jadams07.tumblr.com
 jadan.co.nz
 jadandesign.com
 jadani.com
@@ -7777,19 +7535,15 @@ jadasiabengals.com
 jadason.com
 jadastevens.info
 jadastevenslove.com
-jadastevensxxx.tumblr.com
 jadastyle.com
 jadasutton.com
-jadatorrid.tumblr.com
 jadav.com
 jadavey.com
 jadavpur.com
-jadavpur.edu
 jadaweb.com
 jadawil.com
 jadax.com
 jaday.com
-jadaynluv.tumblr.com
 jadcc00z.beget.tech
 jadcc19a.beget.tech
 jadcc1k7.beget.tech
@@ -7807,7 +7561,6 @@ jadds.com
 jaddx.bid
 jade-69.com
 jade-acuff.us
-jade-aspen-p720p.tumblr.com
 jade-aultman.us
 jade-authement.us
 jade-beeman.us
@@ -7817,12 +7570,10 @@ jade-croucher.com
 jade-escorte-paris.diblogotus.com
 jade-escorte.com
 jade-fielden.us
-jade-fire-pornstar.tumblr.com
 jade-gals.com
 jade-garden.com.tw
 jade-hatchell.us
 jade-hillyer.us
-jade-hsu-hdsex.tumblr.com
 jade-hsu.net
 jade-hsu.org
 jade-kenny.in
@@ -7833,7 +7584,6 @@ jade-marcela.alt-porn-stars.com
 jade-marcella.com
 jade-mcglothlin.us
 jade-meighan.us
-jade-nacole-pornstar.tumblr.com
 jade-natasha-sexy-shop.over-blog.com
 jade-net.com
 jade-nue.com
@@ -7873,7 +7623,6 @@ jade1o.com
 jade1x2.com
 jade22.com
 jade38h.com
-jade4exa.tumblr.com
 jade4php.com
 jade4u-inc.com
 jade4u.net
@@ -7883,7 +7632,6 @@ jadeair.co.uk
 jadeakitas.com
 jadeall.com
 jadealliance.com
-jadeallthetime.tumblr.com
 jadeamalita.com
 jadeamber.com
 jadeamelia.com
@@ -7961,7 +7709,6 @@ jadedbomb.com
 jadedchristian.com
 jadedclaw.8m.com
 jadedcrow.com
-jadedcumslut.tumblr.com
 jadedeal.com
 jadededeaux.com
 jadedeleon.com
@@ -7984,7 +7731,6 @@ jadedman.com
 jadedmedia.com
 jadedmercury.com
 jadedminx.com
-jadednurse.tumblr.com
 jadedomain.com
 jadedondemand.com
 jadedoptimist.com
@@ -7994,7 +7740,6 @@ jadedrachen.com
 jadedragon.com
 jadedragonchineserestaurant.com
 jadedragonsnowmountain.com
-jadedrhiannon.tumblr.com
 jadedri.us
 jadedscents.com
 jadedstar.com
@@ -8037,7 +7782,6 @@ jadefoundation.com
 jadefoxx.com
 jadefrench.com
 jadefromburma.com
-jadefxckingdaddy.tumblr.com
 jadefyre.com
 jadegame.com
 jadegames.com
@@ -8048,7 +7792,6 @@ jadegen.com
 jadegiftinc.com
 jadegifts.com
 jadegirard.com
-jadegreenmodel.tumblr.com
 jadeguitars.com
 jadehairstyle.com
 jadehandmade.com
@@ -8076,14 +7819,11 @@ jadeinfo.com
 jadeinn.com
 jadeinwanderlust.com
 jadeismusic.com
-jadeissoakingwet.tumblr.com
 jadeiteking.com
 jadeitependants.mainstreet.us
 jadeitite.com
 jadej49.free.fr
 jadejadore.com
-jadejantzenhdvideos.tumblr.com
-jadejayden.tumblr.com
 jadejurgensen.blogspot.ae
 jadejurgensen.blogspot.al
 jadejurgensen.blogspot.am
@@ -8248,9 +7988,7 @@ jadelman.com
 jadelodge.com
 jadelotushealing.com
 jadelove.com
-jadeloveporn.tumblr.com
 jadeloves.com
-jadelovexxx12.tumblr.com
 jadeltrans.com
 jadeltransportation.com
 jadema.com.py
@@ -8287,7 +8025,6 @@ jadene.com
 jadenenfrtrnehol.jutagereolajic.com
 jadenevents.com
 jadenexus.com
-jadengay22-blog.tumblr.com
 jadenjvickers.com
 jadenlanzone.com
 jadenrayne.com
@@ -8307,9 +8044,7 @@ jadeonline.com
 jadeoos.us
 jadeor.com
 jadeos.com
-jadeossian.tumblr.com
 jadeouc.us
-jadepalaceofporn.tumblr.com
 jadeparis.com
 jadepath.com
 jadepearls.com
@@ -8409,7 +8144,6 @@ jadergeneroso.com.br
 jadermarques.com
 jaderobinson.com
 jaderockshop.com
-jaderoom.tumblr.com
 jaderopladf.tk
 jadeross.com
 jaderousseau.com
@@ -8454,7 +8188,6 @@ jadesmiths.com
 jadesnails.com
 jadesnudecelebrities.com
 jadesnudecelebrityarchive.com
-jadesocakey.tumblr.com
 jadesol.com
 jadesola.org
 jadespa.com
@@ -8475,11 +8208,9 @@ jadessecret.net
 jadestand.com
 jadestar.net
 jadestarr.com
-jadestarrofficial.tumblr.com
 jadestatue.com
 jadestclair.com
 jadestephen.com
-jadester2013.tumblr.com
 jadesterlingphotography.com
 jadestern.de
 jadestoner.com
@@ -8608,7 +8339,6 @@ jadeyonline.nl
 jadeyoung.com
 jadeywadey.com
 jadeywadey180.com
-jadeyxxme.tumblr.com
 jadeyya.us
 jadezaharoff.com
 jadezhang.com
@@ -8698,7 +8428,6 @@ jadorelamode.com
 jadorelesexe.com
 jadorelesexe.i-gloo.net
 jadorelesgrossesbites.i-gloo.net
-jadorelesmatures.tumblr.com
 jadorelespotins.com
 jadorerose.com
 jadorestelle.com
@@ -8773,17 +8502,11 @@ jadyns.com
 jadyss.net
 jadzc.com
 jadzewski.de
-jae-boi.tumblr.com
-jae-gayguy.tumblr.com
-jae-otic-sexual.tumblr.com
 jae.can.com
 jae.cc
 jae.fiato.lfmtt.plait.raven-ridge.com
 jae1.net
-jae1313.tumblr.com
-jae17bottom.tumblr.com
 jae1swissgirls.com
-jae59.tumblr.com
 jaeacvcyftdeasg.co.uk
 jaeaj.googlevideo.com
 jaeam.googlevideo.com
@@ -8808,7 +8531,6 @@ jaecker.com
 jaeckin.com
 jaecks.com
 jaeconsulting.com
-jaecthesnake.tumblr.com
 jaedad.net
 jaedasfineart.com
 jaedc.googlevideo.com
@@ -8817,7 +8539,6 @@ jaedf.googlevideo.com
 jaedh.googlevideo.com
 jaedin.com
 jaedinclark.com
-jaedinero.tumblr.com
 jaedixonmusic.com
 jaedk.googlevideo.com
 jaedn.googlevideo.com
@@ -8834,7 +8555,6 @@ jaeexeejwc.ws
 jaefletchpurplemoongallery.com
 jaegaebal.com
 jaegd.googlevideo.com
-jaeger-eren33.tumblr.com
 jaeger-haas.de
 jaeger-hannover.de
 jaeger-jungschuetzen.de
@@ -8845,8 +8565,6 @@ jaegeraguas.com.br
 jaegerandblankner.com
 jaegerbakken.com
 jaegerbogen.de
-jaegerdog.tumblr.com
-jaegereska.tumblr.com
 jaegerfamily.com
 jaegerforbundet.dk
 jaegerhaus.com
@@ -8862,7 +8580,6 @@ jaegermann.com
 jaegerndorfer.com
 jaegerne-aarhus.dk
 jaegerneregion4.dk
-jaegerpenguin.tumblr.com
 jaegerracing.de
 jaegers.com
 jaegersberg.com
@@ -8932,11 +8649,9 @@ jaelwye.com
 jaelyn.amina.wollomail.top
 jaelynfox.net
 jaelynns.ecrater.com
-jaemaicanmooves.tumblr.com
 jaemajette.com
 jaeman800.kro.kr
 jaemc.googlevideo.com
-jaeme.tumblr.com
 jaemf.googlevideo.com
 jaemi.googlevideo.com
 jaemk.googlevideo.com
@@ -8980,7 +8695,6 @@ jaere.googlevideo.com
 jaere.no
 jaeren-musikkfestival.no
 jaerh.googlevideo.com
-jaeroze.tumblr.com
 jaerp.googlevideo.com
 jaers.googlevideo.com
 jaeru.googlevideo.com
@@ -9056,7 +8770,6 @@ jaescott.blogspot.sn
 jaescott.blogspot.tw
 jaescott.blogspot.ug
 jaesh0alhur.hopto.org
-jaeshaun25.tumblr.com
 jaeshin.com
 jaesostudio.com
 jaesupgght.net
@@ -9080,7 +8793,6 @@ jaeventos.com
 jaevents.com
 jaevmees.blog.com
 jaewjeuq.blog.com
-jaewolf50.tumblr.com
 jaewonlee.com
 jaewy7.phichfirstfoodie.com
 jaexa.googlevideo.com
@@ -9314,7 +9026,6 @@ jag.vmsn.de
 jag002.vibrantcompany.com
 jag01.jag.vmsn.de
 jag06.jag.vmsn.de
-jag1313.tumblr.com
 jaga.fm
 jagababa.com
 jagabaign.com
@@ -9530,7 +9241,6 @@ jagengines.com
 jagenheute.de
 jagenhouseholds.com
 jagequipment.com
-jager-papi.tumblr.com
 jager.co.uk
 jagerbar.ru
 jagerclan.com
@@ -9545,7 +9255,6 @@ jagermonsters.com
 jagerneyndorff.nl
 jagero.com
 jagerrabbitry.tripod.com
-jagersaurus-sex.tumblr.com
 jagershots.com
 jagerstadt.com
 jagertrading.com
@@ -9568,7 +9277,6 @@ jagfoundation.com
 jagfpumvif.com
 jagfuturemag.com
 jagg.com
-jagg35.tumblr.com
 jaggaauto.com
 jaggag.com
 jaggajatt.com
@@ -9578,7 +9286,6 @@ jaggardwilliam.000webhostapp.com
 jaggayyapet.com
 jagge.com
 jagged-arched.stream
-jagged-little-girl.tumblr.com
 jagged.com
 jaggedaesthetics.com
 jaggedb.com
@@ -9588,7 +9295,6 @@ jaggededgedance.com
 jaggededgemotorsport.com
 jaggededgesalon.com
 jaggedgranite.tk
-jaggedhal0.tumblr.com
 jaggedhorizon.com
 jaggedlyleadwet.info
 jaggedpath.com
@@ -9600,7 +9306,6 @@ jaggerbabuinreviews.company
 jaggerbush.com
 jaggercoin.com
 jaggermafia.com
-jaggermuse.tumblr.com
 jaggermyers.com
 jaggernaut-email.bid
 jaggernautemail.bid
@@ -9624,7 +9329,6 @@ jaggisworld.com
 jaggle.net
 jaggle.nl
 jaggles.com
-jaggmeister.tumblr.com
 jaggquaint.com
 jaggqwfjishalm.review
 jaggrants.com
@@ -9681,7 +9385,6 @@ jagjr.mp3advance.hop.clickbank.net
 jagjuice.com
 jagjungle.com
 jagka.googlevideo.com
-jagkcitybitch.tumblr.com
 jagkd.googlevideo.com
 jagkg.googlevideo.com
 jagkhurana.com
@@ -9814,7 +9517,6 @@ jagsweb.com
 jagszone.com
 jagt-lg.dk
 jagt.buch.adr.dk
-jagt2.tumblr.com
 jagtac.com
 jagteam.com
 jagtee.com
@@ -9862,7 +9564,6 @@ jaguar.it
 jaguar.no
 jaguar.ru
 jaguar.websitewelcome.com
-jaguar060704.tumblr.com
 jaguar19.ddns.net
 jaguar6.com
 jaguaracu.net
@@ -9901,7 +9602,6 @@ jaguaremdoslubu.com
 jaguarenthusiast.com
 jaguarepacespares.com
 jaguareparts.f9.co.uk
-jaguares1981.tumblr.com
 jaguarevent.com
 jaguarexperts.com
 jaguarfence.com
@@ -9917,7 +9617,6 @@ jaguarhockey.com
 jaguarholdings.com
 jaguarhome.com
 jaguariaiva.com
-jaguariaiva.pr.gov.br
 jaguaribe.com
 jaguaring.com
 jaguarinsider.com
@@ -10066,7 +9765,6 @@ jah.skateparkvr.com
 jah3.virtualave.net
 jah7b864rq.s.ad6media.fr
 jaha.com
-jaha753.tumblr.com
 jahadgaran.com
 jahadi.com
 jahaira.com
@@ -10316,7 +10014,6 @@ jahsocs.ddns.net
 jahson.com
 jahson.us
 jahsonic.com
-jahsonic.tumblr.com
 jahsr.googlevideo.com
 jahsresort.com
 jahsrhlp.com
@@ -10358,9 +10055,6 @@ jai-envi-de-sexe.com
 jai-faim.com
 jai-tech.com
 jai.rr.nu
-jai0.tumblr.com
-jai3030.tumblr.com
-jai773.tumblr.com
 jaiacademy.com
 jaiadvertising.com
 jaiai.com
@@ -10413,12 +10107,8 @@ jaidblue.com
 jaide.aivemindonesiamatters.net
 jaidefinichon.com
 jaidefinichon.info
-jaidefinichon.tumblr.com
-jaidefinichongg.tumblr.com
 jaidefox.com
-jaidelapeinedetenfaire.tumblr.com
 jaidenpower.com
-jaidenrivera26.tumblr.com
 jaidensaberin.com
 jaidesi.com
 jaidiggy.com
@@ -10478,7 +10168,6 @@ jaijaijai.com
 jaikb.googlevideo.com
 jaike.com
 jaiki.com
-jaiking.tumblr.com
 jaikisan.com
 jaikj.googlevideo.com
 jaikm.googlevideo.com
@@ -10490,7 +10179,6 @@ jaikumar.com
 jaikupp.com
 jaikwess.com
 jaikx.googlevideo.com
-jail-bait-lover.tumblr.com
 jail-break-ps3.blogspot.com
 jail-for-gianforte.com
 jail-hotties.serverlounge.com
@@ -10509,7 +10197,6 @@ jailbabes.com
 jailbackpackers.com
 jailbail.com
 jailbait-forum.com
-jailbait-sexy-selfie.tumblr.com
 jailbait-teens.net
 jailbait-videos.com
 jailbait.org
@@ -10519,7 +10206,6 @@ jailbaiter.com
 jailbaiters.com
 jailbaitfeet.com
 jailbaitgirl.com
-jailbaitgirlies.tumblr.com
 jailbaitgirls.org
 jailbaitinformation.com
 jailbaitjizz.com
@@ -10605,7 +10291,6 @@ jailc.us
 jailchannel.com
 jailcheney.com
 jailchurch.com
-jailcop.tumblr.com
 jailcostume.com
 jailcounty.com
 jailcraft.com
@@ -10691,7 +10376,6 @@ jaimacslicks.com
 jaimages.com
 jaimama.com
 jaimamma.com
-jaiman123.tumblr.com
 jaimaruthi.com
 jaimatadi.mycitytoolbar.com
 jaimcaul.blog.com
@@ -10741,7 +10425,6 @@ jaimeca.free.fr
 jaimeca.online.fr
 jaimecampo.com
 jaimecastro.pe
-jaimecd.tumblr.com
 jaimecooper.com
 jaimecoudre.com
 jaimecoudriet-loveyourbodyheartandsoul.com
@@ -10766,20 +10449,16 @@ jaimekurt.com
 jaimelabite.centerblog.net
 jaimelabite.com
 jaimelamaro.com
-jaimelapisse.tumblr.com
 jaimelaqueue.allmyblog.com
 jaimelee.com.au
 jaimeleluxe.com
 jaimeleporno.com
 jaimelesblack.com
-jaimelesexanal.tumblr.com
 jaimelesexe.centerblog.net
 jaimelesexe.centerblog.net.centerblog.net
 jaimelesexe.com
 jaimelesfilles.com
 jaimelesgrossespisseuse.centerblog.net
-jaimelesjolispieds.tumblr.com
-jaimelespieds.tumblr.com
 jaimelesrondesmoi.centerblog.net
 jaimelessextoys.com
 jaimelex.com
@@ -10815,9 +10494,7 @@ jaimepaslesgens.com
 jaimepellegrene.com
 jaimeperez.com
 jaimeperez.eu
-jaimepetite.tumblr.com
 jaimeplus.com
-jaimeporno.tumblr.com
 jaimepressley.net
 jaimepreston.com
 jaimeprice.com
@@ -10835,9 +10512,7 @@ jaimeryan.com
 jaimesabines.com
 jaimesantiesteban.rebecaharmony.com
 jaimesantos.com
-jaimesbigtits.tumblr.com
 jaimeschehr.net
-jaimesexe.tumblr.com
 jaimesmail.com
 jaimesocial.com
 jaimet.com
@@ -10848,7 +10523,6 @@ jaimethod.com
 jaimethod.org
 jaimethompson.com
 jaimetijerina.com
-jaimetroplecul.tumblr.com
 jaimetroplesexe.centerblog.net
 jaimetv.com
 jaimewalls.com
@@ -10899,7 +10573,6 @@ jainagencies.com
 jainamauto.com
 jainan.org
 jainanubhav.com
-jainaproudwhore.tumblr.com
 jainaud.us
 jaincarpet.com
 jaincenter.com
@@ -11080,7 +10753,6 @@ jairomarcos.com
 jairoregalado.com
 jairoriedewald.com
 jairosjourney.com
-jairov1986.tumblr.com
 jairr.us
 jairtejvkqiux.com
 jairtrejo.com
@@ -11096,17 +10768,14 @@ jaisen.com
 jaisharma.com
 jaishrikrishna.com
 jaising.com
-jaisins.tumblr.com
 jaisj.googlevideo.com
 jaism.googlevideo.com
 jaisnemn.com
 jaisoft.in
 jaisonlamarr.com
 jaisonpaschal.com
-jaisouthernpinup.tumblr.com
 jaisp.googlevideo.com
 jaist.ac.jp
-jaist.dl.sourceforge.net
 jaisum1998.ddns.net
 jaiswalfinancialservices.com
 jaiswar.com
@@ -11225,7 +10894,6 @@ jajim.googlevideo.com
 jajio.com
 jajip.googlevideo.com
 jajiseugi.com
-jajisi.tumblr.com
 jajiureweighed.review
 jajix.googlevideo.com
 jajiya444.com
@@ -11315,7 +10983,6 @@ jak11.narod.ru
 jak2.netfirms.com
 jak3-game.com
 jak3.netfirms.com
-jak3bear.tumblr.com
 jak5.com
 jak61.narod.ru
 jaka-patelnia.pl
@@ -11427,7 +11094,6 @@ jakbar.ppg.or.id
 jakbet.com
 jakbo.com
 jakbosch.com
-jakbro.tumblr.com
 jakby.com
 jakbydlet.cz
 jakbysrejoignent.pointguard.ventures
@@ -11436,7 +11102,6 @@ jakcom-ce.aliexpress.com
 jakcommerce.com
 jakconsulting.com
 jakcpoteffective.com
-jakcscs.tumblr.com
 jakde.com
 jakdo.com
 jakdojade.net
@@ -11449,7 +11114,6 @@ jake-johnson.net
 jake-newell-photo.com
 jake-newell-photography.com
 jake-ofalltrades.com
-jake-the-dog-666.tumblr.com
 jake-wolfskin.com
 jake-xxx-links.biz
 jake.bavin.us.kzpcmad.tk
@@ -11457,13 +11121,9 @@ jake.fr
 jake.henrylawnc.com
 jake.openly.com
 jake25.com
-jake2bb.tumblr.com
 jake361.com
 jake46a.com
-jake501.tumblr.com
 jakeadams.com
-jakeadams69.tumblr.com
-jakeadkins101.tumblr.com
 jakeadvisors.com
 jakeala.com
 jakealan.com
@@ -11495,7 +11155,6 @@ jakeat.picturetrades.com
 jakebakergroundtosaddle.com
 jakebarkerdesign.com
 jakebartels.com
-jakebassinmyass.tumblr.com
 jakebazluke.com
 jakebecker.com
 jakebecker.net
@@ -11504,15 +11163,12 @@ jakebennett.com
 jakebible.com
 jakebibler.com
 jakeblanchard.com
-jakeblaster.tumblr.com
 jakeblog.com
 jakebloomer.com
 jakeblues.com
 jakebogdan.com
 jakebook.com
 jakebooks.com
-jakebottom.tumblr.com
-jakebournexxx.tumblr.com
 jakeboyd.com
 jakebrandt.com
 jakebrunner.com
@@ -11583,11 +11239,9 @@ jakebullet.blogspot.sk
 jakebullet.blogspot.sn
 jakebullet.blogspot.tw
 jakebullet.blogspot.ug
-jakebullet2.tumblr.com
 jakebustsnuts.com
 jakebustsnuts.info
 jakebustsnuts.nl
-jakecali.tumblr.com
 jakecampbell.net
 jakecap.com
 jakecares.com
@@ -11605,11 +11259,9 @@ jakechurches.com
 jakechurchguitar.com
 jakechurchill.com
 jakechurchwell.com
-jakeclarkxxx.tumblr.com
 jakecloud.com
 jakecnewellphoto.com
 jakeco.com
-jakecohen95.tumblr.com
 jakecollins.com
 jakecollinsnewell.com
 jakecollinsnewellphoto.com
@@ -11620,13 +11272,10 @@ jakecruise.com
 jakecruisemedia.com
 jakecruisestore.com
 jaked.net
-jakedakotaxxx.tumblr.com
 jakedanforth.com
 jakedaniel.com
-jakedeckard.tumblr.com
 jakedecoy.com
 jakedecoys.com
-jakedepravity.tumblr.com
 jakedesantis.com
 jakedolan.com
 jakedoran.com
@@ -11713,19 +11362,15 @@ jakegrape.blogspot.tw
 jakegrape.blogspot.ug
 jakegrape.com
 jakehager.com
-jakehardman.tumblr.com
-jakehardtimes.tumblr.com
 jakehirn.com
 jakehome.com
 jakehooks.com
 jakehostetter.com
 jakehouse.com
-jakehowellxxx.tumblr.com
 jakehub.com
 jakehull.com
 jakeindigo.com
 jakeingles.com
-jakeinphx.tumblr.com
 jakeint64.com
 jakejace.com
 jakejacobson.ettiegrazia.com
@@ -11737,8 +11382,6 @@ jakekesler.com
 jakeketchum.com
 jakekey.gdn
 jakeknowles.com
-jakekornegay111.tumblr.com
-jakekvn.tumblr.com
 jakelake.com
 jakelatham.com
 jakelawsontalent.com
@@ -11746,14 +11389,11 @@ jakelawsontalent.net
 jakelester.com
 jakeline.com
 jakelive.com
-jakelondonuk.tumblr.com
 jakelonline.my
 jakeloo.com
 jakelowephoto.com
 jakelowry.com
 jakeludington.us.intellitxt.com
-jakem71.tumblr.com
-jakemaax.tumblr.com
 jakemadden.com
 jakemalone.com
 jakemaloneonline.com
@@ -11769,7 +11409,6 @@ jakemovie.com
 jakemovies.com
 jakemsilva.com
 jakemunoz.com
-jaken2476.tumblr.com
 jakenewellphoto.net
 jakenewellphotography.net
 jakenodar.com
@@ -11799,17 +11438,14 @@ jakeproductions.com
 jakeprout.com
 jaker.net
 jakera.com
-jakerandell5.tumblr.com
 jakerees.com
 jakerego.com
 jakereyes.com
 jakeriversphoto.com
 jakermusic.com
-jakerouski.tumblr.com
 jakers.com
 jakerwhite.com
 jakeryanwhite.com
-jakes-15.tumblr.com
 jakes-free-porn-pics.com
 jakes-free-porn.com
 jakes-wooden-toys-and-collectibles.com
@@ -11820,7 +11456,6 @@ jakesart.com
 jakesauditions.com
 jakesautoparts.com
 jakesawusch.com
-jakesbdsmclub.tumblr.com
 jakesbistro.com
 jakesbrew.com
 jakescaltreto.com
@@ -11840,7 +11475,6 @@ jakesdoghouse.com
 jakeseabrook.com
 jakesengineering.usa.cc
 jakesforgottenpast.com
-jakesgotporn.tumblr.com
 jakesguides.com
 jakeshelton.com
 jakeshields.com
@@ -11851,7 +11485,6 @@ jakeshub.com
 jakesiberon.com
 jakesilbermann.com
 jakesilver.com
-jakesilver1990.tumblr.com
 jakesimpson.com
 jakesink.com
 jakesite.com
@@ -11863,11 +11496,8 @@ jakeslife.com
 jakeslinks.com
 jakeslounge.com
 jakesmail.com
-jakesmen.tumblr.com
-jakesmonstersnake.tumblr.com
 jakesmovies.com
 jakesmp.com
-jakeson001.tumblr.com
 jakesonmaindanville.com
 jakespages.com
 jakespeed.com
@@ -11897,7 +11527,6 @@ jakestorm.com
 jakestoys.com
 jakestrong.com
 jakestuart.com
-jakestudman.tumblr.com
 jakesully.com
 jakesutherland.com
 jakesville.com
@@ -11909,9 +11538,7 @@ jaket.net
 jaketame.com
 jaketbandung.com
 jaketgaul.com
-jaketheboi.tumblr.com
 jakethedreamingmovie.com
-jakethepanda22.tumblr.com
 jaketheseadog.com
 jaketickets.com
 jaketiger.com
@@ -11920,11 +11547,8 @@ jaketm.org
 jaketom.com
 jaketrimminsurance.com
 jaketrotter.com
-jaketur.tumblr.com
-jaketurnbell.tumblr.com
 jaketuttle.com
 jakeun.com
-jakeundseinerbratsche.tumblr.com
 jakevalenta.com
 jakevoskuhl.freeservers.com
 jakewaggoner.com
@@ -11937,7 +11561,6 @@ jakewatts.com
 jakeway.com
 jakewebb.com
 jakeweldon.com
-jakewillisdances.tumblr.com
 jakewoldstadchapter.tk
 jakewolfskin.com
 jakewray.com
@@ -11945,8 +11568,6 @@ jakewyman.com
 jakex.me
 jakeybaby.com
 jakeyoungblood.com
-jakeyspice123.tumblr.com
-jakeyspornadventure.tumblr.com
 jakez.net
 jakfish.com
 jakfm.com
@@ -11989,7 +11610,6 @@ jakji.com
 jakk.tk
 jakka.de
 jakkaru.ru
-jakkasgay.tumblr.com
 jakkavy.com
 jakkebilligesalg.com
 jakkedanmark.com
@@ -12013,9 +11633,7 @@ jakkigioia.com
 jakklong.com
 jakkmedia.com
 jakkofrance.com
-jakkuren.tumblr.com
 jakkylinks.com
-jakladd.tumblr.com
 jaklepiej.com
 jaklgiboi.ws
 jaklikora.com
@@ -12039,7 +11657,6 @@ jaknowe.com
 jako-arena.com
 jako.da.ru
 jako.de
-jako61.tumblr.com
 jakob-brucker-gymnasium.de
 jakob-fugger-gymnasium.de
 jakob-lutz.com
@@ -12088,7 +11705,6 @@ jakonaridges.com
 jakonet.com
 jakoob.com
 jakoola.com
-jakosalinas.tumblr.com
 jakosfenis.com
 jakosoft.com
 jakost.com
@@ -12175,7 +11791,6 @@ jakubr.pl
 jakuburban.com
 jakubvoboril.com
 jakubwawrzyniak.com
-jakubwestxxx.tumblr.com
 jakudzahamato.com
 jakufrnbzaz.jafregokikoy.com
 jakulator.com
@@ -12355,7 +11970,6 @@ jaleelpal.com
 jalegud.000webhostapp.com
 jaleja.com
 jalemporno.com
-jalen232005.tumblr.com
 jalencoleman.com
 jalene.com
 jalenhannah.com
@@ -12365,17 +11979,13 @@ jalenvictoria.com
 jalenweston.com
 jalenwize.com
 jaleo.net
-jaleobb.tumblr.com
 jalepenopapi.com
-jaless99.tumblr.com
 jaletbaume.com
 jalew.com
 jalexandercompanies.com
 jalexanders.com
 jalexe.us
 jalexfilms.com
-jalexis19xxx.tumblr.com
-jalexsextapes.tumblr.com
 jaley-ceramicos.com
 jaleyva.gabieestelle.com
 jalf.com
@@ -12406,7 +12016,6 @@ jalienfr.canalblog.com
 jaliens.com
 jalif.googlevideo.com
 jalifa.com
-jalifad2.tumblr.com
 jalifstudio.com
 jalifstudio.es
 jalihs.com
@@ -12414,12 +12023,10 @@ jalihs.info
 jalihs.net
 jalikunda.com
 jalil.net
-jalil32.tumblr.com
 jalilov.com
 jalilvand.com
 jalimei.com
 jalimfo.net
-jalimulutrekyok.tumblr.com
 jalin.googlevideo.com
 jalinan.com
 jalinbarnett.com
@@ -12594,7 +12201,6 @@ jalousiebauer.com
 jalousieversand.de
 jaloux.com
 jalouxfashion.com
-jalovescocks.tumblr.com
 jalowicehodowlane.pl
 jalowin.com
 jalox.googlevideo.com
@@ -12768,7 +12374,6 @@ jamaica-gleaner.com
 jamaica-holidays.com
 jamaica-irie.com
 jamaica-jah-make-her.com
-jamaica-lovepussy.tumblr.com
 jamaica-nude.com
 jamaica-reisen.com
 jamaica-sex-tours.com
@@ -12777,7 +12382,6 @@ jamaica-star.com
 jamaica-vacations.com
 jamaica.co.jp
 jamaica.lv
-jamaica1-love.tumblr.com
 jamaica101.com
 jamaica24.com
 jamaica420tours.com
@@ -12891,7 +12495,6 @@ jamaican-islands.com
 jamaican-recipes.com
 jamaican-villas.com
 jamaican.com
-jamaican1988.tumblr.com
 jamaican420.com
 jamaicana.southernmarylandweddingplanner.com
 jamaicanad.com
@@ -13159,7 +12762,6 @@ jamalpinang.com
 jamalpo2.beget.tech
 jamalpolk.com
 jamalpurgymkhana.com
-jamalpurpbs.org.bd
 jamalq.com
 jamalt.com
 jamalwood.com
@@ -13167,8 +12769,6 @@ jamalwoods.com
 jamaly.com
 jamam.ru
 jaman.talesofescape.com
-jaman09.tumblr.com
-jaman22.tumblr.com
 jamanda.com
 jamandbread.com
 jamandtoast.com
@@ -13199,7 +12799,6 @@ jamarperformance.com
 jamarroofing.net
 jamas-as.com
 jamashop.cz
-jamasian-flirtation.tumblr.com
 jamasons.com
 jamasphotos.com
 jamasynkelly.com
@@ -13299,7 +12898,6 @@ jambitravel.com
 jambitz.com
 jambj.pumbec.ru
 jambl.googlevideo.com
-jamblackcock.tumblr.com
 jamble.co.jp
 jamble.org
 jamblin.com
@@ -13312,7 +12910,6 @@ jambo.co.za
 jambo.hut2.ru
 jambo.nl
 jambo2010.com
-jambo431.tumblr.com
 jamboauto.com
 jamboband.com
 jambocast.com
@@ -13321,7 +12918,6 @@ jambofever.co.uk
 jambofinance.com
 jambog.com
 jambogroup.com
-jamboii.tumblr.com
 jamboinnhotel.com
 jambointernational.com
 jamboinvestment.com
@@ -13457,7 +13053,6 @@ jamdrops.com
 jamds.googlevideo.com
 jamdvgr.ws
 jame.com
-jame2440.tumblr.com
 jamea.com
 jameadba.blog.com
 jameah.com
@@ -13468,7 +13063,6 @@ jamedia.com
 jamedic.pw
 jamedologo.nl
 jamee.peil84.lselektronik.com
-jameebaiser.tumblr.com
 jameel.net
 jameelmcclain53.com
 jameelmccline.com
@@ -13484,7 +13078,6 @@ jamejamdaily.net
 jameka.com
 jamel.com
 jamel.net
-jamel305.tumblr.com
 jamela.com
 jamelah.com
 jamelaodosul.info
@@ -13517,7 +13110,6 @@ james-and-olivia.com
 james-barber.com
 james-bond-film.de
 james-bond-girls-naked.com
-james-boobcanan-barnes.tumblr.com
 james-borst.us
 james-boyles.com
 james-burke.com
@@ -13529,16 +13121,13 @@ james-church.com
 james-cook-remailer.s5.com
 james-cruickshank.com
 james-dallas.com
-james-deen-hdvideos.tumblr.com
 james-e-morris.com
 james-free-gay-ass-fucking.com
 james-free-sex-pictures-online-gallery.com
-james-g64.tumblr.com
 james-goebel.com
 james-hassinger.in
 james-hayner.us
 james-irvine.com
-james-johnson86.tumblr.com
 james-law.com
 james-lin.com
 james-macdonald-homo.com
@@ -13546,10 +13135,8 @@ james-mcmullan.com
 james-morgan.co.uk
 james-polly.us
 james-redfield.com
-james-richard-blog.tumblr.com
 james-riley.com
 james-stephens.com
-james-sub.tumblr.com
 james-swinton.in
 james-taylor.cn
 james-thompson.co.uk
@@ -13566,17 +13153,12 @@ james.tffghelth.com
 james.tracey.com
 james.xn--b1apin.xn--p1ai
 james042william.000webhostapp.com
-james10614.tumblr.com
 james127foundation.com
-james21032.tumblr.com
 james2kool.5gbfree.com
 james3332016outlook.express
 james410.com
-james4bondage.tumblr.com
 james6.com
-james8907.tumblr.com
 jamesa.com
-jamesab-smut.tumblr.com
 jamesabaker.com
 jamesabaldwin.com
 jamesabels.com
@@ -13624,7 +13206,6 @@ jamesandlisa.com
 jamesandme.com
 jamesandmike.com
 jamesandmiranda.com
-jamesandmishel.tumblr.com
 jamesandmolly.com
 jamesandowen.co.uk
 jamesandpeggy.com
@@ -13658,7 +13239,6 @@ jamesbaird.com
 jamesbakerdesign.com
 jamesbales.com
 jamesballou.com
-jamesbamford1912.tumblr.com
 jamesbannon.com
 jamesbaptist.com
 jamesbargain.com
@@ -13699,7 +13279,6 @@ jamesbeutler.com
 jamesbible.com
 jamesbiggs.com
 jamesbignon.com
-jamesblackhound.tumblr.com
 jamesblackvn.com
 jamesblades.com
 jamesblaketennis.com
@@ -13717,9 +13296,6 @@ jamesbomb.com
 jamesbond.bookonline.com.cn
 jamesbond007gun.com
 jamesbond2015.com
-jamesbond73.tumblr.com
-jamesbondage14.tumblr.com
-jamesbondagesx.tumblr.com
 jamesbondajent.ru
 jamesbondbiblestudy.com
 jamesbonddick.com
@@ -13766,7 +13342,6 @@ jamesbrussell.com
 jamesbrutus.com
 jamesbryan.com
 jamesbsmith4th.biz
-jamesbubble.tumblr.com
 jamesbuchananjr.com
 jamesbuckingham.com
 jamesbuiltsaddlery.com
@@ -13846,7 +13421,6 @@ jameschurchill.com
 jameschurchman.com
 jameschurchplumbing.com
 jameschurchward.com
-jamescitycountyva.gov
 jamesclappison.com
 jamesclayborne.com
 jamesclayton.com
@@ -13876,12 +13450,10 @@ jamescordier.com
 jamescoreyharris.com
 jamescormack.com
 jamescornetet.com
-jamescossielover.tumblr.com
 jamescourt.com
 jamescove.com
 jamescover.com
 jamescowdery.com
-jamescox16.tumblr.com
 jamescpollard.com
 jamescraftboats.com
 jamescrawley.com
@@ -13912,8 +13484,6 @@ jamescvaughn.com
 jamesdaceypt.co.uk
 jamesdalby.com
 jamesdarlingphotography.com
-jamesdarlingxxx.tumblr.com
-jamesdavid22974725.tumblr.com
 jamesdavidmartin.com
 jamesdavisdefense.com
 jamesdawes.com
@@ -13927,11 +13497,9 @@ jamesdeanmovies.com
 jamesdeanracing.tripod.com
 jamesdeen.com
 jamesdeenblog.com
-jamesdeenisfuckingcute.tumblr.com
 jamesdeenstore.com
 jamesdelahooke.com
 jamesdemo.com
-jamesdemotta.tumblr.com
 jamesdent.com
 jamesdesilva.com
 jamesdevaneyfueloil.com
@@ -14002,7 +13570,6 @@ jamesetheridge.com
 jamesewilliams.com
 jamesewright.com
 jamesexpress.com
-jamesexsex.tumblr.com
 jamesfaber.com
 jamesfabian.com
 jamesfackrell.com
@@ -14027,7 +13594,6 @@ jamesfisher.com
 jamesfishercs.com
 jamesfkanatzar.com
 jamesflames.com
-jamesflaster2.tumblr.com
 jamesflemingguiding.com
 jamesfloors.com
 jamesflorist.com
@@ -14042,7 +13608,6 @@ jamesfriesen.blogspot.com
 jamesfriesen.com
 jamesfruits.com
 jamesftm.homestead.com
-jamesfuckybarnes.tumblr.com
 jamesfuneral.com
 jamesfurniture.com
 jamesg.com
@@ -14078,10 +13643,8 @@ jamesgrantjewellery.co.uk
 jamesgrantmusic.com
 jamesgreenherbalist.com
 jamesgreenworks.com
-jamesgregg76.tumblr.com
 jamesgregoire.com
 jamesgregorycoleman.com
-jamesgrens.tumblr.com
 jamesgriffinmusic.com
 jamesgriley.com
 jamesgrill.com
@@ -14102,7 +13665,6 @@ jameshanners.com
 jamesharbison.com
 jamesharbour.net
 jamesharden13.com
-jameshardenjr.tumblr.com
 jameshardie.com
 jameshardie.net
 jameshardiesidingcenter.com
@@ -14117,7 +13679,6 @@ jameshaskins.com
 jameshaugh.co.uk
 jameshaydon.com
 jameshayter.com
-jameshaywood.tumblr.com
 jameshealth.com
 jamesheart.com
 jamesheat.com
@@ -14156,7 +13717,6 @@ jameshsmith.com
 jameshuey.net
 jameshueychina.com
 jameshuntley.com
-jameshuntsmanfanatic.tumblr.com
 jameshurst.com
 jameshusband.com
 jameshutcheson.com
@@ -14181,9 +13741,7 @@ jamesjacobs.com
 jamesjada.com
 jamesjalexander.com
 jamesjames.co.uk
-jamesjamesmorrisonmorrison.tumblr.com
 jamesjamesmorrisonmorrisonweatherbygeorgedupree.com
-jamesjanette.tumblr.com
 jamesjbraddock.com
 jamesjenks.com
 jamesjenkslyons.com
@@ -14203,7 +13761,6 @@ jamesjosephfishing.com
 jamesjoy.com
 jamesjoycehouse.com
 jamesjoycetower.com
-jamesjuly.tumblr.com
 jamesjury.com
 jameskanatzar.com
 jameskar.com
@@ -14240,7 +13797,6 @@ jameskreiger.com
 jameskyle.com
 jameskyvik.com
 jamesl.com
-jamesl3ond.tumblr.com
 jameslabree.org
 jameslaite.com
 jameslamparelli.com
@@ -14263,7 +13819,6 @@ jameslebron.com
 jameslee.com
 jameslee.vgrabe.josephkoerner.yusufxy.murielmaribe
 jameslee.vgrabe.josephkoerner.yusufxy.murielmaribel.com
-jameslee68.tumblr.com
 jamesleefickes.com
 jamesleelaw.com
 jamesleigh.com
@@ -14307,11 +13862,9 @@ jameslucienbowen.com
 jameslugo.com
 jamesluke.com
 jameslumgair.com
-jameslvsjo.tumblr.com
 jameslweaver.com
 jameslynchconstruction.com
 jamesm.co.uk
-jamesm44.tumblr.com
 jamesmacbeth.com
 jamesmacdonald-harvest-bible-chapel.com
 jamesmacdonaldverticalchurch.com
@@ -14319,7 +13872,6 @@ jamesmacdonaldverticalchurches.com
 jamesmacgregor.com
 jamesmach.com
 jamesmacko.com
-jamesmadison.gov
 jamesmadisonjr.com
 jamesmadisonmus.org
 jamesmadisonmusic.com
@@ -14333,10 +13885,8 @@ jamesmanufacturing.com
 jamesmarjoram.biketrials.com
 jamesmarketplace.com
 jamesmarkham.com
-jamesmarshall13.tumblr.com
 jamesmarsland.com
 jamesmartinchef.com
-jamesmasn.tumblr.com
 jamesmassone.com
 jamesmasterlies.com
 jamesmasters.com
@@ -14439,7 +13989,6 @@ jamesmgraham.blogspot.tw
 jamesmgraham.blogspot.ug
 jamesmigliore.com
 jamesmilesdale.com
-jamesmilf.tumblr.com
 jamesmillergroup.com
 jamesmillerjr.com
 jamesmince.com
@@ -14457,7 +14006,6 @@ jamesmulrooney.com
 jamesmulveyinn.com
 jamesmunoz.com
 jamesmunyan.com
-jamesn100.tumblr.com
 jamesnachtwey.com
 jamesnail.com
 jamesnandrews.com
@@ -14469,7 +14017,6 @@ jamesnew.com
 jamesnichole.com
 jamesnichole.net
 jamesnightingale.com
-jamesniles1187.tumblr.com
 jamesnimene.com
 jamesnoobschool.com
 jamesnorrie.com
@@ -14490,7 +14037,6 @@ jameson.fr.st
 jameson.free.fr
 jameson.fsn.net
 jameson.tony.pl
-jameson789.tumblr.com
 jamesonbevington.com
 jamesoncaldwell.com
 jamesoncockers.com
@@ -14532,7 +14078,6 @@ jamespattison.com
 jamespattison.net
 jamespaul156.blog.com
 jamespaxton.com
-jamespbrady.tumblr.com
 jamespbruce.com
 jamespbruce.net
 jamespchristian.com
@@ -14572,7 +14117,6 @@ jamespot.com
 jamespot.pro
 jamespr.net
 jamespress.com
-jamespriest34.tumblr.com
 jamesprindle.com
 jamesprovan.com
 jamesquillsmithband.com
@@ -14624,7 +14168,6 @@ jamesrobertsmith.com
 jamesrobinson.net
 jamesrobinsonjr.com
 jamesrocket.com
-jamesrod61.tumblr.com
 jamesrodway.info
 jamesrollinsbooks.com
 jamesroom.com
@@ -14643,7 +14186,6 @@ jamesrusso.com
 jamesrutz.com
 jamesrwalker.com
 jamesryan.com
-jamess4451.tumblr.com
 jamessackerman.com
 jamessalame.com
 jamessam.form2pay.com
@@ -14708,7 +14250,6 @@ jamesstpaul.com
 jamesstreetballroom.com
 jamesstreetcompany.com
 jamesstreetinn.com
-jamesstrip.tumblr.com
 jamesstuart.org
 jamessudduth.com
 jamessui.com
@@ -14798,10 +14339,8 @@ jamestephenson.blogspot.tw
 jamestephenson.blogspot.ug
 jamestfisher.com
 jamesth.catlainaaudry.com
-jamesthecuck.tumblr.com
 jamesthegiant.com
 jamesthegreat.com
-jamestheillest.tumblr.com
 jamesthemaker.com
 jamesthesailorbasher.com
 jamesthomasphotography.com
@@ -14809,21 +14348,17 @@ jamesthomassmithauthor.com
 jamesthorn.com
 jamesthreadgill.com
 jamesthree.com
-jamestiberiusfuckhead.tumblr.com
 jamestichenor.com
 jamestill.com
 jamestilton.net
 jamestjones.com
-jamestmedak.tumblr.com
 jamestobin.com
 jamestomes.com
 jameston.com
-jameston7.tumblr.com
 jamestool.com
 jamestooley.com
 jamestothsculpture.com
 jamestours.com
-jamestown-nc.gov
 jamestown-pa.com
 jamestown-ri.info
 jamestown2007.org
@@ -14852,12 +14387,10 @@ jamestownparkgolf.com
 jamestownpresbyterianchurch.com
 jamestownpress.com
 jamestownranch.com
-jamestownri.gov
 jamestownsoccer.com.au
 jamestownspeedway.com
 jamestownstamp.com
 jamestownsun.com
-jamestowntn.gov
 jamestowntnchurchofchrist.com
 jamestownvacations.com
 jamestownveterinary.com
@@ -14933,7 +14466,6 @@ jameswritescode.com
 jameswrobinson.com
 jameswylie.com
 jamesyane.com
-jamesydsj.tumblr.com
 jamesyork.info
 jamesyoung.com
 jamesyoungergang.com
@@ -15062,10 +14594,8 @@ jamicinc.com
 jamick.com
 jamickmakemoney.com
 jamicreations.com
-jamie-bennett.tumblr.com
 jamie-dillman.us
 jamie-eats.com
-jamie-elle-pornstar.tumblr.com
 jamie-grace.com
 jamie-hammer-nude.com
 jamie-hammer.com
@@ -15075,18 +14605,14 @@ jamie-lee-curtis-fakes.com
 jamie-levasseur.us.org
 jamie-linde.com
 jamie-lynn-nude.com
-jamie-lynn-spears-xyz.tumblr.com
 jamie-lynn.alt-porn-stars.com
 jamie-percival.us
 jamie-pressly-nude.com
 jamie-rose.us
 jamie-sex-cam.startspot.nl
-jamie-xr6.tumblr.com
 jamie.2bb.ru
 jamie.darellevalaree.com
 jamie.ws
-jamie1717.tumblr.com
-jamie3582.tumblr.com
 jamie4u.blogspot.ae
 jamie4u.blogspot.al
 jamie4u.blogspot.am
@@ -15172,7 +14698,6 @@ jamieannonline.com
 jamieartgallery.com
 jamiearthur.net
 jamieathome.com
-jamieb0ndxxx.tumblr.com
 jamiebaby.com
 jamiebamber.com
 jamiebarclay.com
@@ -15202,7 +14727,6 @@ jamiecarter.com
 jamiecarter003.blog.com
 jamiecarters.com
 jamiecash.com
-jamiecd4bbc.tumblr.com
 jamiechaos.com
 jamiecharman.com
 jamiechristian.com
@@ -15218,7 +14742,6 @@ jamiecoxx.com
 jamiecrich.com
 jamiecrochets.com
 jamiecruz.com
-jamiecumslut.tumblr.com
 jamieczuy.com
 jamiedalton.com
 jamiedance.com
@@ -15232,7 +14755,6 @@ jamiedeegan.com
 jamiedesigns.com
 jamiedubose.com
 jamieduke.com
-jamiedwalker85.tumblr.com
 jamiedykes.com
 jamieelle.info
 jamieellefucked.com
@@ -15249,7 +14771,6 @@ jamiegillies.com
 jamiegillis.com
 jamiegirl.com
 jamiegoodwin.com
-jamiegray2.tumblr.com
 jamiegriffiths.com
 jamiegross.com
 jamieguide.com
@@ -15472,7 +14993,6 @@ jamiemitgesschoolofthearts.com
 jamiemodel.com
 jamiemoores.com
 jamiemoreira.com
-jamiemuc.tumblr.com
 jamiemuth.com
 jamienadel.com
 jamienaked.com
@@ -15588,7 +15108,6 @@ jamierussell.com
 jamies-galleries-blog.com
 jamies-galleries.com
 jamies-gals.com
-jamies-latex-lust.tumblr.com
 jamies2.wm01.to
 jamiesamuel.com
 jamiesattic.net
@@ -15607,9 +15126,7 @@ jamiesex.com
 jamiesfamous.com
 jamiesfetish.com
 jamiesgalleries.com
-jamiesgaypornpage.tumblr.com
 jamieshairdressing.co.uk
-jamieshard.tumblr.com
 jamieshore.co.uk
 jamieshotlegs.com
 jamiesite.50megs.com
@@ -15633,10 +15150,8 @@ jamiesparrothelp.wordpress.com
 jamiespnd.com
 jamiesrecipes.com
 jamiessexpics.com
-jamiestellacd.tumblr.com
 jamiestevens.com
 jamiestevenson.com
-jamiestonexxx.tumblr.com
 jamiesummer.com
 jamiesummersxxx.com
 jamiesvideos.com
@@ -15749,7 +15264,6 @@ jamijami.com
 jamike.cosmointernational.net
 jamikrueger.com
 jamil12.com
-jamilackoffuckstogive.tumblr.com
 jamilahomeafrica.com
 jamilahui.com
 jamilapierre.com
@@ -15767,7 +15281,6 @@ jamilyndesigns.com
 jamimaarlen.com
 jamimahannie.ru
 jamimilton.com
-jamin1324.tumblr.com
 jamina69.city.fi
 jaminak.com
 jaminan-malam.com
@@ -15880,7 +15393,6 @@ jamlocuciones.com
 jamlogistics.com
 jamloudkoi.com
 jamlounge.com
-jamlovin.tumblr.com
 jamlr.com
 jamlvdwatlimdj.co.uk
 jamm-dance.com
@@ -15914,7 +15426,6 @@ jammer.sm
 jammer69.com
 jammerbugt-ferie.dk
 jammerbugten.com
-jammerman1994.tumblr.com
 jammersstore.com
 jammertal.com
 jammerworld.com
@@ -15981,7 +15492,6 @@ jammn.com
 jammo.com
 jammobile.com
 jammodels.com
-jammorg.tumblr.com
 jammotors.com
 jammoul.com
 jammount.info
@@ -16048,7 +15558,6 @@ jamocean.net
 jamochabean.com
 jamochajoy.com
 jamochamud.org
-jamoche03.tumblr.com
 jamocohen.com
 jamoda.com
 jamodusa.co.tv
@@ -16157,7 +15666,6 @@ jamplug.com
 jampod.com
 jampony.com
 jampool.com
-jamporn.tumblr.com
 jamport.com
 jampost.com
 jampot.com
@@ -16217,7 +15725,6 @@ jams.kir.jp
 jams481.site.bz
 jamsampler.com
 jamsandekar.com
-jamsbabygirl.tumblr.com
 jamsbythecase.com
 jamsdoxies.com
 jamsdrekinzo.org
@@ -16328,7 +15835,6 @@ jamu.com.vn
 jamua.com
 jamub.googlevideo.com
 jamue.googlevideo.com
-jamugster.tumblr.com
 jamukuat.com
 jamukuatlelaki.com
 jamulcasino.net
@@ -16388,7 +15894,6 @@ jamxt.googlevideo.com
 jamxv.googlevideo.com
 jamxxx.com
 jamxy.googlevideo.com
-jamy218.tumblr.com
 jamybez.com
 jamyer.com
 jamyewaxman.com
@@ -16401,7 +15906,6 @@ jamzcheer.com
 jamzohzu.com
 jamzoom.com
 jamzs.com
-jamzzworld.tumblr.com
 jan-bar.com
 jan-bari.com
 jan-christian-redel.com
@@ -16625,7 +16129,6 @@ janaalriyadh.com.sa
 janab.com
 janabach.de
 janaband.com
-janabarby.tumblr.com
 janabelle.com
 janaberlin.de
 janabet.com
@@ -16646,7 +16149,6 @@ janacova.org
 janacova.tblog.com
 janacovanude.com
 janacovasexy.jed.pl
-janacovaxxx.tumblr.com
 janacsportswear.ca
 janad.com
 janadam.com
@@ -16672,12 +16174,10 @@ janae-nickel.us
 janae-owsley.in
 janae-stimpson.us
 janae-terrazas.us
-janaecamri.tumblr.com
 janaeconnor.webs.com
 janaecox.com
 janaekaeporn.info
 janaenicole.com
-janaerotic.tumblr.com
 janaes.com
 janaescort.com
 janaeshepherd.com
@@ -16735,9 +16235,7 @@ janalinks.com
 janalinnell.com
 janalive.com
 janalli.com
-janaloupe.tumblr.com
 janaltom.host4u.cz
-janalyce24.tumblr.com
 janalyceavery.com
 janama.com
 janamackova.cz
@@ -16836,7 +16334,6 @@ jananicharitabletrusts.net
 jananiiyer.com
 jananne.com
 jananovak.com
-jananylonamateur.tumblr.com
 janapa.com
 janapada.net
 janapadam.com
@@ -16881,7 +16378,6 @@ janasmail.com
 janasmortgage.com
 janassklave.de.vu
 janassociates.com
-janastrapsi.tumblr.com
 janasupermodel.com
 janaswasthya.com
 janasys.com
@@ -16964,7 +16460,6 @@ janbud-jankowiak.pl
 janbud.com
 janbudjannij.yoyohost.com
 janburton.net
-janburton.tumblr.com
 janbx.googlevideo.com
 janc.ru
 jancaballero.com
@@ -16981,7 +16476,6 @@ janchart.com
 janchee.com
 janchetana.com
 janchi.com
-janchob.tumblr.com
 janchristian.com
 janchristianaustad.com
 janchristianbajas.com
@@ -17025,13 +16519,11 @@ janczeskiadvogados.com.br
 jand.co.uk
 janda.net
 janda10.com
-janda34986.tumblr.com
 jandababynursecare.com
 jandabaik.com
 jandacurbsidebistro.com
 jandag.com
 jandakembang.biz
-jandala.tumblr.com
 jandaldiaries.com
 jandalirealestate.com
 jandaluz.com.br
@@ -17075,7 +16567,6 @@ jandel.co.uk
 jandemechanical.com
 jandemellobordercollie.com
 janderlinhares.com.br
-jandersbisexualuniverse.tumblr.com
 jandersen.com
 jandersen.net
 jandesign.com
@@ -17101,7 +16592,6 @@ jandjagent.com
 jandjarborsvcs.com
 jandjayautomoto.net
 jandjbaby.com
-jandjblog.tumblr.com
 jandjbraziliangourmetsweets.com
 jandjcleaning.com
 jandjcomputerconsulting.com
@@ -17157,7 +16647,6 @@ jandmcleaning.com
 jandminfrastructure.com
 jandmphotography.com
 jandmsewing.com
-jandmsex.tumblr.com
 jandmstars.com
 jandmtackle.com
 jandmtireandservice.com
@@ -17228,13 +16717,9 @@ jane-burnham.com
 jane-carney.us
 jane-carroll.com
 jane-churchill.com
-jane-cock.tumblr.com
-jane-doe-is-a-slut.tumblr.com
 jane-ehrhardt.com
 jane-ferrari.us
-jane-fuckdrugs-cigarettes.tumblr.com
 jane-gonsalves.us
-jane-henry.tumblr.com
 jane-hepner.biz
 jane-janebond.com
 jane-lefilm.com
@@ -17247,13 +16732,11 @@ jane-newman.us
 jane-orner.us
 jane-prinz.in
 jane-ransdell.in
-jane-reed.tumblr.com
 jane-reifert.com
 jane-scarberry.us
 jane-selkirk.co.uk
 jane-sullivan.com
 jane-tamworth.virtualave.net
-jane-the-plain.tumblr.com
 jane-wanner.us
 jane-with-helen.us
 jane-with-rose.us
@@ -17270,7 +16753,6 @@ jane007.free.fr
 jane18.com
 jane267.naturaldrugmall.com
 jane2go.com
-jane32hh.tumblr.com
 jane5.com
 janeachantalphotography.com
 janeadams-artminiatures.co.uk
@@ -17304,7 +16786,6 @@ janeaustensequels.com
 janeayresouto.com
 janebabinski.com
 janebabst.com
-janebangs.tumblr.com
 janebarnett.com
 janebartholomew.com
 janeber.com
@@ -17366,12 +16847,10 @@ janecosmetics.com
 janecoughlan.com
 janecouture.com
 janecox.com
-janecrockerofficial.tumblr.com
 janecroft.com
 janecruzfernando.com
 janeczkaashlan.su
 janeczkanady.be
-janed69.tumblr.com
 janedan.com
 janedarling.org
 janedarlingxxx.com
@@ -17407,7 +16886,6 @@ janeece.com
 janeemily.com
 janeena.com
 janeendinajolie.be
-janeeng25.tumblr.com
 janeenmadlen.su
 janeensart.com
 janeensashenka.link
@@ -17484,7 +16962,6 @@ janeesticker.com
 janef.googlevideo.com
 janefamily.com
 janefan.com
-janefenuanova.tumblr.com
 janefields.com
 janefinchchurchcoalition.com
 janefinneran.sabraallina.com
@@ -17507,7 +16984,6 @@ janegallery.com
 janegalt.net
 janegetscreative.com
 janegibsontiaras.co.uk
-janegirl69.tumblr.com
 janegomez.com
 janegoodallfilm.com
 janegoodallmovie.com
@@ -17548,12 +17024,10 @@ janeisha.com
 janejackson.com
 janejam.com
 janejan.com
-janejanitor.tumblr.com
 janejansendresses.co.uk
 janejenkins.com
 janejensen.com
 janejets.com
-janejetson23.tumblr.com
 janejewelry.com
 janejia.com
 janejira.com
@@ -17803,7 +17277,6 @@ janelle.carver.lpqjs.brainwasher.outlookretail.com
 janelle.com
 janellealthenlcsw.com
 janelleanderson.krissyluraania.com
-janellebirdy.tumblr.com
 janellebizstore.com
 janellebiztrading.com
 janellefuchs.com
@@ -17909,7 +17382,6 @@ janemarchnudemb.blogspot.ug
 janemarie.4all.cc
 janemarie.net
 janemarieflorists.co.uk
-janemarieluv.tumblr.com
 janemartinresume.com
 janematheew18.000webhostapp.com
 janematheew19.000webhostapp.com
@@ -17922,7 +17394,6 @@ janemcloud.com
 janemcreynolds.com
 janemei.com
 janemichele.com
-janeminou.tumblr.com
 janemissouri.com
 janemitten.com
 janemore.com
@@ -17939,7 +17410,6 @@ janenemarcelia.win
 janenemirasaba.com
 janenet.com
 janenewcomer.com
-janeneyrouss.tumblr.com
 janenickerson.com
 janenicol.co.uk
 janenielsen.com
@@ -17963,7 +17433,6 @@ janeperalateddies.com
 janephoto.com
 janepibafrochesixiw.jepireiluwo.com
 janepickard.com
-janepink.tumblr.com
 janepleasurezone.go-legend.net
 janeplusben.us
 janeplusbetty.us
@@ -17995,13 +17464,11 @@ janes-addiction.com
 janes-free-xxx-sex-pics.xxxlivevideos.com
 janes-guide.com
 janes-porn.com
-janes-wild-forest.tumblr.com
 janes.co.za
 janes.com
 janesaked.ru
 janesamuels.com
 janesauergallery.com
-janesays80.tumblr.com
 janesbags.com
 janesbit.com
 janesblonde.com
@@ -18115,13 +17582,11 @@ janeslaw.com
 janeslists.net
 janeslivecam.de
 janeslodges.com
-janeslowwhispers.tumblr.com
 janesmail.com
 janesmall.com
 janesmarket.com
 janesmarketing.com
 janesmart.com
-janesnaughtycloset.tumblr.com
 janesociety.com
 janespanties.com
 janesplacenyc.com
@@ -19095,7 +18560,6 @@ janet-korea.com
 janet-loggins.us
 janet-lupton.us
 janet-macha.com
-janet-mason-hd720.tumblr.com
 janet-mattice.in
 janet-mccaughey.biz
 janet-planet.org
@@ -19116,7 +18580,6 @@ janet-xone.com
 janet.crombie.com
 janet.googlevideo.com
 janet.messa.nonyo.continentalises.marilynannwaters.com
-janet026.tumblr.com
 janet23.de
 janetakatharyn.ru
 janetalexander.com
@@ -19125,7 +18588,6 @@ janetamarcela.in
 janetandbrandon.com
 janetaregan.ru
 janetarmstrong.com
-janetarzan69.tumblr.com
 janetasam.com
 janetaskenburg.com
 janetaursuline.com
@@ -19252,7 +18714,6 @@ janetheprostitute.blogspot.sk
 janetheprostitute.blogspot.sn
 janetheprostitute.blogspot.tw
 janetheprostitute.blogspot.ug
-janetheslave.tumblr.com
 janethitchenphotography.com
 janethomes.com
 janethornley.com
@@ -19261,7 +18722,6 @@ janethui.com
 janethychristian.com
 janeti.com
 janetim.com
-janetim.tumblr.com
 janetjackson.com
 janetjackson.eu
 janetjackson.sexybabesx.com
@@ -19324,8 +18784,6 @@ janetmarshall.com
 janetmartest.com
 janetmartz.com
 janetmason.net
-janetmasondeauxmabibijones.tumblr.com
-janetmasonfucks1.tumblr.com
 janetmasonmilf.com
 janetmay.com
 janetmcdonald.com
@@ -19369,7 +18827,6 @@ janetscudder.com
 janetsdance.com
 janetsex.com
 janetsexpress.com
-janetsexy77.tumblr.com
 janetsgalleries.com
 janetshaw.com
 janetsheard.com
@@ -19460,7 +18917,6 @@ janettorres.com
 janetucker.com
 janetvalade.com
 janetvid.com
-janetvuk1970.tumblr.com
 janetwelch.com
 janetwhitchurch.com
 janetwork.com
@@ -19509,11 +18965,9 @@ janey1.net
 janeyang.com
 janeybobaney.com
 janeydavid.com
-janeyegerton.tumblr.com
 janeyeotours.com
 janeyfetish.fknetweb.co.uk
 janeygodley.tblog.com
-janeykara.tumblr.com
 janeyking.com
 janeymarlena.ru
 janeymattson.com
@@ -19532,7 +18986,6 @@ janeyxxx.com
 janez.com
 janezhang.net
 janezk.50webs.co
-janezxxx.tumblr.com
 janfashion.com
 janfetishes.com
 janfication.com
@@ -19584,7 +19037,6 @@ jangdo.com
 jangdok.com
 jangdokde.com
 jangdonggun.com
-jangel56.tumblr.com
 jangela.com
 jangelfanic.com
 jangell.com
@@ -19697,7 +19149,6 @@ janice-escort.com
 janice-fultz.us
 janice-galloway.us
 janice-gloria.us
-janice-griffith-hdpornvideos.tumblr.com
 janice-hazlewood.us
 janice-hermosillo.us
 janice-hinds.us
@@ -19733,7 +19184,6 @@ janicecolvin.com
 janicecooper.com
 janiceculver.com
 janicedavis.com
-janicefuckinggriffith.tumblr.com
 janicefurey.com
 janicegosnell.com
 janicegriffin.com
@@ -19768,7 +19218,6 @@ janicemwsu.com
 janicenewman.com
 janicenisbet.com
 janicenlillian.us
-janicenudepregnant.tumblr.com
 janiceonline.com
 janicepearson.com
 janicepluscarol.us
@@ -19794,7 +19243,6 @@ janicewhite.com
 janicewinter.com
 janicewise.com
 janicewright.com
-janicexxx.tumblr.com
 janicist.narod.ru
 janick-centre.com
 janicka.bizhat.com
@@ -19834,7 +19282,6 @@ janieandjohn.com
 janieandjohnevents.com
 janiebee.com
 janiebeverlee.in
-janieblume-transwoman.tumblr.com
 janiebube.com
 janiebube.net
 janiebubedesign.com
@@ -19846,7 +19293,6 @@ janiece.net
 janiedelhi.com
 janieeandjohnevents.com
 janiefawne.in
-janiefilth.tumblr.com
 janiegirauard.com
 janiegirl.com
 janiegoldie.com
@@ -19860,14 +19306,12 @@ janiemcgee.com
 janiemoore.com
 janiepol.date
 janiesangelbabies.com
-janiesbk.tumblr.com
 janiesblankets.com
 janiescowboyshop.com
 janiesplace.com
 janiesplayroom.com
 janiesworld.com
 janiesykeskennedy.com
-janietgirl.tumblr.com
 janietipclothings.com
 janieupchurch.com
 janiewilson.com
@@ -19895,7 +19339,6 @@ janina-privat.com
 janinaction.com
 janinafrostell.org-go.net
 janinajalia.com
-janinaoz.tumblr.com
 janinas.de
 janinazawislak.game-server.cc
 janinazimmer.com
@@ -20196,8 +19639,6 @@ jankiss.com
 jankit.com
 jankland.com
 jankloppers.com
-jankmale.tumblr.com
-janko02.tumblr.com
 jankocomputers.info
 jankohout.com
 jankok-lodges.com
@@ -20384,8 +19825,6 @@ janne-rattya.com
 janne-schaefer.de
 jannearola.com
 jannebanan.com
-jannebula.tumblr.com
-jannedev.tumblr.com
 janneh.com
 janneibiza.com
 janneill.com
@@ -20399,7 +19838,6 @@ janneruda.com
 jannesblommor.com
 jannet-model.ru
 jannet.com
-jannetlovesblowjobs.tumblr.com
 jannett.ru
 jannette.net
 jannetteintl.com
@@ -20467,7 +19905,6 @@ janosdupai.com
 janosfarkas.com
 janosha.com
 janoskilaw.com
-janoskipornhub.tumblr.com
 janoskistudio.com
 janospalko.com
 janossy.com
@@ -20477,8 +19914,6 @@ janoszphotos.com
 janot.fr.st
 janotcynde.com
 janotdorolisa.click
-janotherxxxb.tumblr.com
-janotittyfuckerspg.tumblr.com
 janotmaxine.com
 janotnellie.com
 janoto.com
@@ -20572,7 +20007,6 @@ jansancentral.net
 jansanders.com
 jansanghparty.com
 jansant.info
-jansantho.tumblr.com
 jansantiques.com
 jansara.com
 jansatta.com
@@ -20595,7 +20029,6 @@ janscraft.com
 janscrafts.com
 janscruiseandtravel.com
 janscustomcakes.com
-jansdialog.tumblr.com
 jansdollboutique.com
 jansdollcloset.com
 jansdotter.com
@@ -20610,7 +20043,6 @@ jansenconsulting.com
 jansenfarms.com
 jansenfinancial.com
 jansenhomes.com
-jansenjan.tumblr.com
 jansenlegacyfund.com
 jansenmedia.com
 jansenmi.com
@@ -20751,7 +20183,6 @@ jantilal.com
 jantill.com
 jantilly.com
 jantiques.com
-jantjeweetvanwanten.tumblr.com
 jantmarketi.com
 jantmedia.com
 jantmodelleri.com
@@ -20854,7 +20285,6 @@ januarypress.com
 januarys.com.au
 januarysaleprices.com
 januarysalesdirect.com
-januaryseraph.tumblr.com
 januarysky.com
 januarysocial.com
 januarysun.com
@@ -21129,7 +20559,6 @@ jap-art.com
 jap-bukkake.com
 jap-cams.com
 jap-cumshots.com
-jap-dominator.tumblr.com
 jap-facials.com
 jap-girls.com
 jap-gravure.blogspot.com
@@ -21149,7 +20578,6 @@ japa-hokuriku.roco.jp
 japa.gto.jp
 japabeauty.com
 japacarrera.multimania.com
-japacumslut.tumblr.com
 japago.com
 japahall.com.br
 japahari.net
@@ -21192,7 +20620,6 @@ japan-beauty.com
 japan-bitch.com
 japan-biz-support.com
 japan-bloodstock.co.jp
-japan-bondage.tumblr.com
 japan-brand.com
 japan-bukkake.com
 japan-bukkake.net
@@ -21569,7 +20996,6 @@ japan-wetpussy.com
 japan-whore.com
 japan-whores.com
 japan-whores.net
-japan-wife24.tumblr.com
 japan-wifi.com
 japan-women-dating.com
 japan-women.com
@@ -21626,7 +21052,6 @@ japan18tube.com
 japan1o.com
 japan1st.com
 japan2.com
-japan2.ms.windows-driver-42717.win.s3-website-ap-northeast-1.amazonaws.com
 japan2000.cecs.de
 japan2013coachbags.com
 japan2019.com
@@ -21796,7 +21221,6 @@ japanadultdatingsites.blogspot.tw
 japanadultdatingsites.blogspot.ug
 japanadultdvd.com
 japanadultvideo.net
-japanadultvideos.tumblr.com
 japanadventure.net
 japanadvice.com
 japanafterhours.com
@@ -22041,7 +21465,6 @@ japancryptopay.com
 japancryptotrade.com
 japancuisine.net
 japancum.net
-japancum.tumblr.com
 japancumshots.com
 japancumwhore.com
 japancupid.com
@@ -22169,7 +21592,6 @@ japanecstasy.com
 japaneesevehicles.com
 japanel.net
 japanemail.net
-japaneneseteens.tumblr.com
 japanenvnews.qpoe.com
 japanep.com
 japanere.dk
@@ -22184,7 +21606,6 @@ japanescorts.co.uk
 japanese-------sex.com
 japanese--porn.com
 japanese--schoolgirls.biz
-japanese--slut.tumblr.com
 japanese-action.com
 japanese-adult.com
 japanese-akita.info
@@ -22211,11 +21632,9 @@ japanese-beauties-tube.com
 japanese-beauties.com
 japanese-beauties.org
 japanese-bigtits.com
-japanese-bigtits.tumblr.com
 japanese-bikini.com
 japanese-bondage-art.co.uk
 japanese-bondage-bdsm.com
-japanese-bondage-fetish-ero.tumblr.com
 japanese-bondage-pics.com
 japanese-bondage-pictures.com
 japanese-bondage-pictures.net
@@ -22224,13 +21643,9 @@ japanese-bondage.com
 japanese-bondage.de
 japanese-bondage.net
 japanese-bondage.nl
-japanese-bondage.tumblr.com
 japanese-bondage.ws
 japanese-bondeji.com
 japanese-boobs.com
-japanese-boy-of-the-gay.tumblr.com
-japanese-boy-of-the-gay2.tumblr.com
-japanese-boy-of-the-gay4.tumblr.com
 japanese-bukkake-movies.com
 japanese-bukkake.co.uk
 japanese-bukkake.com
@@ -22314,7 +21729,6 @@ japanese-cumshots.com
 japanese-dating.info
 japanese-desire.com
 japanese-doll.biz
-japanese-dolls.tumblr.com
 japanese-dreams.com
 japanese-erotica.searchmole.co.uk
 japanese-escort-girls.com
@@ -22591,8 +22005,6 @@ japanese-panties-2.blogspot.ug
 japanese-personals.net
 japanese-pharma.com
 japanese-pharmacy.com
-japanese-porn-gif.tumblr.com
-japanese-porn-japan.tumblr.com
 japanese-porn-movie.com
 japanese-porn-pics.com
 japanese-porn-pics.net
@@ -22661,7 +22073,6 @@ japanese-schoolgirls-bondage.com
 japanese-schoolgirls.info
 japanese-schoolgirls.net
 japanese-schoolgirls.us
-japanese-sex-blog.tumblr.com
 japanese-sex-movies.blogspot.ae
 japanese-sex-movies.blogspot.al
 japanese-sex-movies.blogspot.am
@@ -22730,7 +22141,6 @@ japanese-sex-movies.blogspot.sn
 japanese-sex-movies.blogspot.tw
 japanese-sex-movies.blogspot.ug
 japanese-sex-online.biz
-japanese-sex-panties-swimsuit.tumblr.com
 japanese-sex-pic.com
 japanese-sex-pics.net
 japanese-sex-pictures.com
@@ -22881,7 +22291,6 @@ japanese-sexy-girls.blogspot.sk
 japanese-sexy-girls.blogspot.sn
 japanese-sexy-girls.blogspot.tw
 japanese-sexy-girls.blogspot.ug
-japanese-sexy.tumblr.com
 japanese-sexygirls-gallery.blogspot.ae
 japanese-sexygirls-gallery.blogspot.al
 japanese-sexygirls-gallery.blogspot.am
@@ -23016,7 +22425,6 @@ japanese-sexygirls.blogspot.sk
 japanese-sexygirls.blogspot.sn
 japanese-sexygirls.blogspot.tw
 japanese-sexygirls.blogspot.ug
-japanese-sexygirls.tumblr.com
 japanese-shemales.net
 japanese-skypelesson.com
 japanese-slits.com
@@ -23033,7 +22441,6 @@ japanese-teensex.com
 japanese-toilet.com
 japanese-topless.com
 japanese-translator.ir
-japanese-trim.tumblr.com
 japanese-tube.name
 japanese-tube.org
 japanese-tube.xxx
@@ -23105,7 +22512,6 @@ japaneseallure.com
 japanesealps.com
 japaneseamateur.com
 japaneseanalsex.net
-japaneseandasianhoes.tumblr.com
 japaneseanime.com
 japaneseanime.net
 japaneseanimeporn.com
@@ -23638,7 +23044,6 @@ japanesegate.com
 japanesegay.com
 japanesegayart.com
 japanesegayboys.com
-japanesegaypics.tumblr.com
 japanesegear.com
 japanesegems.com
 japanesegf.us
@@ -23651,14 +23056,11 @@ japanesegirl.coolbb.net
 japanesegirl.svwh.net
 japanesegirl.ws
 japanesegirlcams.com
-japanesegirlcc.tumblr.com
 japanesegirlfriend.com
 japanesegirlfriend.net
 japanesegirlfriends.com
 japanesegirlfucked.com
 japanesegirlies.com
-japanesegirll0ve.tumblr.com
-japanesegirllover.tumblr.com
 japanesegirlmovies.com
 japanesegirlphoto.com
 japanesegirlpussy.com
@@ -23788,7 +23190,6 @@ japanesehorses.com
 japanesehost.com
 japanesehostels.com
 japanesehotgirls.com
-japanesehotgirls.tumblr.com
 japanesehotmovies.com
 japanesehotnurse.com
 japanesehotporn.com
@@ -23836,7 +23237,6 @@ japaneseladies.com
 japaneselady.com
 japaneseladyboy.com
 japaneseladyboys.com
-japaneseladyboys.tumblr.com
 japaneselamps.com
 japaneseland.com
 japaneseleadershipcenter.com
@@ -23877,7 +23277,6 @@ japanesemarket.net
 japanesemassages.com
 japanesemasturbationvideos.com
 japanesemature.com
-japanesemature.tumblr.com
 japanesematures.com
 japanesematuretube.com
 japanesembtjp.com
@@ -23975,7 +23374,6 @@ japaneseporner.com
 japaneseporngalls.com
 japanesepornhd.com
 japanesepornhq.com
-japanesepornhub.com
 japanesepornimages.com
 japanesepornmov.com
 japanesepornmovies.net
@@ -24061,7 +23459,6 @@ japanesepornsluts.com
 japanesepornstar.net
 japanesepornstarhub.com
 japanesepornstarlist.com
-japanesepornstarpics.tumblr.com
 japanesepornstars.blogspot.ae
 japanesepornstars.blogspot.al
 japanesepornstars.blogspot.am
@@ -24152,12 +23549,10 @@ japanesepumajapan.com
 japanesepussy.com
 japanesepussy.net
 japanesepussy.org
-japanesepussy.tumblr.com
 japanesepussy.tv
 japanesepussycat.com
 japanesepussyclub.com
 japanesepussyfuck.com
-japanesepussypie.tumblr.com
 japanesepussyporn.com
 japanesepussyporno.com
 japanesepussys.com
@@ -24315,7 +23710,6 @@ japanesesextube.org
 japanesesextubes.com
 japanesesextubes.net
 japanesesexvideo.com
-japanesesexvideomovies.tumblr.com
 japanesesexvideos.com
 japanesesexwebcams.com
 japanesesexy.com
@@ -24390,7 +23784,6 @@ japanesesexygirls.com
 japanesesexyschoolgirls.com
 japaneseshabushabu.com
 japaneseshemales.org
-japaneseshemales.tumblr.com
 japaneseshemalesex.com
 japaneseshinto.com
 japaneseshinto.net
@@ -24481,7 +23874,6 @@ japaneseteensluts.com
 japaneseteenstube.com
 japaneseteenwallpaper.info
 japaneseteenz.com
-japaneseteenz.tumblr.com
 japanesetelephones.com
 japanesetemples.net
 japanesetest.com
@@ -24733,8 +24125,6 @@ japangals.net
 japangames2020.com
 japangarden.co.uk
 japangas.com
-japangayfk.tumblr.com
-japangaymovie.tumblr.com
 japangays.com
 japangems.com
 japangiftsseito.com
@@ -24748,7 +24138,6 @@ japangirls.canalblog.com
 japangirls.com
 japangirls.dk
 japangirls.org
-japangirlsaaa.tumblr.com
 japangirlsclips.com
 japangirlsmovie.com
 japangirlsporn.net
@@ -24761,7 +24150,6 @@ japangolfcourses.com
 japangolfmission.com
 japangorosjp.com
 japangorosshop.com
-japangrlz.tumblr.com
 japangrosoutlet.com
 japangroup.net
 japangrouptours.com
@@ -24812,7 +24200,6 @@ japanhotgucci.com
 japanhotlv.com
 japanhotmovie.com
 japanhotmovies.com
-japanhotties.tumblr.com
 japanhouse.co.th
 japanhouserestaurant.com
 japanhowtovideos.com
@@ -24899,7 +24286,6 @@ japanlez.com
 japanlifeandreligion.com
 japanlimited.com
 japanline.net
-japanlingerieporn.tumblr.com
 japanlink.de
 japanlink100.com
 japanlinked.com
@@ -24939,7 +24325,6 @@ japanmadness.com
 japanmagic.net
 japanmailbox.com
 japanmana.com
-japanmanhole.tumblr.com
 japanmanufacturing.com
 japanmarcbymarcjacobs.com
 japanmarcbymarcjacobsjp.com
@@ -25014,7 +24399,6 @@ japannucelar.com
 japannuclearfear.com
 japannudes.com
 japannudes.net
-japannudes.tumblr.com
 japannursery.com
 japanoakleyjp.com
 japanoakleysite.com
@@ -25231,7 +24615,6 @@ japanrose.com
 japanroulette.com
 japanrul.ru
 japanrules.com
-japans-porn.tumblr.com
 japans.com
 japans.me
 japansafe.com
@@ -25281,7 +24664,6 @@ japansex.net
 japansex.nl
 japansex.pochta.org
 japansex.site
-japansex.tumblr.com
 japansex.us
 japansexav.com
 japansexbot.com
@@ -25955,7 +25337,6 @@ japgirls.org
 japgirlz.com
 japgold.net
 japgun.hp.infoseek.co.jp
-japguru.tumblr.com
 japha.com
 japhar.org
 japhardcore.com
@@ -25964,7 +25345,6 @@ japhe.googlevideo.com
 japhelem.us
 japhen.chez.com
 japhentai.com
-japhers.tumblr.com
 japhethbalane.com
 japhh.googlevideo.com
 japhinraj.tk
@@ -25977,7 +25357,6 @@ japhornavan.us
 japhp.googlevideo.com
 japhq.com
 japhthor.com
-japhypaddedreblogs.tumblr.com
 japhyrd.mobi
 japi.com
 japiat.me
@@ -26212,7 +25591,6 @@ japonperde.com
 japonpornosu.com
 japonsex.com
 japonsex.dnip.net
-japonsexul.tumblr.com
 japonsexy.com
 japonshopping.com
 japonskienastolatkizjaponii.net
@@ -26241,7 +25619,6 @@ japoy09wap.tk
 japoyoqofroczoje.jusireipeqejeg.com
 japp09.icu
 jappalachia.com
-jappanese-sluts-online.tumblr.com
 jappapgifts.info
 jappart.com
 japparts.pl
@@ -26288,7 +25665,6 @@ japradabag-jponline.com
 japrailpass.com
 japrazz.com
 japrelatted.us
-japril13.tumblr.com
 japrint.com
 japris.com
 japroductions.com
@@ -26298,7 +25674,6 @@ japroent.us
 japronto.com.br
 japroperty.com
 japropertyinvest.com
-japs-porn.tumblr.com
 japsc.googlevideo.com
 japscat.com
 japscat.org
@@ -26319,7 +25694,6 @@ japsf.googlevideo.com
 japsilky.com
 japslap.com
 japslut.com
-japslut.tumblr.com
 japsonknees.com
 japsonknees.net
 japsportsspares.com.au
@@ -26501,7 +25875,6 @@ jaquenettakaycee.ru
 jaquenettashirlee.ru
 jaquenoud.com
 jaquero.com
-jaques-trap.tumblr.com
 jaquesamerica.com
 jaquescoffee.com
 jaquesmelted.com
@@ -26612,7 +25985,6 @@ jaraat.com
 jarabet.com
 jarabimusic.com
 jaraby.com
-jarachford.tumblr.com
 jaraczewo.com
 jaradchristianson.com
 jaraddawkins.com
@@ -26697,7 +26069,6 @@ jarcrew.com
 jard.it
 jard.pl
 jarda.den.sweb.cz
-jardantaboo-blog.tumblr.com
 jardaxbhd.club
 jardb.pl
 jardel.net
@@ -26986,7 +26357,6 @@ jardinsdosier.qc.ca
 jardinsduliban.com
 jardinsdusud.com
 jardinsecret.eu
-jardinsecret14.tumblr.com
 jardinsecretdunefemmeinfidele.blogspot.ae
 jardinsecretdunefemmeinfidele.blogspot.al
 jardinsecretdunefemmeinfidele.blogspot.am
@@ -27089,7 +26459,6 @@ jardon.com
 jardonnserotictales.com
 jardos.loan
 jardrew.com
-jardrich.tumblr.com
 jare132.info
 jareaart.com
 jarealestateguide.com
@@ -27106,7 +26475,6 @@ jared.babylon-services.com
 jared.babylon-software.com
 jared.babylon.com
 jared22marks.terapad.com
-jared7732.tumblr.com
 jareda.com
 jareda.net
 jaredabbrederis.com
@@ -27115,7 +26483,6 @@ jaredallenjersey.net
 jaredandapril.com
 jaredandcoralee.com
 jaredandmichelle.com
-jaredandmichelle.tumblr.com
 jaredarndt.com
 jaredbennett.com
 jaredbettridge.com
@@ -27137,7 +26504,6 @@ jaredcoppola.com
 jaredcosta.net
 jaredcsullivan.com
 jareddale.com
-jareddr121.tumblr.com
 jarededelsonnet.media-toolbar.com
 jaredeleek.com
 jaredellis.com
@@ -27199,12 +26565,10 @@ jaredrowe.com
 jareds-hide-away.com
 jareds-home.cc
 jaredsam.com
-jaredsgirls.tumblr.com
 jaredshatkin.com
 jaredsiegel.com
 jaredsmail.com
 jaredsmealprep.com
-jaredsolo.tumblr.com
 jaredstables.com
 jaredsullivan.com
 jaredtag.com
@@ -27236,7 +26600,6 @@ jarellmartin.com
 jarellmiller.com
 jarelmaks.com
 jarelzhang.com
-jaremyuncensored.tumblr.com
 jaren.net
 jaren50web.com
 jaren70sex.nl
@@ -27285,11 +26648,8 @@ jargus.de
 jarguzcu.com
 jarh.com
 jarh.net
-jarheadj1.tumblr.com
-jarheadjay.tumblr.com
 jarheadproduction.com
 jarheadproductions.com
-jarheadsmilf.tumblr.com
 jarheadsurplus.com
 jarhog.ru
 jarholdings.com
@@ -27429,14 +26789,12 @@ jarocha.com
 jarocharisma.com
 jarochos.net
 jarock.com
-jarockodigwingger.tumblr.com
 jarocools.com
 jarodcos.com
 jarodd.com
 jarodestes.com
 jarodethan.com
 jarodiverson.com
-jarodlew.tumblr.com
 jarodriguez.com
 jarodsfriends.free.fr
 jarof.com
@@ -27466,7 +26824,6 @@ jaropeners.net
 jaror.net
 jarorszolgalat.com
 jaros.at
-jarosan68.tumblr.com
 jarosciak.com
 jarosgoaltending.com
 jarosh.com
@@ -27483,7 +26840,6 @@ jarousek.com
 jarov.googlevideo.com
 jarovojfanatik.ru
 jaroweb.com
-jarpadsnackles.tumblr.com
 jarpainting.com
 jarpcylinders.com
 jarpeer.ru
@@ -27517,7 +26873,6 @@ jarraypedal.com
 jarre.it
 jarre.nm.ru
 jarrebha.com
-jarredb.tumblr.com
 jarredchurch.com
 jarredjohn.com
 jarredresembled.pw
@@ -27581,14 +26936,12 @@ jarrodswift.com
 jarrodwebb.com
 jarroguebullterriers.net
 jarroldthestore.co.uk
-jarronimo13.tumblr.com
 jarronmccubbin.com
 jarros.com
 jarrotts.com
 jarrous.com
 jarrow.ru
 jarrow272.clockworkmansion.com
-jarrra.tumblr.com
 jarrrr.com
 jarrydhansen.com
 jarrydjames.com
@@ -27635,7 +26988,6 @@ jartminundant.download
 jartna-fadaih.com
 jartna.com
 jartna.unblog.fr
-jartnasex.tumblr.com
 jartp-cdn.marketo.com
 jartp.googlevideo.com
 jartrealrubygrand.com
@@ -27652,7 +27004,6 @@ jarumpentul.com
 jarumpoker.me
 jarunk.com
 jaruqvyquqm.kz
-jarust.tumblr.com
 jarut.com
 jarute.com
 jarva.com
@@ -27660,7 +27011,6 @@ jarvakoda.ee
 jarvan.com
 jarvana.com
 jarvaomakerwin.com
-jarvcocker.tumblr.com
 jarveaare.ee
 jarverbpeta.blog.com
 jarville.jeunes.free.fr
@@ -27669,7 +27019,6 @@ jarvinzo.com
 jarviradio.fi
 jarvis-custom.com
 jarvis.adwyze.com
-jarvis.edu
 jarvisairfoil.com
 jarvisalston.com
 jarvisbrian.com
@@ -27740,10 +27089,6 @@ jas-townsend.com
 jas.isa-geek.com
 jas.st
 jas.validdevmachine.com
-jas0n665.tumblr.com
-jas3031.tumblr.com
-jas720xxx.tumblr.com
-jas9n.tumblr.com
 jasa-satpam.com
 jasa.adv.br
 jasaaau.tokyo
@@ -27860,7 +27205,6 @@ jasdil.com
 jasdjhgasjd.com
 jasdoc.arlynetracee.com
 jasdoiure.000webhostapp.com
-jase-a.tumblr.com
 jaseen.com
 jaseg.com
 jasek3.fileave.com
@@ -27868,7 +27212,6 @@ jaseks.nl
 jasel.us
 jaseline.com
 jaselle.com
-jaseme1.tumblr.com
 jasenchadwick.com
 jasenkorjaajaoulu.com
 jaseriesanimalcreations.com
@@ -27878,7 +27221,6 @@ jaset.com.mx
 jasewells.com
 jasex.com
 jasex.nl
-jasex046.tumblr.com
 jasexy.de
 jaseyjay.com
 jasez.ca
@@ -27895,8 +27237,6 @@ jasfn.googlevideo.com
 jasforwarding.com
 jasfrtryi.jiluketireotic.com
 jasft.googlevideo.com
-jasfuckinq.tumblr.com
-jasgirl11.tumblr.com
 jasglazier.germainececelia.com
 jasgoiyru.doyo.getbigg.ru
 jash.skyblog.com
@@ -27923,7 +27263,6 @@ jasicki.com
 jasicsllc.net
 jasid.com
 jasid.googlevideo.com
-jasidevil.tumblr.com
 jasidut.com
 jasidut.net
 jasielrandolph.com
@@ -27943,7 +27282,6 @@ jasiltraveltours.com.ph
 jasiltraveltours.com.ph
 jasiltraveltours.com.ph
 jasiltraveltours.com.ph
-jasiminemikhayla.tumblr.com
 jasims.com
 jasimsworld.com
 jasingam.net
@@ -27951,7 +27289,6 @@ jasinski-doradztwo.pl
 jasinski.net
 jasinsurance.com
 jasio.googlevideo.com
-jasiokowa.tumblr.com
 jasionka.com
 jasita.com
 jasite.com
@@ -27966,7 +27303,6 @@ jaskaur.com
 jasken.com
 jaski.nl
 jaskims.com
-jaskind26.tumblr.com
 jaskins.com.au
 jaskiran.com
 jaskirankaur.com
@@ -27980,7 +27316,6 @@ jaskot.com
 jaskova.com
 jaskula.com
 jaslb.googlevideo.com
-jaslco.tumblr.com
 jasle.com
 jasle.googlevideo.com
 jaslee.com
@@ -28142,7 +27477,6 @@ jasmiinakorhonen.000webhostapp.com
 jasmijnlingerie.nl
 jasmin-ahumada.us
 jasmin-almond.us
-jasmin-and-alexander.tumblr.com
 jasmin-beaute.com
 jasmin-bingaman.in
 jasmin-bourquin.us
@@ -28199,9 +27533,6 @@ jasmin19.de
 jasmin42.boobies-collection.com
 jasmin4you.co.uk
 jasmin77.com
-jasmina-sexyz.tumblr.com
-jasminaazz.tumblr.com
-jasminacrossdresser.tumblr.com
 jasminagui.com
 jasminahannie.in
 jasminairways.com
@@ -28310,8 +27641,6 @@ jasmine-escort.de
 jasmine-eury.us
 jasmine-fansler.us
 jasmine-griffiths.us
-jasmine-is-hot.tumblr.com
-jasmine-jae-hd720.tumblr.com
 jasmine-jewels.com
 jasmine-live.biz
 jasmine-live.com
@@ -28324,7 +27653,6 @@ jasmine-pegram.us
 jasmine-r.com
 jasmine-sex.com
 jasmine-sinclair-nude.com
-jasmine-sissy-bj69.tumblr.com
 jasmine-st-claire.com
 jasmine-stclaire.alt-porn-stars.com
 jasmine-sucht.de.nr
@@ -28360,7 +27688,6 @@ jasminebecketgriffith.com
 jasminebeeman.com
 jasminebet.com
 jasmineblack.org
-jasmineblackhdvideos.tumblr.com
 jasmineblackxxx.com
 jasmineblog.com
 jasminebound.com
@@ -28475,10 +27802,8 @@ jasminecourthotel.com
 jasminecreations.co.uk
 jasminedavies.com
 jasminedawn.com
-jasminedd.tumblr.com
 jasminedelaunay.com
 jasminedevine.com
-jasminediamond69.tumblr.com
 jasmineding.com
 jasminedirectory.com
 jasminedunn.com
@@ -28487,12 +27812,10 @@ jasminefashionmart.com
 jasminefineart.com
 jasmineforsberg.com
 jasminefoundation.com
-jasminefoxylove.tumblr.com
 jasminegallery.com
 jasminegarcia.com
 jasminegardenfallschurch.com
 jasminegeorge.com
-jasmineghair.tumblr.com
 jasminegibson.com
 jasminegirl.com
 jasminegirls.net
@@ -28520,13 +27843,10 @@ jasmineinc.com
 jasmineingram.com
 jasmineinsurance.com
 jasminejewels.com
-jasminejizz.tumblr.com
 jasminejohnston.com
-jasminejolie66.tumblr.com
 jasminejoliemab.ru
 jasminejones.com
 jasminejordan.com
-jasminejshusband.tumblr.com
 jasminejunction.tripod.com
 jasminekelly.com
 jasminekim.com
@@ -28609,7 +27929,6 @@ jasminesinclair.co.uk
 jasminesinclair.com
 jasminesjourney.com
 jasmineskies.com
-jasmineskinkydesires.tumblr.com
 jasmineskitchen.com
 jasminesmail.com
 jasminespa.net
@@ -28641,7 +27960,6 @@ jasminetsfantasy.com
 jasmineuore.com
 jasminev.com
 jasminevalexander.com
-jasminevanilla.tumblr.com
 jasminevirani.com
 jasminewatson.com
 jasminewebcam.org
@@ -28656,13 +27974,11 @@ jasminezy16
 jasminfischer.de
 jasminfree.com
 jasminfreecam.com
-jasmingaychat.tumblr.com
 jasminhammocks.co.uk
 jasminhouse.com
 jasmininfotech.com
 jasmininter.com
 jasminita.com
-jasminjewel69.tumblr.com
 jasminjuliano.com
 jasminka.cz
 jasminkora.com
@@ -28835,7 +28151,6 @@ jasminprivat.com
 jasminproductions.com
 jasminproperties.com
 jasminpuelmafuchs.com
-jasminpussy-love.tumblr.com
 jasminqbamh.blog.com
 jasminrent-a-car.gf
 jasminreviews.com
@@ -29068,18 +28383,12 @@ jason.pl
 jason.short.net
 jason.similarselection.org
 jason.xtrom.com
-jason2477.tumblr.com
-jason2o-deactivated20160117.tumblr.com
 jason35.com
-jason6ft5.tumblr.com
-jason888.tumblr.com
-jason92103xxx.tumblr.com
 jasonaamodt.com
 jasonaaron.com
 jasonabaldwin.com
 jasonabend.com
 jasonabend.net
-jasonace8.tumblr.com
 jasonadonis.com
 jasonads.com
 jasonagosta.com
@@ -29148,7 +28457,6 @@ jasonberends.com
 jasonbernabei.com
 jasonbernstein.com
 jasonbgabel.com
-jasonbhippo.tumblr.com
 jasonbible.com
 jasonbiblechurchmember.com
 jasonbiblemusic.com
@@ -29264,7 +28572,6 @@ jasondowdburgess.bryanjones.hrcoolguy.lcondie.luci
 jasondowdburgess.bryanjones.hrcoolguy.lcondie.luciennejackie.com
 jasondrawert.com
 jasondsouza.com
-jasondumdidum.tumblr.com
 jasondupont.com
 jasonduran.com
 jasondwebb.com
@@ -29296,7 +28603,6 @@ jasonfinnigan.com
 jasonfm.nl
 jasonfoltz.com
 jasonfoo.com
-jasonfortner1.tumblr.com
 jasonfowlds.com
 jasonfriend.co.uk
 jasonfstroud.com
@@ -29315,12 +28621,10 @@ jasongo.com
 jasongoh.com
 jasongoin.com
 jasongoldrealty.com
-jasongon545.tumblr.com
 jasongraber.com
 jasongrier.com
 jasongross.com
 jasongroup.com
-jasongsq.tumblr.com
 jasonhair.com
 jasonhallphoto.com
 jasonhamel.com
@@ -29383,8 +28687,6 @@ jasonjermaine.com
 jasonjessica.com
 jasonjessie.com
 jasonjiang.com
-jasonjones3839.tumblr.com
-jasonk2007.tumblr.com
 jasonkalman.com
 jasonkapalka.com
 jasonkautz.com
@@ -29419,7 +28721,6 @@ jasonlay.com
 jasonlazar.com
 jasonlbaptiste.com
 jasonleach.com
-jasonlebel.tumblr.com
 jasonlebrun.com
 jasonleeburns.com
 jasonleechurch.com
@@ -29475,7 +28776,6 @@ jasonmeyer.com
 jasonmichaelbernstein.com
 jasonmighty.com
 jasonmillerracing.com
-jasonmillet.tumblr.com
 jasonmilner.com
 jasonmintz.com
 jasonmitchellmarketing.com
@@ -29529,7 +28829,6 @@ jasonpierrepauljerseys.com
 jasonpisano.com
 jasonplancaster.com
 jasonplant.malinderheta.com
-jasonplays1234.tumblr.com
 jasonpochapsky.com
 jasonposey.com
 jasonpost.com
@@ -29572,13 +28871,11 @@ jasonrucker.com
 jasonrules.com
 jasonrulesudont.com
 jasons-bookmarks.com
-jasons-gay-world.tumblr.com
 jasons.co.nz
 jasons.com
 jasonsallit.hugobozzz.dargeep.gymrat.jadabetta.com
 jasonsaltiel.com
 jasonsandilands.com
-jasonsandjustinsunite.tumblr.com
 jasonsartain.ginevrabernice.com
 jasonsbarbershop.com
 jasonsbiz.com
@@ -29618,7 +28915,6 @@ jasonsmail.com
 jasonsmetal.com
 jasonsmithlaw.com
 jasonsmyth.com
-jasonsnakedladies.tumblr.com
 jasonsoft.com
 jasonson.com
 jasonsorenson.com
@@ -29651,7 +28947,6 @@ jasonstephen.com
 jasonstephenali.com
 jasonsteward.com
 jasonstewart.net
-jasonstjamesxxx.tumblr.com
 jasonstone.tv
 jasonstowe.com
 jasonstraub.com
@@ -29664,7 +28959,6 @@ jasonsullivan.com
 jasonsummerfield.com
 jasonsun.com
 jasonswood.com
-jasonsxxxreblogs.tumblr.com
 jasontang.com
 jasontaplin.com
 jasontaylor99.com
@@ -29673,7 +28967,6 @@ jasontec.com
 jasontheepic.blogspot.com
 jasonthejailer.com
 jasonthelenshop.com
-jasontheleo.tumblr.com
 jasonthornton.com
 jasonthurber.com
 jasontoll.com
@@ -29685,7 +28978,6 @@ jasontrick.com
 jasonturetzky.com
 jasonturk.com
 jasontutt.jemimahcorrine.com
-jasontylee.tumblr.com
 jasontylergallery.com
 jasontz.com
 jasonunbound.com
@@ -29734,7 +29026,6 @@ jasonyzwong.com
 jasonzhangjie.net
 jasonzielinski.com
 jasoomcars.com
-jasoplec.tumblr.com
 jasopslot.nl
 jasor.com
 jasoren1.com
@@ -29746,7 +29037,6 @@ jasp.bitacoras.com
 jaspa-k.com
 jaspapeai.net
 jaspapnad.info
-jaspare-vore76.tumblr.com
 jaspas.com
 jaspe7.info
 jaspebungalows.com.ar
@@ -29755,7 +29045,6 @@ jaspemodas.com.br
 jaspenhof.com
 jaspensar.com
 jasper-inc.com
-jasper-rolls.tumblr.com
 jasper-white.com
 jasper.112.2o7.net
 jasper.d3.sc.omtrdc.net
@@ -29766,7 +29055,6 @@ jasper.he.net
 jasper.nswebhost.com
 jasper.ojaru.jp
 jasper.skircr.com
-jasper618.tumblr.com
 jasperactivities.com
 jasperandgems.com
 jasperandlenore.com
@@ -29787,8 +29075,6 @@ jasperchurchofchrist.com
 jaspercn.com
 jaspercompliance.com
 jaspercountychurchofchrist.com
-jaspercountyin.gov
-jaspercountysc.gov
 jaspercountyschools.com
 jasperd.com
 jasperdash.com
@@ -29880,10 +29166,8 @@ jasperhome.com
 jasperhorn.com
 jasperhotels.net
 jasperhoward.com
-jasperindiana.gov
 jasperinn.com
 jasperizing6.tubesmobile.com
-jasperjamesxxx.tumblr.com
 jasperkids.com
 jasperl.com
 jasperlight.com
@@ -29901,11 +29185,9 @@ jaspernewton.com
 jasperparkchurch.com
 jasperpd.com
 jasperpetoys.com
-jasperpotmaster.tumblr.com
 jasperreservations.com
 jasperroofing.net
 jaspers-porndepot.com
-jaspers01.tumblr.com
 jaspersbabes.com
 jaspersbrushbandb.com.au
 jasperschaffer.com
@@ -29928,7 +29210,6 @@ jasperspub.com
 jaspersuter.com
 jaspertaylor.com
 jaspertguitar.com
-jasperthor.tumblr.com
 jaspertoys.com
 jaspertramway.com
 jasperunitedchurch.com
@@ -29964,7 +29245,6 @@ jasrah.com
 jass.com
 jassa.us
 jassas.com
-jassc3.tumblr.com
 jassco.com
 jassebombscans.free.fr
 jassem.net
@@ -29979,7 +29259,6 @@ jassentekoop.com
 jassenwinkel.com
 jassid.com
 jassid.stream
-jassieblack.tumblr.com
 jassiejames.com
 jassieldent.com
 jassigilllive.com
@@ -30008,7 +29287,6 @@ jasta-hr.com
 jastabaut.com
 jastac.com
 jastalentsnmodels.com
-jastayrook.tumblr.com
 jastb.googlevideo.com
 jaste.googlevideo.com
 jastemtlamod.wazoe.com
@@ -30041,7 +29319,6 @@ jasueter.co.uk
 jasufrocvoru.jorireeqefej.com
 jasumall.com
 jasumin.be
-jasun402013.tumblr.com
 jasun485.000webhostapp.com
 jasuyefrocgifa.jarefofreyik.com
 jasvajjcbjdtkqd33amyz.net
@@ -30456,7 +29733,6 @@ jaunie.com
 jaunimas.com
 jaunimas.lt
 jaunite.com
-jaunjones.tumblr.com
 jaunohe.blog.com
 jaunt-gate.net
 jaunt-googleroutes.xyz
@@ -30508,7 +29784,6 @@ jauranaturoville.com
 jauraprimeboulevard.com
 jaurc.googlevideo.com
 jaurd.us
-jauregay98.tumblr.com
 jauregia.net
 jauregolf.com
 jaureguiimports.com
@@ -30535,7 +29810,6 @@ jausoft.com
 jaust.com
 jaustea.blog.com
 jaustinforbes.com
-jaustinforever.tumblr.com
 jauto.co.kr
 jauto.net
 jautour.net
@@ -31356,7 +30630,6 @@ javag.com
 javagalonline.info
 javagame.com
 javagame.net
-javagame.sourceforge.net
 javagameplay.com
 javagames.ru
 javagamez.com
@@ -31367,7 +30640,6 @@ javagenie.net
 javagenius.com
 javages.com
 javagift.com
-javagirl69.tumblr.com
 javagood.com
 javagoogle.net
 javagraphics.com
@@ -31704,7 +30976,6 @@ javashakes.com
 javashare.com
 javasharp.com
 javasiansex.com
-javasiaporn.tumblr.com
 javaside.com
 javasign.com
 javasimple.com
@@ -31990,7 +31261,6 @@ javdepot.com
 javdesires.com
 javdict.disqus.com
 javdirect.com
-javdirect.tumblr.com
 javdiscounts.club
 javdizzy.com
 javdl.pro
@@ -32069,7 +31339,6 @@ javels.com
 javema.cl
 javemoveis.com.br
 javer.com
-javer391.tumblr.com
 javerfemic.com
 javeriana.edu.co
 javeris.com
@@ -32083,7 +31352,6 @@ javetc.com
 javeth.com
 javety.stream
 javeu.com
-javeuhd.tumblr.com
 javeview.com
 javevimu.co.tv
 javex.club
@@ -32245,7 +31513,6 @@ javidolgalleries.info
 javidolmovies.com
 javidolphotos.com
 javidols.net
-javidolsblog.tumblr.com
 javidoltop.blogspot.com
 javielitospizza.com
 javielsker.com
@@ -32313,9 +31580,7 @@ javiermir.com
 javiermolina.com
 javiermonteagudo.com
 javiermoran.com
-javiermtzspace.tumblr.com
 javiernoguerol.com
-javierocortes.tumblr.com
 javierorti.com
 javierosorio.com
 javierperez.mine.nu
@@ -32421,7 +31686,6 @@ javlink.me
 javlink.net
 javlink.org
 javlinsolutions.com
-javlipstory.tumblr.com
 javlittle.com
 javload.com
 javloadhd.com
@@ -32492,7 +31756,6 @@ javocoolsoftware.com
 javoh.googlevideo.com
 javolts.com
 javon.tv
-javon44.tumblr.com
 javondemand.co.uk
 javondemand.com
 javondemand.net
@@ -32542,7 +31805,6 @@ javporn.com
 javporn.in
 javporn.info
 javporn.net
-javpornhub.com
 javpornmovies.com
 javporno.com
 javpornstars.com
@@ -32572,7 +31834,6 @@ javsale.net
 javscene.com
 javsd.net
 javsea.info
-javsearch.tumblr.com
 javsector.com
 javseen.com
 javservice.net
@@ -32613,7 +31874,6 @@ javstore-hd.com
 javstore.com
 javstorehd.com
 javstorm.com
-javstream.tumblr.com
 javstream.tv
 javstream365.com
 javstreamhd.com
@@ -32690,12 +31950,10 @@ javzoo.org
 javzooso.com
 jaw-dropping-news.com
 jaw-dropping.com
-jaw-droppingwomen.tumblr.com
 jaw.or.at
 jaw.szlftjcm.in
 jaw3ddaici.info
 jaw4ever.com
-jaw631.tumblr.com
 jawa-reisen.de
 jawa.dk
 jawa.net
@@ -32720,7 +31978,6 @@ jawafreunde.de
 jawafrnblav.jegenefresu.com
 jawahar.net
 jawaiianbbq.com
-jawaja35.tumblr.com
 jawajawa.com
 jawak.com
 jawaker.com
@@ -32779,7 +32036,6 @@ jawboning.com
 jawbonz.com
 jawbop.com
 jawbox.com
-jawbreaker1992.tumblr.com
 jawbreakercandy.com
 jawbreakerjunction.com
 jawbreakerz.com
@@ -33019,7 +32275,6 @@ jawsgear.net
 jawsi.googlevideo.com
 jawskoft.com
 jawsl.googlevideo.com
-jawslightning.tumblr.com
 jawslipcare.com
 jawsmail.com
 jawsmanager.com
@@ -33075,12 +32330,9 @@ jawysonne.com
 jawzb.luxuryxmasgifts.ru
 jax-cafe.com
 jax-deco.com
-jax-sluts-submit.tumblr.com
 jax-ultimate.com
 jax-vr.com
 jax.iicoeeurooptic.net
-jax1005.tumblr.com
-jax63-polyporn.tumblr.com
 jax69.tripod.com
 jaxadvanceddentistry.com
 jaxag.com
@@ -33088,8 +32340,6 @@ jaxaikido.com
 jaxajikolozatil.info
 jaxallergy.net
 jaxam.com
-jaxam69.tumblr.com
-jaxanne40.tumblr.com
 jaxapothecarium.com
 jaxappliancerepair.com
 jaxaq.com
@@ -33111,12 +32361,9 @@ jaxbeachwebdesign.com
 jaxbean.co.uk
 jaxbh.googlevideo.com
 jaxbible.com
-jaxbihorney.tumblr.com
-jaxbikinibabes.tumblr.com
 jaxbizconsulting.com
 jaxbj.googlevideo.com
 jaxbjj.com
-jaxblade.tumblr.com
 jaxbm.googlevideo.com
 jaxbnnnlne.euroentertainments.com
 jaxboss.publicvm.com
@@ -33230,7 +32477,6 @@ jaxia.com
 jaxibiqhheiehnq.co.uk
 jaxie.com
 jaxifyinternetbusiness.com
-jaximvu.tumblr.com
 jaxin.de
 jaxington.com
 jaxinkmag.com
@@ -33242,7 +32488,6 @@ jaxizsnm.biz
 jaxjade.com
 jaxjagfl.com
 jaxjax.com
-jaxjazzyjim.tumblr.com
 jaxkb.googlevideo.com
 jaxke.googlevideo.com
 jaxkennel.com
@@ -33259,7 +32504,6 @@ jaxle.com
 jaxlegalaid.org
 jaxlender.com
 jaxleong.com
-jaxli365.tumblr.com
 jaxlibrary.com
 jaxlifechurch.com
 jaxliquors.com
@@ -33270,12 +32514,10 @@ jaxlocalmarket.com
 jaxluxuryrentalsandhomes.com
 jaxma.com
 jaxmac.com
-jaxman52077.tumblr.com
 jaxmarijuanadoctor.com
 jaxmarijuanadoctors.com
 jaxmarinaforsale.com
 jaxmarketplace.com
-jaxmaster21.tumblr.com
 jaxmbkhyr.com
 jaxmc.googlevideo.com
 jaxmedic.com
@@ -33303,7 +32545,6 @@ jaxonairportparking.com
 jaxondesignworks.com
 jaxonjaganov.com
 jaxonjensen.com
-jaxonsmomma1.tumblr.com
 jaxontherun.com
 jaxonwolf.com
 jaxophthalmology.com
@@ -33320,18 +32561,15 @@ jaxpetclub.com
 jaxpetsclub.com
 jaxpfuzrswwdniolm.net
 jaxpg.googlevideo.com
-jaxplayground.tumblr.com
 jaxplumber.com
 jaxplumbing.com
 jaxpm.co
 jaxpo.com
 jaxpolitics.com
-jaxpornstars.tumblr.com
 jaxporttrade.com
 jaxpot.com
 jaxpotshop.com
 jaxpr.googlevideo.com
-jaxpratt.tumblr.com
 jaxprocessserver.com
 jaxprop.com
 jaxpt.com
@@ -33348,7 +32586,6 @@ jaxriley.com
 jaxroofquote.com
 jaxrugby.org
 jaxrv.com
-jaxryker.tumblr.com
 jaxsalon.com
 jaxsaxes.com
 jaxsb.googlevideo.com
@@ -33357,11 +32594,9 @@ jaxservice.com
 jaxsh.googlevideo.com
 jaxshack.com
 jaxshells.org
-jaxsissywhore.tumblr.com
 jaxsleague.com
 jaxsnax.com
 jaxsolarshop.com
-jaxsonporn.tumblr.com
 jaxsonqple340septictanksblog.mybjjblog.com
 jaxsound.com
 jaxsp.googlevideo.com
@@ -33426,10 +32661,7 @@ jaxxtr.com
 jaxxx-sex-shop.co.uk
 jaxxx-sex-shop.com
 jaxxx.com
-jaxxx69.tumblr.com
 jaxxxamsterdam.com
-jaxxxes.tumblr.com
-jaxxxinu.tumblr.com
 jaxxyisboss.zapto.org
 jaxya.googlevideo.com
 jaxyi.googlevideo.com
@@ -33442,18 +32674,14 @@ jaxz.com
 jaxza.com
 jaxzjs.info
 jaxzyboo.com
-jay-ashton.tumblr.com
 jay-christian.com
-jay-dees.tumblr.com
 jay-factor.com
 jay-fantasy-escort.co.uk
-jay-gotit.tumblr.com
 jay-harold.net
 jay-jay69.skyrock.com
 jay-jays-fetischkunst.de
 jay-k.com
 jay-keetrailerservice.com
-jay-kenn.tumblr.com
 jay-lallen.myjino.ru
 jay-law.com
 jay-lees.de
@@ -33461,7 +32689,6 @@ jay-model.nl
 jay-moore-realestate.com
 jay-nj.com
 jay-s.com
-jay-saun.tumblr.com
 jay-technologie.com
 jay-tepper.com
 jay-ztickets.com
@@ -33475,15 +32702,10 @@ jay.ph
 jay.shao.org
 jay001.com
 jay10vps.website
-jay110011.tumblr.com
-jay17481.tumblr.com
 jay18.com
 jay1q.voluumtrk.com
-jay32470.tumblr.com
 jay6.com
-jay60901.tumblr.com
 jay7.com
-jay9816.tumblr.com
 jaya-marinesafety.com
 jaya.marieamethyst.com
 jaya4india.com
@@ -33500,7 +32722,6 @@ jayacom.com
 jayafitness.com
 jayafoods.com
 jayafter.net
-jayagay.tumblr.com
 jayagroup.net
 jayahacot.com
 jayaherbalcleanse.com
@@ -33563,7 +32784,6 @@ jayaretattooer.com
 jayarguelles.com
 jayarts.com
 jayasinghe.com
-jayasn.tumblr.com
 jayasreetravels.com
 jayasrilanka2.tk
 jayassociates.com
@@ -33583,8 +32803,6 @@ jayavarmaninc.com
 jayawardena.com
 jayaway.com.au
 jayawijaya.com
-jayb2654.tumblr.com
-jayb4u2day.tumblr.com
 jaybach.com
 jaybachatero.com
 jaybalmer.com
@@ -33613,25 +32831,19 @@ jaybirdheadphones.com
 jaybirdjunction.com
 jaybirdplumbing.com
 jaybirds.com
-jaybirds1.tumblr.com
 jaybirdsmarket.com
 jaybit.ru
-jaybizforyou.tumblr.com
 jaybizz.com
-jaybjay69.tumblr.com
 jayblack.net
 jayblade.com
-jayblakecuckold.tumblr.com
 jayblazellc.com
 jayblind.com
 jaybluetape.com
-jayboobs13.tumblr.com
 jaybooking.com.ua
 jaybookman.com
 jayboutique.com
 jaybowman.com
 jaybox.com
-jayboy159.tumblr.com
 jayboyd.t15.org
 jayboys.com
 jaybrainard.com
@@ -33648,8 +32860,6 @@ jayburkholder.net
 jayburns.com
 jaybyrd.com
 jayc.info
-jayc62002.tumblr.com
-jaycabs71.tumblr.com
 jaycadams.com
 jaycafe.com
 jaycant.nellgabrielle.com
@@ -33668,7 +32878,6 @@ jayceesfavors.com
 jaycek.com
 jayceon.com
 jayceonyjx.f3322.net
-jaycereinhardt.tumblr.com
 jaycewilson.com
 jaychallenge.com
 jaychaney.com
@@ -33682,7 +32891,6 @@ jaychristiansonphotography.com
 jaychurch.com
 jaychurchill.com
 jaycie.tv
-jayciesissyfag.tumblr.com
 jaycin.com
 jayclothing.com
 jaycn.com
@@ -33731,8 +32939,6 @@ jaycy.com
 jaycy.googlevideo.com
 jaycy.net
 jayd-lovely.net
-jayd093.tumblr.com
-jayd690999.tumblr.com
 jaydaad.com
 jaydablack.com
 jaydabrook.com
@@ -33851,7 +33057,6 @@ jaydelano.com
 jaydelove.com
 jaydely.com
 jaydemail.com
-jayden-jaymes-hdvideos.tumblr.com
 jayden-jaymes.net
 jayden.com.au
 jaydenalanmoore.com
@@ -33859,14 +33064,12 @@ jaydenandcaitlynn.com
 jaydenbakerportfolio.com
 jaydencole.net
 jaydendoan.com
-jaydengreyxxx.tumblr.com
 jaydenjames.biz
 jaydenjamesporn.com
 jaydenjamessex.info
 jaydenjaymes.cc
 jaydenjaymes.com
 jaydenjaymes.org
-jaydenjaymes2015.tumblr.com
 jaydenjaymesblog.com
 jaydenjaymesblog.net
 jaydenjaymeslove.com
@@ -33875,13 +33078,10 @@ jaydenjaymesonline.com
 jaydenjaymespictures.com
 jaydenjaymesplanet.com
 jaydenjaymesxxx.com
-jaydenjon.tumblr.com
 jaydenkeith.com
 jaydenkhanlian.com
-jaydenleehdvideos.tumblr.com
 jaydenlovecaitlynn.com
 jaydenmichelejaymes.com
-jaydenpierson.tumblr.com
 jaydensadventures.com
 jaydenscoffee.com
 jaydensimonesex.info
@@ -33894,10 +33094,7 @@ jaydentmalloy.com
 jaydentylermalloy.com
 jaydenwatson.com
 jaydenwatson.net
-jaydenyuki.tumblr.com
 jaydeo.com
-jaydes267.tumblr.com
-jaydeshotspot.tumblr.com
 jaydespanties.com
 jaydharod.com
 jaydi1.com
@@ -33917,26 +33114,20 @@ jaydonaldso.info
 jaydong.com
 jaydot.com
 jaydream.com
-jaydubb3333.tumblr.com
 jaydubin.com
 jaydubtech.com
-jaydubz1002.tumblr.com
 jaydurga.com
 jaydusard.com
-jayduvallovelace.tumblr.com
-jaydz81.tumblr.com
 jaye.perdew33.dunbareyecare.com
 jayeapp.com
 jayear.com
 jayearnmoneynig.pparent.rmfurbee.donna.concordiake
 jayearnmoneynig.pparent.rmfurbee.donna.concordiakellen.com
-jayebaylis.tumblr.com
 jayedahmed.com
 jayedavidson.com
 jayedwards.com
 jayees.com
 jayelectricalcnl.com
-jayelgoeshard.tumblr.com
 jayellyiotmusicstore.com
 jayemariegreen.com
 jayeminvestment.com
@@ -33948,11 +33139,9 @@ jayengineeringvapi.com
 jayenphoto.com
 jayeriddler.com
 jayerlaurent.com
-jayerose.tumblr.com
 jayes.2288.org
 jayeschlesinger.com
 jayesh.com
-jayesh1105.tumblr.com
 jayeshjhaveri.com
 jayessay.com
 jayest.date
@@ -33977,7 +33166,6 @@ jayfinswork.com
 jayfire.com
 jayfirstbaptist.com
 jayfit.com
-jayfitness68.tumblr.com
 jayfive.com
 jayflats.com
 jayflies.robilloyd.hfallon.reflex.deirdremaia.com
@@ -34000,14 +33188,11 @@ jayfresh.com
 jayfs.com
 jayfu.googlevideo.com
 jayfulcellc.com
-jayfun4ya.tumblr.com
 jayfund.com
-jayfunguy.tumblr.com
 jaygaines.com
 jaygarish.com
 jaygaskill.com
 jaygay.com
-jaygayfur.tumblr.com
 jayge.com
 jayge.net
 jaygee.co.uk
@@ -34019,23 +33204,19 @@ jayglynn.com
 jayglynnracing.co.uk
 jaygoldby.com
 jaygomixer.com
-jaygordon1981.tumblr.com
 jaygreenberg.com
 jaygreentree.com
 jaygreentree.ourtoolbar.com
 jaygreg.com
 jayh.org
 jayha.com
-jayhalstead.tumblr.com
 jayham.com
-jayhammerbi.tumblr.com
 jayhampton.com
 jayhan.com
 jayhana.com
 jayhankins.com
 jayharold.net
 jayhasbrouck.com
-jayhawk27.tumblr.com
 jayhawkbookstore.com
 jayhawkcats.com
 jayhawkconsulting.com
@@ -34089,7 +33270,6 @@ jayisbutts.com
 jayischillin.com
 jayisgames.com
 jayism.com
-jayismymaster.tumblr.com
 jayitaindia.com
 jayjacksonart.com
 jayjacksononline.com
@@ -34099,14 +33279,9 @@ jayjam.com
 jayjanta.com
 jayjasper.com
 jayjay-model.blogdrive.com
-jayjay695.tumblr.com
-jayjay8899.tumblr.com
-jayjay965.tumblr.com
-jayjayhelps-rph.tumblr.com
 jayjayjohanson.com
 jayjaymodel.com
 jayjays-fetischkunst.de
-jayjayspussyadventure.tumblr.com
 jayjernigan.com
 jayjess.com
 jayjohnsonphotography.com
@@ -34116,11 +33291,9 @@ jayjoint.com
 jayjoo.com
 jayjot.com
 jayjou.com
-jayjuice987.tumblr.com
 jayka.icu
 jaykahn.com
 jaykamp.com
-jaykay69bg.tumblr.com
 jaykevin.com
 jaykhodiyarelectric.in
 jaykhoffman.com
@@ -34139,26 +33312,18 @@ jaykuba.com
 jaykuba.net
 jaykudva.com
 jaylabelle.com
-jaylablue.tumblr.com
-jaylabluexo.tumblr.com
-jaylabluexxx.tumblr.com
-jaylaflare.tumblr.com
 jaylamay.com
 jaylamping.com
 jaylamusic.com
 jaylan.com
-jaylandford.tumblr.com
 jaylangdon.com
 jaylaowens.com
 jaylaphamforjudge.com
-jaylaslutworld.tumblr.com
 jaylatourart.com
 jaylclendenin.com
 jayleblanc.com
 jaylee.uk.com
 jayleenblack.com
-jaylen305.tumblr.com
-jaylen678.tumblr.com
 jaylenandtanner.com
 jayleneal.com
 jaylenerio.net
@@ -34168,10 +33333,7 @@ jayleonard.com
 jaylevitt.com
 jaylife.com
 jaylike.com
-jaylikesdick.tumblr.com
 jaylillie.com
-jaylittle73.tumblr.com
-jayliv0094.tumblr.com
 jayll.com
 jaylnknight.com
 jaylnmodeling.com
@@ -34192,7 +33354,6 @@ jaylynncorneil.com
 jaylynnsinnzsex.info
 jaylynnwang.com
 jaylynphoto.com
-jaymac9922.tumblr.com
 jaymacawards.com
 jaymacdonald.com
 jaymacks.com
@@ -34206,7 +33367,6 @@ jaymalinowski.com
 jaymallinphotos.com
 jaymama.com
 jaymamma.com
-jayman671.tumblr.com
 jaymancash.com
 jaymans.com
 jaymariano.com
@@ -34254,7 +33414,6 @@ jaymesyoung.com
 jaymetaylor.com
 jaymfour.aurliegleda.com
 jaymic.co.uk
-jaymieharb51.tumblr.com
 jaymigo.com
 jaymillion.com
 jayminca.com
@@ -34264,7 +33423,6 @@ jaymodsec.com
 jaymonet.com
 jaymoney.com
 jaymoney.ru
-jaymonstarrxxx.tumblr.com
 jaymoody.com
 jaymoproductions.com
 jaymorgan.com
@@ -34273,7 +33431,6 @@ jaymourshowerdoors.com
 jaymoyes.com
 jaymport.com
 jaymsblondesecretagent69.com
-jaymuscle69.tumblr.com
 jaymwt.ws
 jaymyers.com
 jaymyrdal.com
@@ -34304,9 +33461,6 @@ jaynehogan.com
 jaynehoustonproducts.com
 jaynellemsex.info
 jaynelllanna.com
-jaynelovecdzinha.tumblr.com
-jaynelovesdick.tumblr.com
-jaynemansfield-poedie.tumblr.com
 jaynemurray.com
 jayneo.com
 jaynepal.com
@@ -34326,9 +33480,7 @@ jaynesstreetchurch.com
 jaynestar.com
 jaynestars.com
 jaynesullivan.com
-jaynesworld.tumblr.com
 jayneteenmodel.com
-jaynetlove.tumblr.com
 jayneursagail.com
 jaynewiggins.com
 jayneygoddard.com
@@ -34340,17 +33492,13 @@ jaynhomes.com
 jayni.googlevideo.com
 jaynie.com
 jaynine.com
-jaynippz.tumblr.com
-jaynlus.tumblr.com
 jayno.com
 jayno.googlevideo.com
 jayno.swastikano.net
 jaynorth.net
-jaynorthcote.tumblr.com
 jaynotes.com
 jaynu.googlevideo.com
 jaynz.com
-jayo-xxx.tumblr.com
 jayo.swbyo.wildfire.finestkindboatyard.com
 jayoath.com
 jayoc.com
@@ -34377,7 +33525,6 @@ jayparis.com
 jaypayne.com
 jaypayneracing.com
 jaypbfoods.000webhostapp.com
-jaypeak1971.tumblr.com
 jaypeakresort.com
 jaypeakskiing.com
 jaypeakvermont.org
@@ -34419,9 +33566,7 @@ jayred.com
 jayreid.com
 jayren.com
 jayrharrington.com
-jayrichards89.tumblr.com
 jayrico.com
-jayright69.tumblr.com
 jayrill.com
 jayrivers.com
 jayrobb.com
@@ -34440,10 +33585,7 @@ jayru.com
 jayruby.com
 jayrun.com
 jays-free-nude-pictures.com
-jays-n-remy.tumblr.com
 jays-paidmail.com
-jays-tell-tale.tumblr.com
-jays-xxx-images.tumblr.com
 jays-xxx-links.com
 jays-xxx-porn-list.com
 jays20.ethosdistro.com
@@ -34471,7 +33613,6 @@ jayschenck.com
 jayschool.com
 jayscleaning.com
 jaysclub.com
-jayscockandfriends.tumblr.com
 jayscoffee.com
 jayscollection.com
 jaysconstruction.com
@@ -34482,14 +33623,11 @@ jaysdealy.com
 jaysdigitalworks.com
 jayseale.com
 jaysec.com
-jaysel.tumblr.com
 jaysells.com
 jaysen.com
-jaysenhxxx.tumblr.com
 jayservices.com
 jaysesblogs.blogspot.com
 jaysex.com
-jaysex.tumblr.com
 jaysexy.com
 jaysfashions.com
 jaysfitchurch.com
@@ -34501,18 +33639,15 @@ jaysgalleries.com
 jaysgardengazebos.ca
 jaysgirls.com
 jaysgirls.net
-jaysgirls201r3xv.tumblr.com
 jaysgoldnuggets.com
 jaysgrill.com
 jaysguitar.com
 jaysguitars.com
 jayshafertinyhouse.com
 jayshane.com
-jayshard.tumblr.com
 jayshawnbeatz.com
 jayshobbyland.com
 jayshow.com
-jaysie32.tumblr.com
 jaysigns.net
 jaysilverdp.com
 jaysilveriaforpresident.com
@@ -34537,7 +33672,6 @@ jayslax.com
 jayslee.com
 jayslimited.com
 jayslimo.com
-jayslingthedick.tumblr.com
 jayslist.com
 jayslistings.com
 jayslive.com
@@ -34677,20 +33811,16 @@ jaysremodeling.com
 jaysson.com
 jayssondiaz.com
 jaysstraightguys.com
-jaysta23.tumblr.com
 jaystars.com
 jaystarxxx.com
 jaysteinmetz.com
-jaystgirls.tumblr.com
 jaysthumbs.com
 jaystile.com
 jaystire.com
 jaystix.com
 jaystockwell.com
 jaystorage.com
-jaystradies.tumblr.com
 jaystuartglovermusic.com
-jaystud237.tumblr.com
 jaystuff.com
 jaystv.com
 jaystyles.com
@@ -34705,8 +33835,6 @@ jaysxlist.com
 jaysxxxblogs.com
 jaysxxxlinks.com
 jayt.com
-jayt779.tumblr.com
-jaytaan.tumblr.com
 jaytakeapic.com
 jaytalbot.com
 jaytalks.com
@@ -34721,9 +33849,7 @@ jaytek.com
 jaytgp.com
 jayth.googlevideo.com
 jaythakkar.com
-jaytheartist2.tumblr.com
 jaythecarguy.com
-jaythepansexualcambion.tumblr.com
 jaythornton.tripod.com
 jayti.com
 jaytie.com
@@ -34743,10 +33869,8 @@ jaytree.com
 jaytreece.name
 jaytronics.com
 jaytronics.com.au
-jaytroyxxx.tumblr.com
 jaytruman.do.sapo.pt
 jayturchin.com
-jaytw.tumblr.com
 jayty.googlevideo.com
 jaytynerfiduciary.com
 jayu.com
@@ -34763,14 +33887,11 @@ jayvaquer.com
 jayvaughn.com
 jayvd.googlevideo.com
 jayveedance.com
-jayveedc.tumblr.com
 jayveedesigns.com
 jayveer.com
-jayvers69.tumblr.com
 jayvg.googlevideo.com
 jayvi.googlevideo.com
 jayvilla.com
-jayvo420.tumblr.com
 jayvogel.com
 jaywalkercases.com
 jaywalkermusic.com
@@ -34793,35 +33914,25 @@ jaywok.com
 jaywood.com
 jaywurts.com
 jayxla.com
-jayxmuscle.tumblr.com
 jayxpromotions.com
 jayxxx.com
-jayy2013uk.tumblr.com
 jayyb.googlevideo.com
 jayyed.com
-jayygotit.tumblr.com
 jayyh.googlevideo.com
-jayyjcam.tumblr.com
 jayyonglee.com
-jayywesst.tumblr.com
-jayyy90.tumblr.com
-jayyyykings.tumblr.com
 jayzblack.com
 jayzee.net
 jayzing.com
-jayzippo.tumblr.com
 jayzlyrics.com
 jayznye.com
 jayzslyrics.com
 jayzsongs.com
 jayztgp.com
 jayztix.com
-jayzxc.tumblr.com
 jaz-aachen.de
 jaz-alart.us
 jaz2sell.com
 jaz4atot.com
-jaz8121.tumblr.com
 jaz_2000_10.naturaldrugmall.com
 jazabiat.com
 jazafayrecalan.com
@@ -34904,14 +34015,12 @@ jaziguana.com
 jazil.com
 jazilla.com
 jazimalkhamidi.com
-jazinomonster.com
 jazip.com
 jazipoms.com
 jazira-sa.com
 jazireyezaban.ir
 jaziucay.uwetax.addinches.ru
 jaziweq.comule.com
-jazjaxfeet.tumblr.com
 jazjef.com
 jazkindergarten.in
 jazkn.googlevideo.com
@@ -34950,12 +34059,10 @@ jazmin-morrissey.us
 jazmin-nutter.us
 jazmin.net
 jazmin4u.com
-jazmin51.tumblr.com
 jazmina.com
 jazminadaniel.com
 jazminas.wen9.com
 jazmine-bologna.us
-jazmine-cuckold.tumblr.com
 jazmine-ofarrell.us
 jazmine-panek.us
 jazmine-renee.com
@@ -35031,7 +34138,6 @@ jazminecashmere.blogspot.tw
 jazminecashmere.blogspot.ug
 jazminecashmere.org
 jazminekimmy.com
-jazminerobijn.tumblr.com
 jazminesworld.com
 jazminphil.in
 jazminzlick.com
@@ -35044,7 +34150,6 @@ jazno.googlevideo.com
 jaznr.googlevideo.com
 jaznu.googlevideo.com
 jaznw.googlevideo.com
-jazoneworld.tumblr.com
 jazoom.com
 jazora.com
 jazoshades.com
@@ -35064,7 +34169,6 @@ jazsn.googlevideo.com
 jazspencer.com
 jazsq.googlevideo.com
 jazstudio.com
-jazt95.tumblr.com
 jaztf.googlevideo.com
 jaztk.googlevideo.com
 jazugiwifrocnoyu.jinereerukanoz.com
@@ -35078,7 +34182,6 @@ jazwa.com
 jazwiec.com
 jazworks.com
 jazx.oedgel.ru
-jazy-berlin-pornstar.tumblr.com
 jazy.othiak.com
 jazyberlin.net
 jazyberlinblog.com
@@ -35123,9 +34226,7 @@ jazz.nbajersey.us.com
 jazz.org
 jazz1.com
 jazz111.hopto.org
-jazz28625jazz.tumblr.com
 jazz4fun.com
-jazz4r59.tumblr.com
 jazz88.com
 jazz88online.com
 jazz88online.org
@@ -35453,7 +34554,6 @@ jazzgeneration.com
 jazzgirls.com
 jazzglobal.com
 jazzgoestochurch.com
-jazzgoogle.com
 jazzgospelcds.com
 jazzgrass.com
 jazzgroove.net
@@ -35480,11 +34580,8 @@ jazzica.com
 jazzicalmusic.com
 jazzidaddy.com
 jazzie-brown.de
-jazzieboi57.tumblr.com
 jazzied.stream
-jazziedad.tumblr.com
 jazziejewelz.com
-jazzieque.tumblr.com
 jazziest.com
 jazziinc.com
 jazzil.com
@@ -35531,7 +34628,6 @@ jazzjazz.com
 jazzjet.com
 jazzjive.com
 jazzjockey.com
-jazzjp16.tumblr.com
 jazzkc.org
 jazzkids.com
 jazzking.com
@@ -35623,7 +34719,6 @@ jazznjava.com
 jazznopera.com
 jazznorway.com
 jazznosfundos.com
-jazznova5155y.tumblr.com
 jazznradio.com
 jazznsamba.net
 jazzobama.com
@@ -35853,8 +34948,6 @@ jazzyeventdesign.com
 jazzyevents.net
 jazzyf.com
 jazzyface.com
-jazzyfaye93.tumblr.com
-jazzyfella54.tumblr.com
 jazzyflavors.com
 jazzyfm.com
 jazzyfood.com
@@ -35878,7 +34971,6 @@ jazzykats.com
 jazzykidz.com
 jazzylady.com
 jazzyladycreations.com
-jazzylovexxx.tumblr.com
 jazzymag.com
 jazzymaid.com
 jazzymamma.com
@@ -35919,9 +35011,7 @@ jazzzimpressions.com
 jazzzy.com
 jb-adam.com
 jb-appletv.com
-jb-chopper.tumblr.com
 jb-djfdg3.eiboshouse-of-gerryweber.net
-jb-hentai-gurlz.tumblr.com
 jb-hifi.com
 jb-hoster.com
 jb-m.com
@@ -35979,8 +35069,6 @@ jb069bj-cumonherface.blogspot.pt
 jb069bj-cumonherface.blogspot.sk
 jb1.simplenet.com
 jb10.com
-jb124jb.tumblr.com
-jb1341.tumblr.com
 jb177.com
 jb1u3zr969ae9kkqz1s35jh4.download
 jb2049.bdeichmann.de
@@ -35990,9 +35078,7 @@ jb24hrfantasyfootballadvice.com
 jb3-jvb-prw.com
 jb30.com
 jb300.com
-jb312.tumblr.com
 jb315.cn
-jb32563.tumblr.com
 jb39rx87be50la.in
 jb3photography.thegalaxyweb.com
 jb43.com
@@ -36005,10 +35091,8 @@ jb53.com
 jb69ca6tb60cn.biz
 jb70ep28tr79ce.biz
 jb73.com
-jb83man.tumblr.com
 jb88.net
 jb886qm.com
-jb9009.tumblr.com
 jb9clfifs6.s.ad6media.fr
 jb9u7xt79i.mobi
 jba-engine.com
@@ -36024,7 +35108,6 @@ jbablowdrybar.com
 jbacademic-external.com
 jbacademy.com
 jbacapital.com
-jbace1.tumblr.com
 jbachman.com
 jbackes.com
 jbad.org
@@ -36070,7 +35153,6 @@ jbali.com
 jbalkzoifptkpdexslfdbmxl.com
 jball.com
 jball.googlevideo.com
-jball47.tumblr.com
 jballet.com
 jballmusic.com
 jballoon.jp
@@ -36084,7 +35166,6 @@ jbalw.googlevideo.com
 jbalz.googlevideo.com
 jbamps.com
 jbamw3.eas.earnmoneywithken.com
-jban38xtra.tumblr.com
 jbanana.com
 jbandrews.com
 jbandwidth09.icu
@@ -36285,7 +35366,6 @@ jbbgczjipjvb.com
 jbbgh.googlevideo.com
 jbbhg7l.ooseieleadcrm.com
 jbbif.googlevideo.com
-jbbigdaddy.tumblr.com
 jbbih.googlevideo.com
 jbbiizkxwklbpvusxjdirbm.com
 jbbik.googlevideo.com
@@ -36336,7 +35416,6 @@ jbbtu.googlevideo.com
 jbbtvoaaeqyay.co.uk
 jbbtw.googlevideo.com
 jbbtxvtv.ru
-jbbuff.tumblr.com
 jbbugs.com
 jbbuildingservices.com
 jbbuorxxgpjirmvzbaifumhf.org
@@ -36363,7 +35442,6 @@ jbbzt.googlevideo.com
 jbc-rheydt.de
 jbc-wuppertal.de
 jbc.be
-jbc.edu
 jbc.or.jp
 jbc.org
 jbc465.com
@@ -36384,7 +35462,6 @@ jbcards.com
 jbcarpentry.com
 jbcarrentalservices.com
 jbcarving.com
-jbcast.tumblr.com
 jbcat.googlevideo.com
 jbcaw.googlevideo.com
 jbcaz.googlevideo.com
@@ -36419,8 +35496,6 @@ jbcgv.googlevideo.com
 jbcgy.googlevideo.com
 jbch.or.kr
 jbchan.in
-jbchastity.tumblr.com
-jbchatty5up.tumblr.com
 jbchemical.com
 jbchristiantshirts.com
 jbchurch.co.kr
@@ -36554,7 +35629,6 @@ jbdeco.com
 jbdecorating.com
 jbdef.googlevideo.com
 jbdeh.googlevideo.com
-jbdelyon.tumblr.com
 jbdes.googlevideo.com
 jbdesigninc.com
 jbdev.googlevideo.com
@@ -36570,7 +35644,6 @@ jbdgr.googlevideo.com
 jbdgt.googlevideo.com
 jbdgw.googlevideo.com
 jbdgz.googlevideo.com
-jbdiaper.tumblr.com
 jbdiesel.com
 jbdjb.googlevideo.com
 jbdje.googlevideo.com
@@ -36650,8 +35723,6 @@ jbeadsoriginals.com
 jbeady.com
 jbealemusic.com
 jbeamish.com
-jbeardj.tumblr.com
-jbearsc.tumblr.com
 jbeautybrands.com
 jbebh.googlevideo.com
 jbebk.googlevideo.com
@@ -36679,7 +35750,6 @@ jbeerk.com
 jbeet.cjt1.net
 jbeet.googlevideo.com
 jbeetle.us
-jbeezyrok.tumblr.com
 jbefinancialpa.com
 jbefwpifzz.com
 jbeg.com
@@ -37108,7 +36178,6 @@ jbi56.com
 jbiapv.com
 jbible.com
 jbiblescontracting.com
-jbic.tumblr.com
 jbice.googlevideo.com
 jbicentral.com
 jbickel.com
@@ -37125,7 +36194,6 @@ jbifq.googlevideo.com
 jbift.googlevideo.com
 jbifv.googlevideo.com
 jbify.googlevideo.com
-jbig665.tumblr.com
 jbigpops.cjt1.net
 jbigr.googlevideo.com
 jbihw.googlevideo.com
@@ -37150,7 +36218,6 @@ jbillc.com
 jbillingeracing.co.uk
 jbillu.net
 jbiln.googlevideo.com
-jbilover69.tumblr.com
 jbimoveis.com
 jbimports.com
 jbims.com
@@ -37175,7 +36242,6 @@ jbiqg.googlevideo.com
 jbiqi.googlevideo.com
 jbiql.googlevideo.com
 jbiqo.googlevideo.com
-jbird4205150.tumblr.com
 jbire.googlevideo.com
 jbirg.googlevideo.com
 jbirm.googlevideo.com
@@ -37432,7 +36498,6 @@ jbl.or.jp
 jbl.pl
 jbl1618.com
 jblab.com
-jblack2000.tumblr.com
 jblackandassociates.com
 jblackwelllaw.com
 jbladyshop.com
@@ -37777,13 +36842,11 @@ jboa.com
 jboatloans.com
 jbobo.com
 jbobrove.com
-jbocapone.tumblr.com
 jbocc.googlevideo.com
 jboccev.tk
 jboccio.com
 jbocf.googlevideo.com
 jboch.googlevideo.com
-jbocis.tumblr.com
 jbock.googlevideo.com
 jbocn.googlevideo.com
 jbocv.googlevideo.com
@@ -37835,8 +36898,6 @@ jbonamassa.jp
 jbonamassa.mobi
 jbonamassa.org
 jbondsex.com
-jbone129.tumblr.com
-jbone55.tumblr.com
 jbonesmusicland.com
 jbonl.googlevideo.com
 jbonlinemedia-electronics.t.domdex.com
@@ -37844,7 +36905,6 @@ jbonlineshop.com
 jbono.googlevideo.com
 jbonr.googlevideo.com
 jbont.googlevideo.com
-jbonthemobe.tumblr.com
 jbonusextrabetday.com
 jbonusextrafestival.pl
 jbonusgrandfestival.com
@@ -37881,7 +36941,6 @@ jborjgoaeg.com
 jbornwg.d2g.com
 jboron.lafona.vanessalafond.scacini.gretchenardeli
 jboron.lafona.vanessalafond.scacini.gretchenardelis.com
-jborrows1.tumblr.com
 jbos.com
 jbos33.com
 jboscoimoveis.com.br
@@ -37913,7 +36972,6 @@ jboxinformatica.com
 jboxoffice.com
 jboy2016.com
 jboyb.googlevideo.com
-jboyct.tumblr.com
 jboye.googlevideo.com
 jboyer.com
 jboyg.googlevideo.com
@@ -37921,8 +36979,6 @@ jboyj.googlevideo.com
 jboyko.com
 jboym.googlevideo.com
 jboyp.googlevideo.com
-jboysthree.tumblr.com
-jboyworld.tumblr.com
 jboyx.googlevideo.com
 jbp1oa.ken.kensprofitsystem.com
 jbp5g8r.guphobizovo.net
@@ -38203,7 +37259,6 @@ jbrandi.blogspot.sk
 jbrandi.blogspot.sn
 jbrandi.blogspot.tw
 jbrandi.blogspot.ug
-jbrandon704.tumblr.com
 jbrandz.com
 jbrannon.com
 jbrantleymd.com
@@ -38229,8 +37284,6 @@ jbrdw.riwmqgkd.ru
 jbrdx.googlevideo.com
 jbreal.com
 jbrearley.com
-jbrec.edu.in
-jbreezy514.tumblr.com
 jbreign.us
 jbren.com
 jbrequine.com
@@ -38278,11 +37331,8 @@ jbrlsr.com
 jbrlu.googlevideo.com
 jbrlx.googlevideo.com
 jbro.com
-jbro07.tumblr.com
 jbroc.googlevideo.com
-jbrocket00.tumblr.com
 jbrof.googlevideo.com
-jbroha.tumblr.com
 jbrok.googlevideo.com
 jbron.googlevideo.com
 jbrooks17weekweightloss.com
@@ -38432,7 +37482,6 @@ jbsln.googlevideo.com
 jbsltd.com
 jbsly.googlevideo.com
 jbsmh.googlevideo.com
-jbsmoke.tumblr.com
 jbsmoney.com
 jbsmultimedia.com
 jbsmusic.co.uk
@@ -38497,7 +37546,6 @@ jbsxw.googlevideo.com
 jbt-eng.com
 jbt-stl.com
 jbt.miseik.ru
-jbt0823.tumblr.com
 jbt4ho.play.gameplanwebinars.com
 jbt8.com
 jbt8.net
@@ -38575,7 +37623,6 @@ jbtrb.googlevideo.com
 jbtre.googlevideo.com
 jbtrg.googlevideo.com
 jbtrh.googlevideo.com
-jbtrimar.tumblr.com
 jbtrj.googlevideo.com
 jbtrm.googlevideo.com
 jbtrp.googlevideo.com
@@ -38601,7 +37648,6 @@ jbty3432p3.mobi
 jbtzqzacn.cn
 jbu-billard.dk
 jbu.dbu.dk
-jbu.edu
 jbu.or.jp
 jbuaccwzmhoe.com
 jbubc.googlevideo.com
@@ -38615,10 +37661,8 @@ jbubn.googlevideo.com
 jbubq.googlevideo.com
 jbubt.googlevideo.com
 jbuby.googlevideo.com
-jbuck76.tumblr.com
 jbucket.com
 jbucmoxxlilhy.com
-jbud808.tumblr.com
 jbuda.googlevideo.com
 jbudd.googlevideo.com
 jbudg.googlevideo.com
@@ -38656,7 +37700,6 @@ jbujt.googlevideo.com
 jbujv.googlevideo.com
 jbujy.googlevideo.com
 jbukvozpwkgqdqvxgrlhcyxctc.com
-jbullohio.tumblr.com
 jbuma.googlevideo.com
 jbumd.googlevideo.com
 jbumg.googlevideo.com
@@ -38705,7 +37748,6 @@ jbutcher.com
 jbutler.com
 jbutta.com
 jbutton.co.uk
-jbuttsart.tumblr.com
 jbuttt.com
 jbuud.googlevideo.com
 jbuuf.googlevideo.com
@@ -38870,7 +37912,6 @@ jbwheat.us
 jbwheels.com
 jbwhf.ru
 jbwhite.com
-jbwhovian.tumblr.com
 jbwhq.googlevideo.com
 jbwhr.googlevideo.com
 jbwht.googlevideo.com
@@ -39070,7 +38111,6 @@ jbynt.googlevideo.com
 jbynw.googlevideo.com
 jbynz.googlevideo.com
 jbyodjqtqwpx.co.uk
-jbyoungselfnude.tumblr.com
 jbyqb.googlevideo.com
 jbyqbsabrokeries.download
 jbyqe.googlevideo.com
@@ -39168,7 +38208,6 @@ jc.brett.btinternet.co.uk
 jc.charitat.club.fr
 jc.clubtera.com
 jc.cpcempower.com
-jc.edu
 jc.galy.free.fr
 jc.impact-ad.jp
 jc.industrybet.net
@@ -39193,13 +38232,11 @@ jc1.dayfund.cn
 jc1104.medictejf.ru
 jc12.com
 jc17.com
-jc18101.tumblr.com
 jc190.com
 jc1gm3.etc.edmontonbrandpartnerevents.com
 jc1s.com
 jc288.com
 jc2win.com
-jc310.tumblr.com
 jc316fashion.com
 jc3344999.com
 jc3churchministries.com
@@ -39213,8 +38250,6 @@ jc54kzr-xrr.com
 jc56owsby.pl
 jc5w.com
 jc60ca54zi27of.biz
-jc6750.tumblr.com
-jc69420sexpicsetc.tumblr.com
 jc6tqxqz85xsvxq1shwn.recursosbrasil.com.br
 jc7p.com
 jc83.com
@@ -39262,9 +38297,7 @@ jcahome.com
 jcahop.org
 jcairways.com
 jcaiv.googlevideo.com
-jcakes92xxx.tumblr.com
 jcaldwell.com
-jcaldwell.tumblr.com
 jcali.googlevideo.com
 jcalimpeza.com.br
 jcallos.xn--c1aqdux1a.xn--p1ai
@@ -39298,7 +38331,6 @@ jcanw.com
 jcaoaaa3acaoaf.biz
 jcaop.googlevideo.com
 jcaou.googlevideo.com
-jcapluver.tumblr.com
 jcapparel.com
 jcappleseed.com
 jcaproperties.com
@@ -39330,7 +38362,6 @@ jcart.net
 jcartagena.xn--e1aave2dad3a.xn--p1ai
 jcartcollection.com
 jcarter.spinbox.net
-jcarter007.tumblr.com
 jcarvalho.melisendavalenka.ru
 jcarvalho.xn--b1affb8b8djy.xn--p1ai
 jcarvey.com
@@ -39347,7 +38378,6 @@ jcass.com
 jcassailant.xn--90ali6al4dae.xn--p1ai
 jcat.xn--b1avldw.xn--p1ai
 jcatd.googlevideo.com
-jcatgrl.tumblr.com
 jcati.googlevideo.com
 jcatiogbe.com
 jcatm.com
@@ -39580,7 +38610,6 @@ jcc-01.info
 jcc-church.com
 jcc.at.infoseek.co.jp
 jcc.sabraallina.com
-jcc.uky.edu
 jcc2001.multimania.com
 jcc21.com
 jcc4oiv9ek.asia
@@ -39600,7 +38629,6 @@ jccash.ropatah.quattie.fredolson.katrinkajordan.com
 jccat.com
 jccat.googlevideo.com
 jccb.co.in
-jccbi.gov
 jccbm.googlevideo.com
 jccbp.googlevideo.com
 jccbr.googlevideo.com
@@ -39714,7 +38742,6 @@ jccreditcard.com
 jccri.com
 jccripe.us
 jccrn.info
-jccs.gov
 jccsa.com
 jccsb.googlevideo.com
 jccse.googlevideo.com
@@ -39777,7 +38804,6 @@ jcdcover.cjt1.net
 jcdd3a.close.futureisready.com
 jcddzs.com
 jcdec.googlevideo.com
-jcdelfinsolitario.tumblr.com
 jcdemo.com
 jcden.googlevideo.com
 jcdenterprises.com
@@ -40362,7 +39388,6 @@ jchif.googlevideo.com
 jchii.googlevideo.com
 jchil.googlevideo.com
 jchilds.com
-jchilla01.tumblr.com
 jchinareplacements.com
 jchiou.com
 jchipapb.bizland.com
@@ -40453,7 +39478,6 @@ jchristopherwhite.com
 jchristoushan.com
 jchristyliu.com
 jchronicles.com
-jchs.edu
 jchsmuseum.org
 jchtb.googlevideo.com
 jchtj.googlevideo.com
@@ -40931,7 +39955,6 @@ jcljw.googlevideo.com
 jclkd.googlevideo.com
 jclkf.googlevideo.com
 jclki.googlevideo.com
-jclm29.tumblr.com
 jclmarber.com
 jclmb.googlevideo.com
 jclmd.googlevideo.com
@@ -40947,7 +39970,6 @@ jclon.com
 jclord.com
 jcloudzappsz-verifandscurezxv.net
 jcloudzcx-mngrpairzcntr.org
-jclovessc.tumblr.com
 jclpc.googlevideo.com
 jclpe.googlevideo.com
 jclpf.googlevideo.com
@@ -41100,7 +40122,6 @@ jcmotorcycle.com
 jcmotors.com
 jcmotorsportsonline.com
 jcmotortrading.lk
-jcmounduix.tumblr.com
 jcmoveis.com
 jcmparts.com
 jcmpd.googlevideo.com
@@ -41282,7 +40303,6 @@ jcocc.googlevideo.com
 jcocf.googlevideo.com
 jcocgcj.info
 jcoch.googlevideo.com
-jcock069.tumblr.com
 jcocn.googlevideo.com
 jcocq.googlevideo.com
 jcocs.googlevideo.com
@@ -41353,8 +40373,6 @@ jcollier.xn--b1aoudab.xn--p1ai
 jcollingwood.xn--c1agi4a5cwa.xn--p1ai
 jcolon.xn--80a4axaafm.xn--p1ai
 jcolpvqhfjmnh.co.uk
-jcolt94.tumblr.com
-jcolterxxx.tumblr.com
 jcolyer.xn--g1aijq4bza.xn--p1ai
 jcom.122.2o7.net
 jcom.co.jp
@@ -41403,13 +40421,11 @@ jcook.tamarrafarand.ru
 jcook.xn--c1al9cpi.xn--p1ai
 jcookqc.xn--90aea3bl9d2acw.xn--p1ai
 jcooks.com
-jcool7269.tumblr.com
 jcoon.com
 jcoop.com
 jcooperstudio.com
 jcooperviolinmaker.com
 jcopay.com
-jcope40.tumblr.com
 jcophirolivepro.com
 jcopp.pumbec.ru
 jcoqb.googlevideo.com
@@ -41425,11 +40441,9 @@ jcordetionse.com
 jcordetionses.ru
 jcordetionss.com
 jcorey.com
-jcorey.tumblr.com
 jcornish.xn--e1aft5cp.xn--p1ai
 jcorp.games1.112.2o7.net
 jcortese.com
-jcosorio23.tumblr.com
 jcosplay.com
 jcosq.googlevideo.com
 jcost.com
@@ -41615,7 +40629,6 @@ jcpronline.com
 jcpropertyservices.com
 jcprotese.com.br
 jcpseschool.com
-jcpslam.tumblr.com
 jcpstoreads.com
 jcpstoregifts.com
 jcptech.com
@@ -41736,7 +40749,6 @@ jcqyhjvintagers.review
 jcr-church.jp
 jcr.co.za
 jcr0757kum.s.ad6media.fr
-jcr198989.tumblr.com
 jcr2016.com
 jcr3racing.com
 jcr7nsmnwkb3zirahjica.trade
@@ -41755,7 +40767,6 @@ jcramutola.xn--f1adk8dk.xn--p1ai
 jcranch.de
 jcrassociates.com
 jcrat.googlevideo.com
-jcrat0914.tumblr.com
 jcraw.googlevideo.com
 jcrawler.com
 jcraz.googlevideo.com
@@ -41778,7 +40789,6 @@ jcre.mnegel.ru
 jcrealtor.com
 jcrealty.ca
 jcreamer.com
-jcreampie-pussies.tumblr.com
 jcreate.com
 jcreation.com
 jcreations.com
@@ -41837,7 +40847,6 @@ jcrnv.thils.ru
 jcro.com
 jcrobaina.xn--90acdna8dwcs.xn--p1ai
 jcrocha.com
-jcrock88.tumblr.com
 jcrockett.com
 jcrof.googlevideo.com
 jcroft.xn--90ade5afdt4g.xn--p1ai
@@ -42031,7 +41040,6 @@ jcsoto.com
 jcsoutlet.com
 jcsow.googlevideo.com
 jcsoz.googlevideo.com
-jcsp1688.tumblr.com
 jcsparks1.com
 jcspirit.com
 jcspl.googlevideo.com
@@ -42128,10 +41136,8 @@ jcssystems.com
 jcstephens.com
 jcstjs.club
 jcstoneexperts.com
-jcstud.tumblr.com
 jcstudio.com
 jcstudio.com.my
-jcsu.edu
 jcsu.jesus.cam.ac.uk
 jcsue.googlevideo.com
 jcsuh.googlevideo.com
@@ -42161,7 +41167,6 @@ jcsystems.com
 jct-net.co.jp
 jct.altervista.org
 jct.com.jo
-jct.gov
 jct.maptu.cn
 jct1.com
 jct4ft.zaeb.enjoyadreamlifestyle.com
@@ -42296,11 +41301,8 @@ jctyres.com
 jctzyw.cn
 jcu.copotu.ru
 jcu.cz
-jcu.edu
-jcu.edu.au
 jcu.org.il
 jcuaiewkfy.tk
-jcub78.tumblr.com
 jcubedhealth.com
 jcubh.googlevideo.com
 jcucd.googlevideo.com
@@ -42376,7 +41378,6 @@ jcusl.googlevideo.com
 jcuso.googlevideo.com
 jcusq.googlevideo.com
 jcust.googlevideo.com
-jcutter-tv.tumblr.com
 jcutts.com
 jcuud.googlevideo.com
 jcuui.googlevideo.com
@@ -43024,7 +42025,6 @@ jd-basilisk.blogspot.sk
 jd-basilisk.blogspot.sn
 jd-basilisk.blogspot.tw
 jd-basilisk.blogspot.ug
-jd-cadinot.tumblr.com
 jd-coffee.com
 jd-cpa.com
 jd-diamond.com
@@ -43100,7 +42100,6 @@ jd-laments.blogspot.sn
 jd-laments.blogspot.tw
 jd-laments.blogspot.ug
 jd-link.net
-jd-m8.tumblr.com
 jd-mail.co.uk
 jd-mart.com
 jd-massagetherapie.nl
@@ -43131,7 +42130,6 @@ jd01qstbprek.top
 jd01qwt.info
 jd05esxdnre.info
 jd0po0o3.info
-jd132028.tumblr.com
 jd1ddgi3l3ovfkgaaplyxrxqay4qv1510272691.nuid.imrwo
 jd1ddgi3l3ovfkgaaplyxrxqay4qv1510272691.nuid.imrworldwide.com
 jd20th.com
@@ -43139,7 +42137,6 @@ jd2cdn.com
 jd2chassis.com
 jd2k.com
 jd2yj.voluumtrk.com
-jd30.tumblr.com
 jd31.com
 jd4d.com
 jd4wu1o-tlk.com
@@ -43238,7 +42235,6 @@ jdancer.com
 jdandcbaby.com
 jdandcherie.com
 jdandfriends.com
-jdandge.tumblr.com
 jdandsons.com
 jdang.com
 jdangtran.xn--e1acflc2cn4a4a.xn--p1ai
@@ -43247,7 +42243,6 @@ jdanielcook.net
 jdanielmead.com
 jdanielstudios.com
 jdanimals.com
-jdanlyle.tumblr.com
 jdann.com
 jdansonandassociates.com
 jdantiquescollections.com
@@ -43312,9 +42307,7 @@ jdavidsonscrap.com
 jdavis.billainley.bjwilliams.nivert.bobbyerey.com
 jdavis.xn--80av7adbqe.xn--p1ai
 jdavis.xn--h1adf0ca7abbo.xn--p1ai
-jdavis869.tumblr.com
 jdavx.googlevideo.com
-jdawg68.tumblr.com
 jdawgdesign.com
 jdawgsfantasysports.com
 jdawn.com
@@ -43432,7 +42425,6 @@ jdbed.googlevideo.com
 jdbell.com
 jdber.googlevideo.com
 jdbestbuy.com
-jdbetter.tumblr.com
 jdbeu.googlevideo.com
 jdbex.googlevideo.com
 jdbgc.googlevideo.com
@@ -43453,7 +42445,6 @@ jdbjw.googlevideo.com
 jdbjz.googlevideo.com
 jdbla.oedgel.ru
 jdblade.cn
-jdblakey.tumblr.com
 jdbloom.com
 jdblowers.xn--h1aavaz3abm2a.xn--p1ai
 jdbludscgotkk.co.uk
@@ -43522,20 +42513,17 @@ jdbz028.com
 jdbzcblg.pl
 jdbzloynedpylr.bid
 jdc.anneliesetilda.ru
-jdc.edu.co
 jdc.fr.st
 jdc2.com
 jdc3.clicktracks.com
 jdc6be.gs.govtax.org
 jdca.in
-jdcadinot-video.tumblr.com
 jdcadinot.fr
 jdcamtech.com
 jdcancuntravel.homestead.com
 jdcantor.com
 jdcarr.com
 jdcartoon.com
-jdcasin.tumblr.com
 jdcassociates.com
 jdcbd.googlevideo.com
 jdcbg.googlevideo.com
@@ -43563,7 +42551,6 @@ jdces.googlevideo.com
 jdcey.googlevideo.com
 jdcgapg.com
 jdcgtu.gv.govtax.net
-jdchard.tumblr.com
 jdchc.googlevideo.com
 jdchd.googlevideo.com
 jdchf.googlevideo.com
@@ -43613,7 +42600,6 @@ jdcnv.googlevideo.com
 jdcny.googlevideo.com
 jdco.co.kr
 jdcoaching.com
-jdcoccola.tumblr.com
 jdcoleconsulting.com
 jdcom.xyz
 jdcomputer.com
@@ -43829,7 +42815,6 @@ jdeef.googlevideo.com
 jdeei.googlevideo.com
 jdeel.thils.ru
 jdeem.xn--b1amjhypx9c.xn--p1ai
-jdeere317.tumblr.com
 jdeet.googlevideo.com
 jdeez.googlevideo.com
 jdefb.googlevideo.com
@@ -43913,7 +42898,6 @@ jdeqy.googlevideo.com
 jdera.com
 jderr.com
 jderulo.com
-jdesade.tumblr.com
 jdesh.googlevideo.com
 jdesn.googlevideo.com
 jdess.googlevideo.com
@@ -43926,7 +42910,6 @@ jdetroit.com
 jdetw.googlevideo.com
 jdeuce.com
 jdevf.googlevideo.com
-jdevilxxx.tumblr.com
 jdevinc.com
 jdevl.googlevideo.com
 jdevo.googlevideo.com
@@ -43956,7 +42939,6 @@ jdezz.exclusiverewards.luminesced.xyz
 jdf.xn--c1aa4azca.xn--p1ai
 jdf16.com
 jdf16.net
-jdf2000.tumblr.com
 jdfa.web5.jp
 jdfabrication.com
 jdfactory.com
@@ -44231,7 +43213,6 @@ jdhancockconsultants.com
 jdhao.googlevideo.com
 jdharrald.com
 jdhart.com
-jdhatch1988.tumblr.com
 jdhauto.xn--90aac1cxcnr.xn--p1ai
 jdhawk.com
 jdhawk.net
@@ -44371,7 +43352,6 @@ jdiesel.hri.antoniofdaconceicao.dolfnheart.annamin
 jdiesel.hri.antoniofdaconceicao.dolfnheart.annaminny.com
 jdietrich.com
 jdifalco.karmenjanice.ru
-jdiffner.tumblr.com
 jdify.com
 jdigf.googlevideo.com
 jdigg5.com
@@ -44432,7 +43412,6 @@ jdisgay.com
 jdishipping.com
 jdisolutions.com
 jdiss.com
-jdiss00cool.tumblr.com
 jdist.com
 jdit.co.uk
 jdita.com
@@ -44459,7 +43438,6 @@ jdixxx.com
 jdixxx.unblog.fr
 jdixxxiphone.unblog.fr
 jdixz.googlevideo.com
-jdizz1989.tumblr.com
 jdizzle.com
 jdj1.com
 jdja.com
@@ -44474,7 +43452,6 @@ jdjbp.googlevideo.com
 jdjbs.googlevideo.com
 jdjbv.googlevideo.com
 jdjby.googlevideo.com
-jdjcnfj.tumblr.com
 jdjcreations.com
 jdjdpro.com
 jdjean.com
@@ -44816,8 +43793,6 @@ jdmaiche.com
 jdmaimai.com
 jdmaker.com
 jdmaker.net
-jdman100.tumblr.com
-jdmandtherest.tumblr.com
 jdmap.com
 jdmarketing.com
 jdmarketinggroup.com
@@ -44856,7 +43831,6 @@ jdmeh.googlevideo.com
 jdmengine.com
 jdmeyer.com
 jdmfc.googlevideo.com
-jdmfd3s.tumblr.com
 jdmforce.com
 jdmfp.googlevideo.com
 jdmfs.googlevideo.com
@@ -44935,7 +43909,6 @@ jdmturkiye.com
 jdmunoz.xn--d1abktuf4fo.xn--p1ai
 jdmurphy.ingridjaimie.ru
 jdmusicandclouds.com
-jdmuzikluvr69.tumblr.com
 jdmvc.googlevideo.com
 jdmve.googlevideo.com
 jdmvh.googlevideo.com
@@ -44958,7 +43931,6 @@ jdmyt.googlevideo.com
 jdmyw.googlevideo.com
 jdmyz.googlevideo.com
 jdn.co.jp
-jdn.monster.com
 jdnails.com
 jdnarro.com
 jdnart.com
@@ -45095,15 +44067,12 @@ jdodson.com
 jdodt.googlevideo.com
 jdodw.googlevideo.com
 jdodz.googlevideo.com
-jdoescock.tumblr.com
 jdoevxb.freesite.org
 jdoffers.com
 jdog.info
 jdog.xn--e1aianf0a.xn--p1ai
-jdog0210.tumblr.com
 jdogb.googlevideo.com
 jdogg.larinejandy.ru
-jdoggboy.tumblr.com
 jdogm.googlevideo.com
 jdogo.googlevideo.com
 jdogr.googlevideo.com
@@ -45129,7 +44098,6 @@ jdolt.googlevideo.com
 jdolw.googlevideo.com
 jdom.healthmeans.info
 jdom.net
-jdom31.tumblr.com
 jdomasiewicz.xn--c1al9cpi.xn--p1ai
 jdomme.com
 jdonald.xn--80ac2a3adat.xn--p1ai
@@ -45142,7 +44110,6 @@ jdontheweb.com
 jdoob.googlevideo.com
 jdood.googlevideo.com
 jdoog.googlevideo.com
-jdoog78.tumblr.com
 jdooj.googlevideo.com
 jdookie.com
 jdoom.googlevideo.com
@@ -45187,7 +44154,6 @@ jdoubleyou.moriapaulette.ru
 jdouc.googlevideo.com
 jdouf.googlevideo.com
 jdoufha322.biz
-jdoug54.tumblr.com
 jdougf.xn--90abebbu6n.xn--p1ai
 jdougherty.dmsteinbruegge.chrisfdc.glaker.glorikri
 jdougherty.dmsteinbruegge.chrisfdc.glaker.glorikristien.com
@@ -45258,7 +44224,6 @@ jdpfg.googlevideo.com
 jdpfp.googlevideo.com
 jdpfr.googlevideo.com
 jdpfu.googlevideo.com
-jdpfun03.tumblr.com
 jdpfx.googlevideo.com
 jdpgb.googlevideo.com
 jdpgh.googlevideo.com
@@ -45445,7 +44410,6 @@ jdr2w6t7ag.mobi
 jdr54.afftrackin.hop.clickbank.net
 jdrabagnes.site.voila.fr
 jdragon.com
-jdragonshell.tumblr.com
 jdrak.com
 jdram.com
 jdranastasia.com
@@ -45500,7 +44464,6 @@ jdrht.googlevideo.com
 jdrhw.googlevideo.com
 jdrichardson.com
 jdrid.com
-jdriley82.tumblr.com
 jdriversphoto.com
 jdrjb.googlevideo.com
 jdrjd.googlevideo.com
@@ -45797,7 +44760,6 @@ jdsky.googlevideo.com
 jdsloan.com
 jdsmail.com
 jdsmajess.com
-jdsmind.tumblr.com
 jdsmithinsurance.com
 jdsn.com
 jdsnc.googlevideo.com
@@ -45974,7 +44936,6 @@ jduanegilliam.com
 jduanegilliam.net
 jdub.lisettekathryne.ru
 jdubb.com
-jdubbitch.tumblr.com
 jdubcapital.com
 jdubdub.com
 jdubon.com
@@ -46017,7 +44978,6 @@ jduik.googlevideo.com
 jduin.googlevideo.com
 jduis.googlevideo.com
 jdukerich.xn--c1adai2am8av4d.xn--p1ai
-jdukes33.tumblr.com
 jdukf.googlevideo.com
 jduki.googlevideo.com
 jdukl.googlevideo.com
@@ -46027,7 +44987,6 @@ jdukt.googlevideo.com
 jdukw.googlevideo.com
 jdukz.googlevideo.com
 jdulxabotu.pw
-jdumbdick.tumblr.com
 jdund.googlevideo.com
 jdung.googlevideo.com
 jdunj.googlevideo.com
@@ -46230,7 +45189,6 @@ jdwig.googlevideo.com
 jdwii.googlevideo.com
 jdwiki.com
 jdwil.googlevideo.com
-jdwill13.tumblr.com
 jdwilley.com
 jdwilley.xn--e1acqfyx9e.xn--p1ai
 jdwilliamsgroup.jobs
@@ -46308,7 +45266,6 @@ jdxag.googlevideo.com
 jdxar.googlevideo.com
 jdxau.googlevideo.com
 jdxax.googlevideo.com
-jdxcp.tumblr.com
 jdxdc.googlevideo.com
 jdxde.googlevideo.com
 jdxdp.googlevideo.com
@@ -46596,7 +45553,6 @@ je-gagne129.fr
 je-global.com
 je-group.com
 je-group.net
-je-ja-ger.tumblr.com
 je-jouis.com
 je-like.com
 je-lul-aftrekken.startspot.nl
@@ -46671,7 +45627,6 @@ je-me-suis-paye-une-pute.blogspot.sk
 je-me-suis-paye-une-pute.blogspot.sn
 je-me-suis-paye-une-pute.blogspot.tw
 je-me-suis-paye-une-pute.blogspot.ug
-je-me-venge.tumblr.com
 je-mijote.asteur.info
 je-mouille.com
 je-ne-sais-quoi.com
@@ -46683,14 +45638,11 @@ je-rencontre.com
 je-reserve.com
 je-rigole.com
 je-simule.com
-je-soumis.tumblr.com
 je-suce.com
 je-suce.ifrance.com
 je-suis-bi.over-blog.com
 je-suis-gay.com
 je-suis-lesbien.skyblog.com
-je-suis-parfaite-ou-presque.tumblr.com
-je-suis-une-publication-sexiste.tumblr.com
 je-suis-volontaire.com
 je-suis-voyeur.com
 je-suisat.usa.cc
@@ -46926,8 +45878,6 @@ jealousj.com
 jealously.vlarye.ru
 jealousness.com
 jealousproductions.co.uk
-jealoussissy.tumblr.com
-jealouswhore.tumblr.com
 jealouswifes.com
 jealousymagnet.com
 jealousysitting.com
@@ -46998,7 +45948,6 @@ jean-kayla.us
 jean-lillian.us
 jean-lisa.com
 jean-louis.de
-jean-luc-gohard.tumblr.com
 jean-luc-moerman.com
 jean-marc.armani.book.picturetank.com
 jean-merlaut.fr
@@ -47034,9 +45983,7 @@ jean.trouilloud.free.fr
 jean.vial.free.fr
 jean01duck.000webhostapp.com
 jean01feret.000webhostapp.com
-jean022.tumblr.com
 jean1.com
-jean3.tumblr.com
 jeana-abril.us
 jeana-aguilera.in
 jeana-belue.in
@@ -47343,7 +46290,6 @@ jeandenis.com
 jeandeparis.angipemar.janicehagon.toddtlynch.lucie
 jeandeparis.angipemar.janicehagon.toddtlynch.luciennejackie.com
 jeandesigner.com
-jeandestroyer.tumblr.com
 jeandetsports.com
 jeandiva.com
 jeandixon.com
@@ -47411,7 +46357,6 @@ jeanettebuckingham.com
 jeanettec.com
 jeanettecabrera.com
 jeanettecampbell.madalenaamalle.com
-jeanettecd.tumblr.com
 jeanettechristian.com
 jeanettechurch.com
 jeanettecottrell.com
@@ -47440,7 +46385,6 @@ jeanettesmell.com
 jeanettespangler.com
 jeanettesummers.com
 jeanettesvendsen.ca
-jeanettethebimbosissy.tumblr.com
 jeanettewoods.com
 jeanevans.com
 jeaneweaver.com
@@ -47471,7 +46415,6 @@ jeango.com
 jeangood.com
 jeangrandbois.com
 jeangregoire.com
-jeangreydoessrsart.tumblr.com
 jeanguide.com
 jeanguillou.artistes.universalmusic.fr
 jeangurunlian.com
@@ -47497,7 +46440,6 @@ jeanhoward.com
 jeanhughes.com
 jeanhunter.com
 jeani.net
-jeaniblove.tumblr.com
 jeanicesalerts.com
 jeanie-rivers.com
 jeanieashton.com
@@ -47510,13 +46452,11 @@ jeaniegreene.com
 jeanielee.com
 jeanielite.com
 jeaniemarieporn.info
-jeaniemariesullivanhdvideos.tumblr.com
 jeaniemoore.com
 jeaniemyers.com
 jeanienechurch.com
 jeanierivers.com
 jeanierivers.us
-jeaniesissygurl.tumblr.com
 jeaniesplace.com
 jeaniesproperties.com
 jeaniestanley.com
@@ -47584,17 +46524,13 @@ jeankeating.com
 jeankelley.com
 jeankennedy.com
 jeankevin.com
-jeankey23.tumblr.com
-jeanki1957.tumblr.com
 jeankirkland.com
-jeankirsteinsnipples.tumblr.com
 jeanknight.com
 jeanko.com
 jeankog0.beget.tech
 jeankov3.beget.tech
 jeankula.free.fr
 jeanlafitteswamptour.com
-jeanlafond.tumblr.com
 jeanlain.bid
 jeanlan.com
 jeanland.com
@@ -47602,7 +46538,6 @@ jeanlanes.com
 jeanlariviere.com
 jeanlecerf.com
 jeanlefebvre.com
-jeanlegay2011.tumblr.com
 jeanlemay.com
 jeanlescure.com
 jeanlesigne.com
@@ -47925,12 +46860,10 @@ jeanninesiviy.com
 jeannius.com
 jeannordquistdolls.com
 jeannot.ulm.free.fr
-jeannude.tumblr.com
 jeannwaltondruggedandmurderedjakekiser.com
 jeanny.com
 jeannycam.com
 jeannylove.free.fr
-jeannytxxx.tumblr.com
 jeano.ru
 jeanok.com
 jeanolivierheron.com
@@ -47945,12 +46878,10 @@ jeanpastor.com
 jeanpaul.fr.st
 jeanpaulbovet.com
 jeanpaulconsult.com
-jeanpaulfour.tumblr.com
 jeanpaulgaultierjeans.com
 jeanpaullagendijk.nl
 jeanpaulmichel.com
 jeanpaulo.com
-jeanpaulpaula2.tumblr.com
 jeanpaulpereira.com
 jeanpaulreti.com
 jeanpbouvet.com
@@ -47990,7 +46921,6 @@ jeanromain.com
 jeanrousseau.com
 jeanruc.com
 jeans-01.com
-jeans-are-sexy.tumblr.com
 jeans-box24.de
 jeans-chicks.com
 jeans-direct.de
@@ -48010,8 +46940,6 @@ jeans-online.pl
 jeans-pissing.lb32a.com
 jeans-same.com
 jeans-sex.com
-jeans-sexy.tumblr.com
-jeans-sexyteens-pics.tumblr.com
 jeans-shopping.pl
 jeans-shopvandaal.nl
 jeans-station.co.uk
@@ -48022,7 +46950,6 @@ jeans1.com
 jeans24.com
 jeans4export.com
 jeans4sale.com
-jeans85.tumblr.com
 jeans911.net
 jeansaaa.com
 jeansamuel.com
@@ -48038,7 +46965,6 @@ jeansangels.com
 jeansantos.com
 jeansartholidays.tripod.com
 jeansasia.ir
-jeansassfuck.tumblr.com
 jeansb.com
 jeansbabes.com
 jeansbandung.com
@@ -48072,7 +46998,6 @@ jeansconcept.com
 jeanscott.lokstock.dpage.stephenpharaoh.annaliesed
 jeanscott.lokstock.dpage.stephenpharaoh.annaliesedalila.com
 jeanscult.com
-jeanscumpig.tumblr.com
 jeansdeals.com
 jeansdiscounter.de
 jeansdisplay.de
@@ -48089,7 +47014,6 @@ jeansellsnaples.com
 jeansen.com
 jeansengel.com
 jeansepia.com
-jeanserbe.tumblr.com
 jeanset.com
 jeansex.com
 jeansexpress.com
@@ -48110,12 +47034,10 @@ jeansforboys.com
 jeansforhope.com
 jeansforshortwomen.com
 jeansfranky.com
-jeansfucker.tumblr.com
 jeansfun.de
 jeansfun1.de
 jeansgal.com
 jeansgarage.com
-jeansgay75.tumblr.com
 jeansgetwet.com
 jeansgirl-4u.de
 jeansgirlstgp.com
@@ -48175,7 +47097,6 @@ jeansmovie.com
 jeansmurah.com
 jeansmusic.com
 jeansname.com
-jeansnbootsworld.tumblr.com
 jeansnedegar.com
 jeansnmore.com
 jeansoasis.com
@@ -48189,7 +47110,6 @@ jeansowghsqq.com
 jeansowghtqq.com
 jeanspant.com
 jeanspaulgaultier.com
-jeanspee.tumblr.com
 jeanspent.com
 jeanspercapita.com
 jeansphoto.com
@@ -48282,7 +47202,6 @@ jeansripping.com
 jeansrock.com
 jeansroecke.com
 jeansroom.com
-jeanssex.tumblr.com
 jeansshoes.com
 jeansshoppen.com
 jeansshopper.com
@@ -48290,7 +47209,6 @@ jeansshort.com
 jeansshow.com
 jeanssitting.com
 jeansskinny.com
-jeansskirtsandaisydukes.tumblr.com
 jeanssky.com
 jeanssotight.com
 jeansspecials.com
@@ -48325,7 +47243,6 @@ jeansun.com
 jeansunion.com
 jeansuniquecreations.com
 jeansuniverse.com
-jeansunzipped.tumblr.com
 jeansuomo.com
 jeansverkaufonline.com
 jeansvids.com
@@ -48341,12 +47258,10 @@ jeanswest-com-au.b.appier.net
 jeanswest.com.au
 jeanswest.su
 jeanswesterner.com
-jeanswetting.tumblr.com
 jeanswholesaler.com
 jeanswholesalers.com
 jeanswing.com
 jeanswing.net
-jeanswing.tumblr.com
 jeanswings.com
 jeanswomens.com
 jeanswork.com
@@ -48380,7 +47295,6 @@ jeanwinter.com
 jeanwolfe.com
 jeanwoodflooring.com
 jeanwylie.com
-jeanxxm.tumblr.com
 jeany.me.uk
 jeanyimphoto.com
 jeanykim.com
@@ -48763,7 +47677,6 @@ jeckeromper.ru
 jecket.com
 jecklin.ch
 jecko.com
-jeckobabino.tumblr.com
 jeckro.com
 jeckromatic.com
 jecksen.us
@@ -48808,7 +47721,6 @@ jecomms.com
 jecompare.com
 jecompte.com
 jeconesu.blog.com
-jeconnaisunvioleur.tumblr.com
 jeconsi.ru
 jeconsole.com
 jeconstruis.com
@@ -48833,7 +47745,6 @@ jecreemonentreprise.com
 jecrefran.ru
 jecrew.com
 jecriand.ru
-jecrisdessaloperies.tumblr.com
 jecritique.com
 jecrolver.ru
 jecropna.blog.com
@@ -48887,7 +47798,6 @@ jed.borsa.agqux.consonantal.wepcovintek.com
 jed.jomes.dbvmr.axisymmetrically.mellanstadienytt.com
 jed.us
 jed1.com
-jed69stud.tumblr.com
 jed6qg.blow.howtobelean.co.uk
 jed8.com
 jedacorp.com
@@ -49006,7 +47916,6 @@ jeddak.com
 jeddaugherty.com
 jeddawi.com
 jeddawy.com
-jeddboy.tumblr.com
 jeddh.com
 jeddi.com
 jedding.com
@@ -49059,10 +47968,8 @@ jedfordcollies.com
 jedforestrfc.com
 jedfq.googlevideo.com
 jedft.googlevideo.com
-jedfuckable.tumblr.com
 jedfw.googlevideo.com
 jedgoldsmith.com
-jedhard.tumblr.com
 jedhazen.com
 jedi-bible.com
 jedi-church.com
@@ -49071,9 +47978,7 @@ jedi-gear.de
 jedi.betterbox.net
 jedi.nanopool.org
 jedi.org
-jedi1686.tumblr.com
 jedi1o.com
-jedialan.tumblr.com
 jedian.com
 jedibible.com
 jediblog.com
@@ -49104,7 +48009,6 @@ jedifleet.com
 jedig.googlevideo.com
 jedigabel.com
 jedigirl.com
-jedigirl63.tumblr.com
 jedigirls.com
 jedigod.com
 jedihearttricks.com
@@ -49132,7 +48036,6 @@ jedimc.com
 jedimike.com
 jedimillionaire.com
 jedimonthly.com
-jedimstr71.tumblr.com
 jedimud.com
 jedimusic.com
 jedinat-zaubershop.de
@@ -49163,7 +48066,6 @@ jedir3waish.com
 jedirobescasino.com
 jediscience.com
 jediscute.fr
-jedisean.tumblr.com
 jedisex.com
 jedishirts.com
 jedisknights.com
@@ -49250,7 +48152,6 @@ jedqu.googlevideo.com
 jedqx.googlevideo.com
 jedra.com
 jedred.com
-jedressedessalopes.tumblr.com
 jedrilica.com
 jedrne.com
 jedrnybiust.pl
@@ -49302,7 +48203,6 @@ jedyd.googlevideo.com
 jedyj.googlevideo.com
 jedym.googlevideo.com
 jedyo.googlevideo.com
-jedyoong.tumblr.com
 jedyr.googlevideo.com
 jedyu.googlevideo.com
 jedyx.googlevideo.com
@@ -49310,7 +48210,6 @@ jedz-eco.pl
 jedzasowaz.com
 jedzenienatelefon.com
 jee-o.eu
-jee-q.tumblr.com
 jee9.com
 jeeami.com
 jeeapp.bid
@@ -49467,7 +48366,6 @@ jeep-cherokee.com
 jeep-classifieds.com
 jeep-fc.ga
 jeep-forum.net
-jeep-lesbianash.tumblr.com
 jeep-mode.com
 jeep-mode.net
 jeep-nsk.ru
@@ -49498,7 +48396,6 @@ jeep44.com
 jeep4u.com
 jeep4x4center.com
 jeep4x4store.com
-jeep89.tumblr.com
 jeepaccessorys.com
 jeepadvisor.com
 jeepai.co.uk
@@ -49560,7 +48457,6 @@ jeeperscreepers.info
 jeeperscreepersmovie.co.uk
 jeeperscross.it
 jeeperscrow.com
-jeepersheady.tumblr.com
 jeepersingles.com
 jeepersminiatures.com
 jeepexchange.com
@@ -49580,7 +48476,6 @@ jeephd.com
 jeephd.net
 jeepheavyduty.com
 jeephire.com
-jeephuck.tumblr.com
 jeephurricane.com
 jeepi.com
 jeepingsingles.net
@@ -49667,7 +48562,6 @@ jeepstr.com
 jeepsummit.com
 jeepsummit.net
 jeepsunlimited.us.intellitxt.com
-jeepsweedandpussy.tumblr.com
 jeepsyart.com
 jeeptastic.com
 jeeptec.com
@@ -49840,8 +48734,6 @@ jeeves.actonsoftware.com
 jeeves.ask.info
 jeeves.co.uk
 jeeves.flycast.com
-jeeves04.tumblr.com
-jeeves28.tumblr.com
 jeeveshomosexual.com
 jeevesjewellers.co.uk
 jeevesretirement.com
@@ -49855,7 +48747,6 @@ jeewa.googlevideo.com
 jeewan.com
 jeewanjee.net
 jeewd.googlevideo.com
-jeewee52.tumblr.com
 jeewg.googlevideo.com
 jeewgle.com
 jeewj.googlevideo.com
@@ -49866,7 +48757,6 @@ jeewoo.com
 jeewr.googlevideo.com
 jeewx.googlevideo.com
 jeey.com
-jeeydicked.tumblr.com
 jeeyn.com
 jeeyo.0pe.kr
 jeeyo.com
@@ -49874,7 +48764,6 @@ jeez.pbphgwbr.in
 jeezb.googlevideo.com
 jeezbels.com
 jeeze.googlevideo.com
-jeezfuckyousunny.tumblr.com
 jeezh.googlevideo.com
 jeezk.googlevideo.com
 jeezless.com
@@ -49887,7 +48776,6 @@ jeezs.googlevideo.com
 jeezup.com
 jeezv.googlevideo.com
 jeezy.googlevideo.com
-jeezytaughtyou.tumblr.com
 jef-kam.com
 jef.free.fr
 jef7y2.bross.gdbmanufacturing.com
@@ -49921,7 +48809,6 @@ jefaqrezutor.com
 jefas.com
 jefat.googlevideo.com
 jefaw.googlevideo.com
-jefbcas.tumblr.com
 jefbf.googlevideo.com
 jefbox.com
 jefchallenge.org
@@ -49952,7 +48839,6 @@ jeff-clark.com
 jeff-crump-test.com
 jeff-daniels.net
 jeff-ferris.com
-jeff-frezzer.tumblr.com
 jeff-gober.us
 jeff-hittle.us
 jeff-hurst.com
@@ -49979,11 +48865,7 @@ jeff.pro.br
 jeff.timeclever.com
 jeff3.com
 jeff316.com
-jeff33cr.tumblr.com
-jeff3ry.tumblr.com
 jeff420.com
-jeff8585.tumblr.com
-jeff974.tumblr.com
 jeffa.ddns.net
 jeffabby.com
 jeffabneypottery.com
@@ -50022,7 +48904,6 @@ jeffasmar.com
 jeffattorney.net
 jeffaughey.com
 jeffayers.com
-jeffaz28.tumblr.com
 jeffbackes.com
 jeffbainsshoes.com
 jeffbalderson.com
@@ -50114,7 +48995,6 @@ jeffclarkinsurance.com
 jeffclear.com
 jeffcline.com
 jeffcm.com
-jeffco.edu
 jeffcoate.com
 jeffcoconstable.com
 jeffcohost.com
@@ -50151,7 +49031,6 @@ jeffdingsor.com
 jeffdisthegulfpaxu.dumb1.com
 jeffditullio.com
 jeffdjones.com
-jeffdmccleary.tumblr.com
 jeffdodds.com
 jeffdonato.com
 jeffdonatoillustration.com
@@ -50188,8 +49067,6 @@ jefferson-hotel.com
 jefferson-madisonandmonroe.com
 jefferson.com.my
 jefferson.de
-jefferson.edu
-jefferson2241.tumblr.com
 jefferson99.freeserve.co.uk
 jeffersonairplane.net
 jeffersonbaptist.com
@@ -50216,26 +49093,19 @@ jeffersoncityhomes.com
 jeffersoncityhonda.com
 jeffersoncitykids.com
 jeffersoncitylastminute.com
-jeffersoncitymo.gov
 jeffersoncityphoneservice.com
 jeffersoncitytoyota.com
 jeffersoncoinandbullion.com
 jeffersoncondos.com
 jeffersoncoronel.com
 jeffersoncosta.com
-jeffersoncounty-mt.gov
 jeffersoncounty.skynetblogs.be
 jeffersoncountycolorado.com
 jeffersoncountyfair.com
-jeffersoncountyfl.gov
 jeffersoncountyfoodhandler.com
-jeffersoncountyga.gov
 jeffersoncountyhistory.com
 jeffersoncountyhome.com
 jeffersoncountylaw.com
-jeffersoncountyms.gov
-jeffersoncountytn.gov
-jeffersoncountywi.gov
 jeffersoncourt.com
 jeffersoncrew.com
 jeffersoncunha.com
@@ -50268,7 +49138,6 @@ jeffersonkulig.com
 jeffersonla.com
 jeffersonlakes.com
 jeffersonlaw.net
-jeffersonleroy.tumblr.com
 jeffersonlighthousebaptist.com
 jeffersonlodging.com
 jeffersonlofts.com
@@ -50388,7 +49257,6 @@ jeffersontexasvacationrental.com
 jeffersontown-ky.com
 jeffersontownchristian.com
 jeffersontowninsurance.com
-jeffersontownky.gov
 jeffersontownrealty.com
 jeffersontrailer.com
 jeffersonville-ky.com
@@ -50459,7 +49327,6 @@ jeffforpresident.com
 jeffforte.com
 jefffried.com
 jefffrieden.com
-jefffunkerotica.tumblr.com
 jefffurrgamecalls.com
 jeffgagie.com
 jeffgalante.com
@@ -50492,10 +49359,8 @@ jeffgrayrealty.com
 jeffgreen.net
 jeffgroupny.com
 jeffgunther.net
-jeffguzzle.tumblr.com
 jeffhaas.com
 jeffhadhazy.com
-jeffhaft-whorehouse.tumblr.com
 jeffhamon.com
 jeffhanneman.com
 jeffharrisforcitycouncil.org
@@ -50520,7 +49385,6 @@ jeffhowlett.com
 jeffhunter.com
 jeffi.com
 jeffidea.com
-jeffie911.tumblr.com
 jeffiers.com
 jeffinc.com
 jeffingram.com
@@ -50606,7 +49470,6 @@ jeffjeffd.com
 jeffjeffreys.com
 jeffjess.com
 jeffjill.com
-jeffjman.tumblr.com
 jeffjohnsen.com
 jeffjohnsonattorney.com
 jeffjohnsongs.com
@@ -50632,7 +49495,6 @@ jeffkongs.com
 jeffkrauss.com
 jeffkrebs.com
 jeffkrewson.com
-jeffkum.tumblr.com
 jeffkummer.com
 jeffkushnir.com
 jefflaflamme.com
@@ -50685,13 +49547,11 @@ jeffmccarthylaw.com
 jeffmccool.com
 jeffmcgrath.com
 jeffmcrae.com
-jeffmdiver.tumblr.com
 jeffmeija.com
 jeffmelissahiltonhead.com
 jeffmem.com
 jeffmetcalf.com
 jeffmetzgerrochesterny.com
-jeffmilligan.tumblr.com
 jeffmilne.com
 jeffminer.com
 jeffmintz.com
@@ -50727,7 +49587,6 @@ jeffpainting.net
 jeffpajot.com
 jeffpalmer.com
 jeffpalmer.net
-jeffpalmernasty.tumblr.com
 jeffparrott.com
 jeffpass.simonevin.com
 jeffpaterson.com
@@ -50762,7 +49621,6 @@ jeffrey-baptistefinearts.com
 jeffrey-buttle.com
 jeffrey-craig.com
 jeffrey-harrigan.in
-jeffrey-huntwell.tumblr.com
 jeffrey-marlar.us
 jeffrey-pasillas.us.org
 jeffrey.photos
@@ -50811,7 +49669,6 @@ jeffreychi.com
 jeffreychristian.com
 jeffreychurch.com
 jeffreychurchill.com
-jeffreyclaudedlove.tumblr.com
 jeffreyclement.com
 jeffreycomer.com
 jeffreycotton.com
@@ -50833,7 +49690,6 @@ jeffreydwilson.com
 jeffreyeast.com
 jeffreyechristian.com
 jeffreyengel.com
-jeffreyfj.tumblr.com
 jeffreyflores.com
 jeffreyflynt.com
 jeffreyforbes.com
@@ -51013,9 +49869,7 @@ jeffry.olltd.dictums.anelotti.com
 jeffryjones.com
 jeffryjulianto.com
 jeffs-amateur-sex-galleries.com
-jeffs-blogs-of-women-in-bondage.tumblr.com
 jeffs-koreskole.dk
-jeffsafera.tumblr.com
 jeffsainsburytours.com
 jeffsalernoelectric.com
 jeffsalvato.com
@@ -51049,10 +49903,8 @@ jeffset.fr
 jeffsetter.com
 jeffsevents.com
 jeffsfarm.com
-jeffsfavbondagepics.tumblr.com
 jeffsfetishvideos.com
 jeffsgals.com
-jeffsgirls.tumblr.com
 jeffshaffer.com
 jeffshare.com
 jeffshen.com
@@ -51063,7 +49915,6 @@ jeffsimms.com
 jeffsimpkins.net
 jeffsinterracialporn.com
 jeffsipe.com
-jeffsissy.tumblr.com
 jeffsjeepyard.com
 jeffsjerky.com
 jeffski.com
@@ -51076,7 +49927,6 @@ jeffsmeats.com
 jeffsmithpainting.com
 jeffsmitt.rebecaharmony.com
 jeffsmodels.com
-jeffsmodels.tumblr.com
 jeffsnicnacs.com
 jeffsousa.com
 jeffspace.com
@@ -51118,8 +49968,6 @@ jeffteza.com
 jeffthayer.com
 jeffthe420gourmet.com
 jeffthebat.com
-jeffthekiddo.tumblr.com
-jeffthemasturbator.tumblr.com
 jeffthorne.com
 jeffthrall.com
 jefftodd.net
@@ -51133,7 +49981,6 @@ jeffvandermeer.com
 jeffvanpatten.com
 jeffvoegtlin.com
 jeffvuvuzela.com
-jeffw00t.tumblr.com
 jeffwallaceracing.com
 jeffwalston.com
 jeffwaltersdiamonds.com
@@ -51157,13 +50004,9 @@ jeffwpace.com
 jeffwu.net
 jeffwylercrazydeals.com
 jeffwylerlawrenceburgcrazydeals.com
-jeffy88.tumblr.com
 jeffyang.net
 jeffyeh.com
 jeffyes.pro
-jeffyfuckingt-deactivated201601.tumblr.com
-jeffyfuckingt.tumblr.com
-jeffyj34.tumblr.com
 jeffyoak.com
 jeffyost-music.moonfruit.com
 jeffystephie.com
@@ -51253,13 +50096,10 @@ jefs.net
 jefsbackyard.com
 jefsen.com
 jefshosjdve.com
-jefsnook.tumblr.com
-jefstro.tumblr.com
 jefsy.com
 jefte.com
 jeftelles.com.br
 jeftepublicidad.com
-jeftharichard.tumblr.com
 jeftin.com
 jeftina.com
 jeftinaputovanja.com
@@ -51505,7 +50345,6 @@ jehigyjyro.freehostplace.com
 jehilanfrocbiboyi.gutesikrefiqew.com
 jehillpa.blog.com
 jehiners.com
-jehip.tumblr.com
 jehj.com
 jehj.ru
 jehja.googlevideo.com
@@ -51550,7 +50389,6 @@ jehovahbible.com
 jehovahchristianministries2.com
 jehovahcupid.com
 jehovahelohim.com
-jehovahhthickness.tumblr.com
 jehovahjirehbibleinsitutehl.com
 jehovahministries.com
 jehovahnissi.com
@@ -51598,7 +50436,6 @@ jehsj.googlevideo.com
 jehsm.googlevideo.com
 jehso.googlevideo.com
 jehstallionstation.com
-jehsuicide.tumblr.com
 jehtfoundation.com
 jehub.googlevideo.com
 jehuda.com
@@ -51778,7 +50615,6 @@ jejagames.com
 jejah.com
 jejajungangch.com
 jejak.com
-jejakauntukkamu.tumblr.com
 jejalanan.com
 jejamoo.com
 jejantanhot.blogspot.ca
@@ -52039,7 +50875,6 @@ jekka.com
 jekkasherbfarm.com
 jekkc.googlevideo.com
 jekkceleb.vacau.com
-jekkehonning.tumblr.com
 jekkil.net
 jekkko.info
 jekkn.googlevideo.com
@@ -52160,7 +50995,6 @@ jelax.com
 jelazsa.com
 jelbait.com
 jelbanaoubdi.net
-jelbel6360.tumblr.com
 jelc.net
 jelcd.googlevideo.com
 jelcg.googlevideo.com
@@ -52197,7 +51031,6 @@ jelenakarleusa.com
 jelenasblog.com
 jelenasexclub.com
 jelenasjugs.com
-jelenatrash.tumblr.com
 jelene.com
 jelenecarmine.com
 jelenesofia.ru
@@ -52228,7 +51061,6 @@ jelgerstop.com
 jelgraphics.net
 jeliasvaz.sites.uol.com.br
 jelibheep.com
-jelibon-art.tumblr.com
 jelibonya.com
 jelibonya.net
 jelic.googlevideo.com
@@ -52276,7 +51108,6 @@ jelksfamily.com
 jell.isgreat.org
 jella.googlevideo.com
 jellabella.com
-jellals.tumblr.com
 jellato.com
 jellbelly.com
 jelld.googlevideo.com
@@ -52336,7 +51167,6 @@ jelly-jelly.com
 jelly-jobs.com
 jelly-life.com
 jelly-records.de
-jelly-rolls-not-gender-roles.tumblr.com
 jelly-soft-pussy.searchmole.co.uk
 jelly-soft-vibrating-vagina.searchmole.co.uk
 jelly-surprize.co.uk
@@ -52347,7 +51177,6 @@ jelly.net
 jelly.pbphgwbr.in
 jelly.xn--b1aunp.xn--p1ai
 jelly2188.blogspot.com
-jellyanalsex.tumblr.com
 jellyandpeanutbutter.com
 jellyawake.com
 jellybaby.org.uk
@@ -52371,7 +51200,6 @@ jellybeanies.com
 jellybeanjumpers.com
 jellybeanlinks.com
 jellybeanmarketing.com
-jellybeanphalange.tumblr.com
 jellybeanphoto.com
 jellybeanportraits.com
 jellybeanqueen.com
@@ -52428,7 +51256,6 @@ jellyfishband.com
 jellyfishchurch.com
 jellyfishcollectibles.com
 jellyfishcreations.com
-jellyfishdonuts.tumblr.com
 jellyfishetailer.com
 jellyfishetailers.com
 jellyfishfashion.com
@@ -52441,7 +51268,6 @@ jellyfishnet.com
 jellyfishproductions.net
 jellyfishsquish.com
 jellyfishstudios.com
-jellyfishtantrum.tumblr.com
 jellyfishwebdesigns.com
 jellyfishwebtech.com
 jellyflag.com
@@ -52455,7 +51281,6 @@ jellygamatgoldg.com
 jellygamatluxor.com
 jellygames.com
 jellygay.deviantart.com
-jellygay.tumblr.com
 jellygel.com
 jellygems.com
 jellygenius.com
@@ -52473,7 +51298,6 @@ jellyhouse.com
 jellyjobs.com
 jellyjourney.com
 jellyjoy.com
-jellyjuicer.tumblr.com
 jellyjumper.com
 jellylabs.com
 jellylike.com
@@ -52483,11 +51307,9 @@ jellymarket.com
 jellymellysta.com
 jellymist.com
 jellymoney.com
-jellymonstergirl.tumblr.com
 jellyneo.net
 jellyo.com
 jellyon.com
-jellyonmybelly.tumblr.com
 jellyoral-kamagra.net
 jellyowenfck.com
 jellypancakehouse.com
@@ -52508,7 +51330,6 @@ jellyrolltiedyes.com
 jellyrollz.com
 jellyround.com
 jellysampler.com
-jellysatoshi.tumblr.com
 jellyschool.com
 jellysdonuts.com
 jellyses.pw
@@ -52549,7 +51370,6 @@ jellywork.com
 jellywrestling.com
 jellywrestling.nu
 jellywrestling.tv
-jellyxsex.tumblr.com
 jellyy.com
 jellzax.com
 jelm.com
@@ -52663,8 +51483,6 @@ jelzn.googlevideo.com
 jelzt.googlevideo.com
 jem-111.com
 jem-music.net
-jem-sie.tumblr.com
-jem.gov
 jem.me
 jem.nu
 jem.recombinantsunengaged.com
@@ -52698,7 +51516,6 @@ jemartinez.com
 jemas-guesthouse.de
 jemassage.com
 jemate.free.fr
-jematejemebranleetjezappe.tumblr.com
 jemato.com
 jematravels.com
 jematte.citeheb.net
@@ -52718,7 +51535,6 @@ jembut-smtp.com
 jembut.tk
 jembutasukalomau.com
 jembyrinjahlodge.com.au
-jemcasey.tumblr.com
 jemcasino.com
 jemcclainent.com
 jemcclainproductions.com
@@ -52754,7 +51570,6 @@ jemed.com
 jemef.org
 jemeforme.net
 jemeg.com
-jemelacheeu.tumblr.com
 jemelapete.com
 jemelatouche.com
 jemele.com
@@ -52777,7 +51592,6 @@ jemetapeunepornstar.com
 jemetcd.cn
 jemevenge.com
 jemevenge.net
-jemevenge.tumblr.com
 jemexhibe.fr
 jemexhibe.free.fr
 jemezinstitute.com
@@ -52795,7 +51609,6 @@ jemft.googlevideo.com
 jemfw.googlevideo.com
 jemfz.googlevideo.com
 jemgaming.com
-jemgirl77.tumblr.com
 jemgirls.com
 jemgl.googlevideo.com
 jemglass.com
@@ -52892,11 +51705,9 @@ jemmaschilling.com
 jemmavictoria.com
 jemmconstruction.com
 jemmctldpk.pl
-jemmerdepenelope.tumblr.com
 jemmgroup.com
 jemmie.com
 jemmiecassymufi.ru
-jemmieloveskinkyplay.tumblr.com
 jemmiemarlyn.ru
 jemmieriannon.com
 jemmit.com
@@ -52906,12 +51717,10 @@ jemmortgage.com
 jemmy.stream
 jemmyardelis.ru
 jemmycoleen.in
-jemmykity.tumblr.com
 jemmyluz.com
 jemmymirelle.in
 jemmynedda.com
 jemmyphyllida.com
-jemmytee57.tumblr.com
 jemnemelodie.sk
 jemnotmexqrs.com
 jemoc.googlevideo.com
@@ -52948,7 +51757,6 @@ jemouille.com
 jemow.googlevideo.com
 jemozan.com
 jempainting.com
-jempc.tumblr.com
 jempet.com
 jempets.com
 jemphoto.com
@@ -53101,7 +51909,6 @@ jemzm.googlevideo.com
 jemzone.com
 jemzu.googlevideo.com
 jemzx.googlevideo.com
-jen-alexandru.tumblr.com
 jen-baldree.us
 jen-baltz.in
 jen-brandl.us
@@ -53118,7 +51925,6 @@ jen-jenson.us.org
 jen-lang.us
 jen-lobdell.us
 jen-longley.us
-jen-loves-s3x.tumblr.com
 jen-mancia.us
 jen-matos.us
 jen-mays.us.org
@@ -53137,9 +51943,6 @@ jen.grissett.joeplast.com
 jen01.zemanta.com
 jen1.com
 jen18.com
-jen2love.tumblr.com
-jen2max.tumblr.com
-jen8678.tumblr.com
 jena-bane.us
 jena-barcenas.in
 jena-bigger.us.org
@@ -53296,7 +52099,6 @@ jencapriati.de
 jencapriati.narod.ru
 jencarlson.com
 jencasey.com
-jencd35.tumblr.com
 jencdczieymndl.com
 jencess.com
 jenchambers.com
@@ -53441,7 +52243,6 @@ jeneane.com
 jenear.com
 jeneastone.com
 jenecks.com
-jenecomprendrienavosconneries.tumblr.com
 jenecomprendspas.com
 jenedl.net
 jenedo.com
@@ -53512,7 +52313,6 @@ jenespace.com
 jenessa.de
 jenessaskye.net
 jenesuispassexy.canalblog.com
-jenesuispasunequichebis.tumblr.com
 jenet.com
 jenetic.com
 jenetta.vinnicrystal.com
@@ -53524,7 +52324,6 @@ jenever.net
 jenevevejoliefucked.com
 jenewapools.com
 jenex.com
-jenexplore.tumblr.com
 jenfanclub.com
 jenfc.googlevideo.com
 jenfe.net
@@ -53538,7 +52337,6 @@ jenfreecam.info
 jenfu.com
 jenfw.googlevideo.com
 jenfz.googlevideo.com
-jeng007.tumblr.com
 jenga.googlevideo.com
 jengadss.com
 jengage.com
@@ -53586,7 +52384,6 @@ jeni-deni7.com
 jenial.com
 jenialexander.com
 jenialuv.com
-jenialuv.tumblr.com
 jeniantonie.com
 jenibehrens.com
 jeniberenice.ru
@@ -53678,14 +52475,12 @@ jeninerubia.com
 jeningram.com
 jeninnet.com
 jeniou.com
-jeniphyer.tumblr.com
 jeniquecestmythique.free.fr
 jeniquecestmythique.org
 jenir.googlevideo.com
 jenira.com
 jenis9q.dx.am
 jenisegreggcouture.com
-jenisicecreams.tumblr.com
 jenism.com
 jenisonchristian.com
 jenisonchristianpreschool.com
@@ -53712,7 +52507,6 @@ jenjan.com
 jenjb.googlevideo.com
 jenjenhouse.co
 jenjenkins.com
-jenjensexypants.tumblr.com
 jenjh.googlevideo.com
 jenji.com
 jenjustice.com
@@ -53811,7 +52605,6 @@ jenle.com
 jenlee.com
 jenleo.com
 jenlevelebas.com
-jenlevemaculotte.tumblr.com
 jenlevetout.com
 jenlewdesigns.com
 jenlibertine.free.fr
@@ -53860,7 +52653,6 @@ jenmy.googlevideo.com
 jenn-cam.com
 jenn-church.com
 jenn-nicole.com
-jenn14u.tumblr.com
 jenna---jameson-nude.com
 jenna---jameson-pictures.com
 jenna--jameson.com
@@ -53876,7 +52668,6 @@ jenna-byrum.us
 jenna-can.com
 jenna-caudell.us
 jenna-causey.biz
-jenna-cd.tumblr.com
 jenna-coleman.in
 jenna-corman.us
 jenna-dilworth.us
@@ -53931,7 +52722,6 @@ jenna-jameson-pictures.com
 jenna-jameson-pictures.nu
 jenna-jameson-pix.com
 jenna-jameson-porn-star.com
-jenna-jameson-porn.tumblr.com
 jenna-jameson-pornstar.com
 jenna-jameson-sex-videos.com
 jenna-jameson-uncovered.com
@@ -54030,15 +52820,12 @@ jenna-jamison.com
 jenna-kuhl.us
 jenna-lavin.us
 jenna-lewis-sex-tape.hi5.com
-jenna-lips.tumblr.com
 jenna-maldonado.us
 jenna-natasha.com
 jenna-pictures.com
 jenna-porn-pics.com
-jenna-presleyxxx.tumblr.com
 jenna-sex-tape.com
 jenna-sex-video.com
-jenna-slutt21.tumblr.com
 jenna-soileau.in
 jenna-vanallen.us
 jenna-vandeventer.biz
@@ -54082,7 +52869,6 @@ jennabaisley.com
 jennabarnaby.com
 jennabarrettprogramming.com
 jennabaxter.com
-jennabdsm.tumblr.com
 jennabestpictures.fsn.net
 jennabeths.com
 jennablog.com
@@ -54097,8 +52883,6 @@ jennaburger.com
 jennacam.com
 jennacash.com
 jennacaswell.com
-jennacdxxx.tumblr.com
-jennachaste.tumblr.com
 jennachristian.com
 jennachristiansen.com
 jennaclaire.com
@@ -54119,7 +52903,6 @@ jennaericson.com
 jennaetsonhomme.over-blog.com
 jennaezarik.com
 jennafan.com
-jennafan4711.tumblr.com
 jennafatigue.blogspot.ae
 jennafatigue.blogspot.al
 jennafatigue.blogspot.am
@@ -54200,13 +52983,11 @@ jennafreepics.com
 jennafreesex.com
 jennafuck.com
 jennafucking.com
-jennafuckingjameson.tumblr.com
 jennafucks.com
 jennagallery.cjb.net
 jennaglen.com
 jennagweneth.su
 jennah.com.tr
-jennahaley29.tumblr.com
 jennahall.com
 jennahard.com
 jennaharris.com
@@ -54293,7 +53074,6 @@ jennahazefuck.com
 jennahazefucked.com
 jennahazeinterracial.com
 jennahazenude.com
-jennahazepix.tumblr.com
 jennahazepornstar.co.uk
 jennahazesex.com
 jennahazesex.jed.pl
@@ -54505,7 +53285,6 @@ jennajamesonlive.com
 jennajamesonmovie.com
 jennajamesonmovies.4-all.org
 jennajamesonmovies.com
-jennajamesonmovies.tumblr.com
 jennajamesonmpeg.com
 jennajamesonmpegs.com
 jennajamesonmpg.com
@@ -54525,7 +53304,6 @@ jennajamesonpictures.net
 jennajamesonporn.com
 jennajamesonporn.info
 jennajamesonporn.jed.pl
-jennajamesonporn.tumblr.com
 jennajamesonpornstar.com
 jennajamesonposters.com
 jennajamesonprivate.com
@@ -54617,10 +53395,8 @@ jennajamison.net
 jennajanes.com
 jennajay.com
 jennajemeson.com
-jennajennastone.tumblr.com
 jennajfree.fsn.net
 jennajoy.com
-jennajrossxxx.tumblr.com
 jennajuel.com
 jennajuice.com
 jennajzone.com
@@ -54663,7 +53439,6 @@ jennandjeff.com
 jennandtonic.com
 jennandy.com
 jennanet.com
-jennanixon.tumblr.com
 jennano.com
 jennanorwood.com
 jennanude.com
@@ -54681,15 +53456,12 @@ jennapresley.net
 jennapresley.org
 jennapresleyblog.com
 jennapresleyblog.net
-jennapresleyblog.tumblr.com
 jennapresleyclub.com
 jennapresleyonline.com
 jennapresleysex.info
 jennapresleyxxx.com
 jennapriesleyporn.info
-jennaputnam-deactivated20160114.tumblr.com
 jennarachels.com
-jennarationx.tumblr.com
 jennarconlin.com
 jennareed.com
 jennarichards.com
@@ -54729,7 +53501,6 @@ jennaspecial.com
 jennasplace.com
 jennasplayhouse.com
 jennasreviews.com
-jennassweetspot.tumblr.com
 jennastanton.com
 jennastarr.com
 jennasterner.com
@@ -54802,7 +53573,6 @@ jennastoydepot.blogspot.tw
 jennastoydepot.blogspot.ug
 jennastube.com
 jennastyle.com
-jennasuckscock.tumblr.com
 jennasummer.com
 jennasvideos.com
 jennasvideostore.com
@@ -54817,7 +53587,6 @@ jennateenhottie.com
 jennaterzi.com
 jennatgp.com
 jennathemovie.com
-jennatrapxxx.tumblr.com
 jennavideo.com
 jennavideos.com
 jennavideos.org
@@ -54862,7 +53631,6 @@ jennelsworld.com
 jennene.com
 jennenenorman.com
 jennerbahn.de
-jennerboots.tumblr.com
 jenneri.com
 jenneric.com
 jennerinn.com
@@ -54894,9 +53662,6 @@ jennharvey.com
 jennhealth.com
 jennholland.com
 jenni-cams.com
-jenni-fairy.tumblr.com
-jenni-lee-p720p.tumblr.com
-jenni-lee-rmv.tumblr.com
 jenni.ca
 jenni.jepose.org
 jenni.net
@@ -55030,7 +53795,6 @@ jenniecam.de
 jenniechristianson.com
 jenniecrawford.com
 jenniedoescolors.com
-jenniefemme.tumblr.com
 jenniefield.com
 jenniefineart.com
 jenniefredrik.weddingannouncer.com
@@ -55040,7 +53804,6 @@ jenniehendrix.com
 jenniehess.com
 jenniejacobs.com
 jenniejay.com
-jenniejaye.tumblr.com
 jenniejean.com
 jennieking.com
 jennieklassel.com
@@ -55243,7 +54006,6 @@ jennifer-eccleston.com
 jennifer-ellsworth.com
 jennifer-emerson.sweet-babes.info
 jennifer-emma.us
-jennifer-english-shemale.tumblr.com
 jennifer-escort.co.uk
 jennifer-findlay.us
 jennifer-foy.us
@@ -55695,10 +54457,8 @@ jennifer-ratliff.us
 jennifer-reichenbach.us
 jennifer-rocks.com
 jennifer-seese.us
-jennifer-share-your-pussy.tumblr.com
 jennifer-sickles.us.org
 jennifer-slawson.us.org
-jennifer-slut.tumblr.com
 jennifer-smith.com
 jennifer-stewart.com
 jennifer-stone.com
@@ -55760,7 +54520,6 @@ jenniferanistonfansite.com
 jenniferanistonnude.com
 jenniferanistonnude.hepi.pl
 jenniferanistonoops.com
-jenniferanistonsexylegs.tumblr.com
 jenniferann.com
 jenniferann.org
 jenniferanneimages.com
@@ -55848,7 +54607,6 @@ jenniferchurchill.com
 jenniferchurchillrealestate.com
 jenniferchurchman.com
 jenniferclaire.com
-jenniferclairer.tumblr.com
 jenniferclosebooks.com
 jenniferclub.blogspot.ae
 jenniferclub.blogspot.al
@@ -55990,7 +54748,6 @@ jenniferfrankel.com
 jenniferfrench.com
 jenniferfriend.net
 jenniferfritzsche.com
-jenniferfuckinglawrence.tumblr.com
 jenniferfusco.com
 jennifergalleries.com
 jennifergarantoriginals.com
@@ -56003,7 +54760,6 @@ jennifergarrigues.com
 jennifergeorgenyc.com
 jennifergill.com
 jennifergolden.com
-jennifergoode5741.tumblr.com
 jennifergorman.com
 jennifergostin.com
 jennifergrantoriginals.com
@@ -56020,7 +54776,6 @@ jenniferheart.com
 jenniferhedge.com
 jenniferheil.com
 jenniferheim.com
-jenniferhellman.tumblr.com
 jenniferhendrickson.com
 jenniferhero.com
 jenniferhinton.com
@@ -56142,10 +54897,7 @@ jenniferlashin.com
 jenniferlashin.net
 jenniferlauer.com
 jenniferlavoie.com
-jenniferlawrenceboobs.tumblr.com
-jenniferlawrenceboobss-deactiva.tumblr.com
 jenniferlawrencedaily.com
-jenniferlawrencesniceboobies.tumblr.com
 jenniferlayton.com
 jenniferlea.com
 jenniferleah.com
@@ -56157,7 +54909,6 @@ jenniferleslieroos.com
 jenniferlewandrews.com
 jenniferlikestosharefood.com
 jenniferlilllie.com
-jenniferlilycd.tumblr.com
 jenniferlindseysoprano.com
 jenniferlisa.com
 jenniferloans.com
@@ -56261,7 +55012,6 @@ jenniferottochristianjewelry.com
 jenniferpacheco.com
 jenniferpadgett.com
 jenniferpage.com
-jenniferpaigeimvu.tumblr.com
 jenniferpattison.com
 jenniferpayson.com
 jenniferpearl.com
@@ -56375,7 +55125,6 @@ jennifersplaceusa.homestead.com
 jenniferspussy.com
 jennifersquires.com
 jenniferssexblog.nl
-jenniferssexy.tumblr.com
 jenniferstafford.com
 jenniferstearns.com
 jennifersteele.com
@@ -56472,8 +55221,6 @@ jenniferthompsonphotography.com
 jennifertilly.com
 jennifertinker.com
 jennifertlindsey.com
-jennifertoole.tumblr.com
-jennifertopaz.tumblr.com
 jennifertorgerson.com
 jennifervaldez.com
 jennifervanfleetdesigns.com
@@ -56514,17 +55261,14 @@ jennified.com
 jennifleurs.co.uk
 jenniflower.com
 jenniges.com
-jennih72.tumblr.com
 jenniharley.com
 jenniheartcreations.com
-jennihthings.tumblr.com
 jennijames.com
 jennijulienne.com
 jennilee-online.com
 jennileeagata.com
 jennileed.com
 jennileenissajeni.ru
-jennileepornstar.tumblr.com
 jennilopeznude.com
 jenniloveyou.com
 jennilyn.com
@@ -56548,7 +55292,6 @@ jenningschurchofgod.com
 jenningscitrus.com
 jenningscodingedu.com
 jenningscontracting.com
-jenningscounty-in.gov
 jenningscruising.com
 jenningsflorists.com
 jenningsfurniture.com
@@ -56575,9 +55318,7 @@ jenniraeholisticharmony.com
 jennirobertson.com
 jennise.com
 jennise.mobley.eu.luiex.science
-jenniselfies.tumblr.com
 jennisex.com
-jennisissycumslut.tumblr.com
 jennisjoie.com
 jennisse.com
 jennissecrets.com
@@ -56588,10 +55329,8 @@ jennita.com
 jenniteenmodel.com
 jennitel.com
 jennith.us
-jennitheslutst.tumblr.com
 jennithompson.com
 jennitwerpstreats.com
-jenniuktv.tumblr.com
 jennium.us
 jenniver.com
 jenniwilliams.com
@@ -56617,7 +55356,6 @@ jennmccabe.com
 jennmclean.com
 jennmcnamara.com
 jennmorris.com
-jennnnlikesgirlstooo0.tumblr.com
 jennnnnajameson.blogspot.ca
 jennnnnajameson.blogspot.ch
 jennnnnajameson.blogspot.co.id
@@ -56701,7 +55439,6 @@ jennnnnajamesongoodgirl.blogspot.sk
 jennnnnajamesongoodgirl.blogspot.sn
 jennnnnajamesongoodgirl.blogspot.tw
 jennnnnajamesongoodgirl.blogspot.ug
-jennnnnnnnnnyy.tumblr.com
 jennny.net
 jenno.adsb4all.com
 jennobrien.com
@@ -56732,7 +55469,6 @@ jennsoranno.com
 jennsouth.com
 jennsracingpage.freeservers.com
 jennstang.com
-jennsummers50.tumblr.com
 jennsuncorp.biz
 jennsyoga.com
 jenntafrica.com
@@ -56767,7 +55503,6 @@ jenny-eisenhart.us
 jenny-erotikchat.de
 jenny-escort.com
 jenny-escortgirlparis.com
-jenny-fag.tumblr.com
 jenny-fashion.com
 jenny-finke.us
 jenny-flirtchat.de
@@ -56934,7 +55669,6 @@ jenny-mysliwiec.in
 jenny-odle.us
 jenny-online.com
 jenny-poussin.com
-jenny-poussin.tumblr.com
 jenny-poythress.us
 jenny-rae.com
 jenny-reade.us
@@ -56974,7 +55708,6 @@ jenny20.alfahosting.org
 jenny22geil.dr.ag
 jenny6.de
 jenny867-5309.com
-jenny8teen.tumblr.com
 jennya.com
 jennyaaron.com
 jennyabrams.com
@@ -57030,7 +55763,6 @@ jennyblancdesigns.com
 jennyblock.com
 jennyblue.com
 jennyboggsmusic.co.uk
-jennyboi383.tumblr.com
 jennybone.com
 jennybookmarks.com
 jennybot.com
@@ -57066,7 +55798,6 @@ jennychristiansen.com
 jennychurch.com
 jennychurchill.com
 jennychurchstudio.com
-jennyclarkexxx.tumblr.com
 jennyclements.com
 jennyclub.com
 jennyconroy.com
@@ -57155,8 +55886,6 @@ jennydance.com
 jennydaniel.com
 jennydaniels.com
 jennydark.com
-jennydarukat.tumblr.com
-jennydavidwright.tumblr.com
 jennydavis.com
 jennydawson.com
 jennydemilo.blogspot.ae
@@ -57256,21 +55985,18 @@ jennyferx.startspot.nl
 jennyfields.com
 jennyfire.ru
 jennyfisher.com
-jennyfisting123.tumblr.com
 jennyfm.com
 jennyfong.com
 jennyfood.com
 jennyfreeman.com
 jennyfromtheblockchain.com
 jennyfy.info
-jennyfyre.tumblr.com
 jennygallery.com
 jennygarth.com
 jennygear.com
 jennygibbs.com
 jennygirlnextdoor.com
 jennygirlshotspot.com
-jennyglamhdvideos.tumblr.com
 jennygonzales.com
 jennygrace.com
 jennygracebiblestories.com
@@ -57383,11 +56109,8 @@ jennyhung.com
 jennyhunter.com
 jennyhyun.com
 jennyim.us
-jennyinmaryjanes.tumblr.com
 jennyinvert.com
-jennyisaslut.tumblr.com
 jennyishmael.com
-jennyistdauergeil.tumblr.com
 jennyjacobs.com
 jennyjewelry.com
 jennyjewels.com
@@ -57395,7 +56118,6 @@ jennyjoe.com
 jennyjohnson.com
 jennyjones.com
 jennyjozwiak.com
-jennyjsimran.tumblr.com
 jennyjuggs.com
 jennyjune.com
 jennyjunto.com
@@ -57428,10 +56150,6 @@ jennyloopnfljerseys.ru
 jennylopes.com
 jennylouandco.com
 jennylove.com
-jennylovesdogs.tumblr.com
-jennylovesdogs01.tumblr.com
-jennylovesdogs02.tumblr.com
-jennylovespornstuff.tumblr.com
 jennylupton.co.uk
 jennymaccarthy.free.fr
 jennymack.com
@@ -57445,7 +56163,6 @@ jennymatthews.pwp.blueyonder.co.uk
 jennymaus.com
 jennymaus.de.tk
 jennymaymarketing.com
-jennymayrrell.tumblr.com
 jennymcallister.com
 jennymcallister.com.au
 jennymcallister.net
@@ -57578,7 +56295,6 @@ jennypennynaturals.com
 jennypenton.net
 jennyperry.com
 jennypersson.com
-jennypes84.tumblr.com
 jennypestanita.com
 jennypetstore.com
 jennypharmacy.com
@@ -57591,7 +56307,6 @@ jennyporn.com
 jennypoussin.com
 jennypoussin.net
 jennypoussinblog.com
-jennypoussintribute.tumblr.com
 jennypoussinvip.com
 jennyrae39.com
 jennyreber.com
@@ -57599,7 +56314,6 @@ jennyreid.com
 jennyreview.com
 jennyreviews.com
 jennyrichards.com
-jennyrichardson.tumblr.com
 jennyridge.com
 jennyriverasex.com
 jennyrobertson.com
@@ -57637,7 +56351,6 @@ jennysbibles.com
 jennysbigbutts.com
 jennysblackporn.com
 jennysbookmarks.com
-jennysboytoys.tumblr.com
 jennyschat.de
 jennyschatzleprogram.com
 jennyschickens.com
@@ -57654,10 +56367,8 @@ jennysellshomes.com
 jennysex.com
 jennysex.free.fr
 jennysexe.com
-jennysexi.tumblr.com
 jennysexporno.com
 jennysexy.over-blog.com
-jennysfantasies.tumblr.com
 jennysfeetblog.blogspot.ae
 jennysfeetblog.blogspot.al
 jennysfeetblog.blogspot.am
@@ -57743,7 +56454,6 @@ jennyshow.com
 jennysilva.com
 jennysims.com
 jennysinterracialsex.com
-jennysissyslut.tumblr.com
 jennysite.com
 jennysjems.com
 jennysjerkchicken.co.uk
@@ -57756,7 +56466,6 @@ jennysmassage.com
 jennysmatureporn.com
 jennysminis.com
 jennysnotes.com
-jennysnudegirls.tumblr.com
 jennysnylons.com
 jennysonthespot.com
 jennyspage.co.uk
@@ -57864,21 +56573,17 @@ jennysworld.net
 jennysxxxcam.com
 jennyteasz.com
 jennytel.com
-jennytgirl.tumblr.com
 jennytheartists.com
 jennythepug.0catch.com
 jennythomson.com
 jennythpopun.googlepages.com
 jennytill.com
-jennytis.tumblr.com
 jennytoo.com
-jennytsuk.tumblr.com
 jennytucker.com
 jennytull.com
 jennyturner.com
 jennyupchurch.com
 jennyvalentine.com
-jennyvalentine93.tumblr.com
 jennyviana.com
 jennyvictoria.com
 jennyvideo.cjb.net
@@ -57904,7 +56609,6 @@ jennyx.startspot.nl
 jennyxie.com
 jennyxxx.free.fr
 jennyxxx.startspot.nl
-jennyxxxstylez.tumblr.com
 jennyyearwood.com
 jennyz.com
 jennyzeran.com
@@ -57920,7 +56624,6 @@ jenol.googlevideo.com
 jenolancaves.com
 jenolancaves.net
 jenolancaves.org.au
-jenoleno.tumblr.com
 jenomaholidayrental.com
 jenomsex.cz
 jenone.com
@@ -57986,7 +56689,6 @@ jenrus.com
 jenrussell.com
 jenrv.googlevideo.com
 jens-christian.com
-jens-devolder.tumblr.com
 jens-eickmeier.net
 jens-filbrich.de
 jens-matthias.de
@@ -57995,7 +56697,6 @@ jens-moellmann.de
 jens-s.com
 jens-sehm-furniture.com
 jens-sex-video.com
-jens1112.tumblr.com
 jens1893.de
 jensa.com
 jensa.us
@@ -58031,7 +56732,6 @@ jenschristiantop.com
 jenscloset.com
 jensco.com
 jenscool.com
-jenscuckold.tumblr.com
 jenscustomdesigns.com
 jensdamgaard.com
 jensden.co.uk
@@ -58043,7 +56743,6 @@ jensee.com
 jenseitskontakte.com
 jensen-adventures.com
 jensen-captiva.com
-jensen-fuckles.tumblr.com
 jensen-jewelers.com
 jensen-lewis.com
 jensen-shires.com
@@ -58108,7 +56807,6 @@ jensensteamengines.com
 jensenstennis.com.au
 jensensvacandsew.com
 jensensyamahamusic.com
-jensented.tumblr.com
 jensenturner.com
 jensenventures.com
 jenservices.com
@@ -58116,7 +56814,6 @@ jensesamateure.de
 jensevents.com
 jensex.com
 jensfashion.com
-jensfetishfiles.tumblr.com
 jensgems.com
 jensgifts.com
 jensglass.tripod.com
@@ -58131,7 +56828,6 @@ jensheppner.de
 jenshewring.com
 jensholm.com
 jenshop.com
-jenshubby.tumblr.com
 jenshundartiklar.com
 jensicons.com
 jensigame.com
@@ -58157,7 +56853,6 @@ jenslair.com
 jenslinks.net
 jenslkoovers.com
 jenslove.com
-jenslut.tumblr.com
 jensmaier.com
 jensmarket.com
 jensmilfs.com
@@ -58186,7 +56881,6 @@ jensplace.com
 jensplayhouse.com
 jensporn.com
 jensport.com
-jenspussylovescock.tumblr.com
 jensquistgaard.com
 jensreichert.com
 jensrunway.com
@@ -58357,7 +57051,6 @@ jenwc.googlevideo.com
 jenweb.net
 jenwf.googlevideo.com
 jenwi.googlevideo.com
-jenwillsuck.tumblr.com
 jenwisp.com
 jenwl.googlevideo.com
 jenwn.googlevideo.com
@@ -58567,7 +57260,6 @@ jeongja.com
 jeongju.com
 jeongneung.com
 jeongsang.com
-jeongsanghui.tumblr.com
 jeongseon.com
 jeongsoo.com
 jeongsu.com
@@ -58615,7 +57307,6 @@ jeorp.googlevideo.com
 jeors.googlevideo.com
 jeorv.googlevideo.com
 jeory.googlevideo.com
-jeos15.tumblr.com
 jeotermalhaberler.com
 jeotsaed.blog.com
 jeotv.com
@@ -58658,7 +57349,6 @@ jeparoledechanson.com
 jeparoledemusique.com
 jeparoles.com
 jeparts.com
-jeparus.tumblr.com
 jepassealatele.com
 jepbc.googlevideo.com
 jepbf.googlevideo.com
@@ -58679,7 +57369,6 @@ jepea.com
 jepea.googlevideo.com
 jeped.googlevideo.com
 jepejogundogs.co.uk
-jepensepas.tumblr.com
 jepensepasdeca.com
 jepensepublier.com
 jepeo.googlevideo.com
@@ -58738,7 +57427,6 @@ jepjw.googlevideo.com
 jepjz.googlevideo.com
 jeplaw.com
 jeplex.ru
-jeplopla.tumblr.com
 jeplvpnw.ws
 jepm.org
 jepmb.googlevideo.com
@@ -58754,7 +57442,6 @@ jepo.de
 jepodayofrnbxekod.jororreculo.com
 jepolaser.tk
 jepompe.com
-jeporca.tumblr.com
 jepororyrih.eu
 jepose.com
 jeposteonline.com
@@ -58906,7 +57593,6 @@ jequi-on.date
 jequi.com
 jequi.tv
 jequity.com
-jequotati.tumblr.com
 jequotidien.com
 jeqvm.googlevideo.com
 jeqvp.googlevideo.com
@@ -58944,7 +57630,6 @@ jeraleejaneva.com
 jeraline.free.fr
 jeram21.com
 jeramaxdata.biz
-jeramiahbigge.tumblr.com
 jeramiahjoy.com
 jeramies.com
 jeramy.bemiller.tjiiu.pascal.fghorizon.com
@@ -58966,7 +57651,6 @@ jerb.net
 jerba.com
 jerbanicol.com
 jerbe.com
-jerbearcub83.tumblr.com
 jerben.com
 jerbible.com
 jerbj.googlevideo.com
@@ -59009,8 +57693,6 @@ jereles.com
 jerellemanse.com
 jerelo.com
 jerelo.kiev.ua
-jerem57666.tumblr.com
-jerememedia.tumblr.com
 jeremesvape.com
 jeremeydoggy.tk
 jeremi.com
@@ -59062,7 +57744,6 @@ jeremiahvaloaga.com
 jeremiahwalker.com
 jeremiahwong.com
 jeremiahwood.com
-jeremiascintagris.tumblr.com
 jeremiashaw.biz
 jeremiaslawson.com
 jeremiasz.com
@@ -59113,7 +57794,6 @@ jeremy62gregory.insanejournal.com
 jeremyadkins.com
 jeremyallard.com
 jeremyandcasey.com
-jeremyandfriends.tumblr.com
 jeremyandheather.com
 jeremyandjess.com
 jeremyandjill.com
@@ -59174,7 +57854,6 @@ jeremyfones.com
 jeremyfoundation.com
 jeremyfrancejewellers.co.uk
 jeremyfried.com
-jeremyfuckingmckinnon.tumblr.com
 jeremygeiger.com
 jeremygeorge.com
 jeremyglick.com
@@ -59200,7 +57879,6 @@ jeremyhoye.com
 jeremyhubbard.com
 jeremyhyman.com
 jeremyivanderliauw.com
-jeremyj19.tumblr.com
 jeremyjamesosteopath.co.uk
 jeremyjeffress.com
 jeremyjfearn.co.uk
@@ -59234,7 +57912,6 @@ jeremyloans.com
 jeremylopez.net
 jeremylorenzo.com
 jeremylott.com
-jeremylovatic.tumblr.com
 jeremylsmith.com
 jeremylusk.com
 jeremylyerla.com
@@ -59284,7 +57961,6 @@ jeremyriden.com
 jeremyriley.com
 jeremyrmiller.com
 jeremyroddick.com
-jeremyroddick.tumblr.com
 jeremyrogers.co.uk
 jeremyrom.com
 jeremyrosen.com
@@ -59394,7 +58070,6 @@ jeremyszehr.com
 jeremyt.com
 jeremytarpley.com
 jeremytay.com
-jeremytights.tumblr.com
 jeremytmiller.com
 jeremytoddguitar.com
 jeremytorres.com
@@ -59431,7 +58106,6 @@ jerett.com
 jeretyrol.com
 jerev.googlevideo.com
 jerevaisdunautremonde.com
-jerevedefillesfaciles.tumblr.com
 jerevue.com
 jerewesrenez.com
 jerezano.com
@@ -59444,7 +58118,6 @@ jerezlese.com
 jereztravel.com
 jerezymanzanilla.com
 jerezymanzanillasb.com
-jerfem.tumblr.com
 jergames.blogspot.com
 jergcghdys.com
 jergy.com
@@ -59488,8 +58161,6 @@ jeric.com
 jericatarina.su
 jericcrashbyte.com
 jericesae.com
-jerichajem.tumblr.com
-jericho-the-fox.tumblr.com
 jericho.bc.ca
 jerichoabbey.com
 jerichoalamid.blog.com
@@ -59520,7 +58191,6 @@ jerichooverton.com
 jerichoplay.com
 jerichoquartet.com
 jerichorallypoint.com
-jerichorickysavin.tumblr.com
 jerichoriders.com
 jerichoridgechurch.com
 jerichoridgecommunitychurch.com
@@ -59529,16 +58199,12 @@ jerichoroad-church.com
 jerichoroadchristianfellowship.com
 jerichoroadchurch.com
 jerichoroadmusic.com
-jerichosden.tumblr.com
 jerichospromise.com
 jerichostryker.com
 jerichoturnpike.com
 jerichotv.com
-jerichovandamn.tumblr.com
-jerichovt.gov
 jerichow.com
 jerichowines.com
-jerichowolf.tumblr.com
 jerichowoods.com
 jerichristianson.com
 jerickmckinnon.com
@@ -59551,7 +58217,6 @@ jericobb.com
 jericochristianjourneys.com
 jericoperformance.com
 jericosales.com
-jericoxxxx.tumblr.com
 jerida.com
 jeriddos.com
 jeridemote.com
@@ -59586,7 +58251,6 @@ jeripupfrtrwedu.joyuwajareel.com
 jeriryannude.net
 jeris-springer.com
 jerischmidt.com
-jerisissyslut.tumblr.com
 jeriskitchen.com
 jeritran.net
 jeritsa.net
@@ -59594,7 +58258,6 @@ jeriturismo.com.br
 jeriviagens.com.br
 jerjer.vila.bol.com.br
 jerjer.vilabol.uol.com.br
-jerjerboi7.tumblr.com
 jerjerdesigns.com
 jerjg.googlevideo.com
 jerjis.com
@@ -59606,7 +58269,6 @@ jerk-here.com
 jerk-it.com
 jerk-it.net
 jerk-me-off.com
-jerk-me.tumblr.com
 jerk-of-the-year.com
 jerk-off-boys.de
 jerk-off-movies.com
@@ -59618,30 +58280,23 @@ jerk-off.org
 jerk-offpass.com
 jerk-pin.com
 jerk-pin.net
-jerk-slave.tumblr.com
-jerk-sluts.tumblr.com
 jerk.fuckmepornotube.com
 jerk101.com
 jerk2it.com
 jerk4joy.com
 jerk6load.ru
 jerka.googlevideo.com
-jerkableimages.tumblr.com
 jerkaddict.com
-jerkadick.tumblr.com
 jerkaffiliate.com
 jerkandchat.com
-jerkandfistberlin.tumblr.com
 jerkandsurf.com
 jerkaround.com
-jerkasaurous.tumblr.com
 jerkbabes.com
 jerkbait.com
 jerkbandit.com
 jerkbeast.com
 jerkboss.com
 jerkboys.com
-jerkboys.tumblr.com
 jerkcats.com
 jerkchickenrecipes.com
 jerkchurch.com
@@ -59650,7 +58305,6 @@ jerkcity.com
 jerkclips.com
 jerkcult.com
 jerkd.googlevideo.com
-jerkdaniels.tumblr.com
 jerkdick.com
 jerkdirectory.biz
 jerkdns.mobi
@@ -59665,7 +58319,6 @@ jerkednetwork.info
 jerkedoff.com
 jerkem.com
 jerkenstein.com
-jerkenstein.tumblr.com
 jerkers.mobi
 jerkersworld.com
 jerkery.com
@@ -59674,7 +58327,6 @@ jerkface.com
 jerkfi.com
 jerkfilm.com
 jerkforfree.com
-jerkfuel.tumblr.com
 jerkg.googlevideo.com
 jerkgals.com
 jerkgay-berlin.de
@@ -59690,59 +58342,41 @@ jerkiebh.com
 jerkieclient.com
 jerkiest-resolution.000webhostapp.com
 jerkin.com
-jerkinabout.tumblr.com
 jerkinabox.com
 jerkinahat.com
-jerkinandfuckin.tumblr.com
 jerkincrocus.com
 jerkindex.com
 jerkinfo.com
 jerkinfrog.com
 jerking-it.com
-jerking-off-dicks.tumblr.com
 jerking-off.org
-jerking-shemales.tumblr.com
 jerking-two.tk
 jerking.com
 jerking.us
-jerking4you.tumblr.com
 jerkingacock.com
 jerkingatwork.com
-jerkingauthority.tumblr.com
 jerkingboysoncam.com
 jerkingdwarf.com
 jerkingerkin.com
-jerkingexhibitionist.tumblr.com
-jerkingfetish.tumblr.com
 jerkingherkin.com
 jerkinghim.com
 jerkinghotmovies.com
-jerkingincars.tumblr.com
 jerkinginstruction.com
 jerkingit.com
 jerkingjester.com
-jerkingjournal.tumblr.com
-jerkingloser.tumblr.com
 jerkingmeat.com
 jerkingmonkey.com
 jerkingmovies.com
 jerkingoff.com
 jerkingoff.us
 jerkingoffatwork.com
-jerkingoffon.tumblr.com
-jerkingoffwhileposting.tumblr.com
 jerkingresources.com
 jerkings.com
-jerkingstraightcurious.tumblr.com
 jerkingstuds.com
 jerkingyouoff.com
 jerkinoff.com
-jerkinoffeveryday.tumblr.com
-jerkinofftoblackcock.tumblr.com
-jerkinstructions.tumblr.com
 jerkinsult.com
 jerkinthebox.com
-jerkinwood.tumblr.com
 jerkinzoo.com
 jerkisait.com
 jerkit.net
@@ -59823,9 +58457,7 @@ jerkjelly.com
 jerkjerk.com
 jerkjockey.com
 jerkjunkie.com
-jerkjunkie86.tumblr.com
 jerkkit.info
-jerkler.tumblr.com
 jerkline.com
 jerklinks.com
 jerklist.com
@@ -59836,16 +58468,12 @@ jerkmania.com
 jerkmaster.com
 jerkmasters.com
 jerkmate.com
-jerkme2005.tumblr.com
-jerkmebaby.tumblr.com
 jerkmenow.co.uk
 jerkmenow.com
 jerkmenow3.com
 jerkmeoff.com
-jerkmeoff1414.tumblr.com
 jerkmetube.com
 jerkmirk.com
-jerkmonster.com
 jerkmovs.com
 jerkmusic.com
 jerkmycock.com
@@ -59856,25 +58484,17 @@ jerknut.com
 jerko.googlevideo.com
 jerkoff-joe.com
 jerkoff-movies.com
-jerkoff-twinks.tumblr.com
 jerkoff.com
 jerkoff.net
 jerkoff.to
 jerkoff.ws
-jerkoff2much.tumblr.com
-jerkoff2you.tumblr.com
 jerkoff4free.com
 jerkoff4me.com
-jerkoffaddict.tumblr.com
-jerkoffbigdick.tumblr.com
 jerkoffboys.com
 jerkoffboys.de
-jerkoffbuddiesco.tumblr.com
 jerkoffbuds.com
-jerkoffcaps.tumblr.com
 jerkoffchannel.com
 jerkoffclips.com
-jerkoffclub-blog.tumblr.com
 jerkoffclub.com
 jerkoffclubs.com
 jerkoffcommunity.com
@@ -59895,21 +58515,16 @@ jerkoffice.com
 jerkoffinstructionbabes.com
 jerkoffinstructionfan.com
 jerkoffinstructions.com
-jerkoffinstructions.tumblr.com
 jerkoffinstructors.com
 jerkoffjacks.com
 jerkoffjays.com
 jerkoffjoes.com
 jerkoffjugs.com
 jerkoffjunkies.com
-jerkofflibrary.tumblr.com
 jerkofflist.com
-jerkoffmaterial.tumblr.com
 jerkoffmotel.com
 jerkoffmovies.com
-jerkoffnude.tumblr.com
 jerkoffolders.com
-jerkoffon.tumblr.com
 jerkoffpass.com
 jerkoffpics.com
 jerkoffresponsibly.blogspot.ae
@@ -59981,9 +58596,7 @@ jerkoffresponsibly.blogspot.tw
 jerkoffresponsibly.blogspot.ug
 jerkoffs-teen-pics.com
 jerkoffs.net
-jerkoffsesh.tumblr.com
 jerkoffset.com
-jerkoffslut.tumblr.com
 jerkoffson.com
 jerkoffstation.com
 jerkofftgp.com
@@ -59994,12 +58607,10 @@ jerkoffzone.com
 jerkoffzone.net
 jerkoftheyear.com
 jerkok.net
-jerkoknet.tumblr.com
 jerkolympics.com
 jerkonda.com
 jerkonline.com
 jerkonmygf.com
-jerkonmyphotos.tumblr.com
 jerkonthenet.com
 jerkorama.webspacemania.com
 jerkosity.com
@@ -60019,7 +58630,6 @@ jerkseasonings.com
 jerkshemale.com
 jerkshow.com
 jerksite.com
-jerkslut7.tumblr.com
 jerksmerk.com
 jerksock.com
 jerksocks.com
@@ -60332,7 +58942,6 @@ jerkybars.com
 jerkybible.com
 jerkybits.com
 jerkyboy.com
-jerkyboy2007.tumblr.com
 jerkyboys.com
 jerkyboys.net
 jerkycandybar.com
@@ -60345,7 +58954,6 @@ jerkyemporium.com
 jerkyfix.com.au
 jerkyfries.com
 jerkyfundraisers.com
-jerkygirls.tumblr.com
 jerkygirlsvideo.com
 jerkygonewild.com
 jerkygonewild.net
@@ -60380,7 +58988,6 @@ jerkysupermarket.com
 jerkysupply.com
 jerkytown.com
 jerkyusa.com
-jerkywives.tumblr.com
 jerkyworks.com
 jerkyyesterday.com
 jerkyz.com
@@ -60391,7 +58998,6 @@ jerlbdxf.nl
 jerlcrex.com
 jerlitincho.no-ip.biz
 jerlos.com
-jerloxxx24.tumblr.com
 jerlyn.com
 jerm.inetdirect.net
 jerma.nl
@@ -60432,7 +59038,6 @@ jermk.googlevideo.com
 jermn.googlevideo.com
 jermoluk.com
 jermp.googlevideo.com
-jermporn.tumblr.com
 jermr.com
 jermsoft.net
 jermu.com
@@ -60467,7 +59072,6 @@ jeroboams.co.uk
 jeroc.com
 jeroegle.free.fr
 jeroen-bossenbroek.nl
-jeroen28.tumblr.com
 jeroenbakker.info
 jeroenbeukers.com
 jeroenbex.net
@@ -60497,22 +59101,17 @@ jerolucpk.us
 jeroly.com
 jeroly.org
 jerom-bdsm.atw.hu
-jeroman8.tumblr.com
 jeromax.com
 jeromax.net
 jeromaxholding.com
 jeromaxholding.net
 jeromaxsa.com
 jeromaxsa.net
-jerome-bluja41.tumblr.com
 jerome-escort.com
 jerome-et-pieds-feminins.over-blog.com
 jerome-gaudreau.us
-jerome-happy.tumblr.com
 jerome-knepper.us
 jerome-mallon.us
-jerome-oh.gov
-jerome-sissy-salope-soumise.tumblr.com
 jerome-thomas.com
 jerome-tyer.us.org
 jerome.andre.free.fr
@@ -60546,7 +59145,6 @@ jeromeend.com
 jeromefabre.com
 jeromeforstatehouse.com
 jeromefreewifi.com
-jeromegay.tumblr.com
 jeromegolden.com
 jeromegoy.com
 jeromegrandhotel.net
@@ -60587,7 +59185,6 @@ jeromericks.com
 jeromeriel.com
 jeromeries.com
 jeromerobbins.com
-jeromeroundu2.tumblr.com
 jeromerubin.com
 jeromes.com
 jeromesamuel.com
@@ -60603,7 +59200,6 @@ jeromeweb.com
 jeromewebb.com
 jeromewright.com
 jeromitia.info
-jeromm29.tumblr.com
 jeromot.tk
 jeron.net
 jeronbarnett.com
@@ -60626,7 +59222,6 @@ jerostr.us
 jerot.com
 jerotech.com
 jerotega.blog.com
-jeroth-votal.tumblr.com
 jerotic.blogspot.ae
 jerotic.blogspot.al
 jerotic.blogspot.am
@@ -60694,8 +59289,6 @@ jerotic.blogspot.sk
 jerotic.blogspot.sn
 jerotic.blogspot.tw
 jerotic.blogspot.ug
-jerotic.tumblr.com
-jerotica.tumblr.com
 jerotidv.com
 jerouca.us
 jeroulemalin.be
@@ -60715,7 +59308,6 @@ jerpw.googlevideo.com
 jerpz.googlevideo.com
 jerque.com
 jerr-hagy.com
-jerrai-incestia.tumblr.com
 jerrald.com
 jerramungupchristianfellowship.com
 jerras.com
@@ -60755,7 +59347,6 @@ jerriejacquelyn.ru
 jerrielusk.com
 jerries.stream
 jerriesbirds.com
-jerriesextape.tumblr.com
 jerriggaard.dk
 jerrikakarlae.com
 jerrileekarilynn.ru
@@ -60768,7 +59359,6 @@ jerristroud.com
 jerrit.com
 jerriwohlacafa.us
 jerro.com
-jerrod99.tumblr.com
 jerroddaniel.com
 jerroddowney.com
 jerrodsessler.com
@@ -60818,10 +59408,8 @@ jerrybaugh.com
 jerrybeads.com
 jerrybean.com
 jerrybeans.com
-jerrybearmac.tumblr.com
 jerrybellune.com
 jerrybennett.com
-jerryberlinberlin.tumblr.com
 jerrybernat.com
 jerrybickel.com
 jerryblavat.com
@@ -60849,7 +59437,6 @@ jerrycanband.com
 jerrycarrolljr.com
 jerrycarter.com
 jerrycash.com
-jerrycastello.tumblr.com
 jerrychristian.com
 jerrychristianaircraftsales.com
 jerrychristianinsurance.com
@@ -60865,7 +59452,6 @@ jerrycreamer.com
 jerrycruz.com
 jerrycum.multimania.com
 jerrycurls.com
-jerryd1086.tumblr.com
 jerrydalesafaris.com
 jerrydepetris.com
 jerrydevries.nl
@@ -61005,7 +59591,6 @@ jerryjazzmusician.com
 jerryjeanbaptiste.com
 jerryjerry.com
 jerryjoy.com
-jerryk890.tumblr.com
 jerrykabrit.com
 jerrykaiser.com
 jerrykate.com
@@ -61029,7 +59614,6 @@ jerrylehane.com
 jerryloces.com
 jerrylockhart.com
 jerrylogan.com
-jerrylondon.tumblr.com
 jerrylu.com
 jerrylunge.com
 jerrylynn.8m.com
@@ -61129,7 +59713,6 @@ jerrypage.com
 jerrypapa10.000webhostapp.com
 jerrypeaceactivistrubin.com
 jerryperez.com
-jerryperry939.tumblr.com
 jerryphoto.com
 jerrypierson.com
 jerrypippin.com
@@ -61187,7 +59770,6 @@ jerrysflies.com
 jerrysfordofleesburg.org
 jerrysguitar.com
 jerrysguns.com
-jerrysharding.tumblr.com
 jerrysheliskialaska.com
 jerryshomestore.com
 jerryshow.com
@@ -61247,7 +59829,6 @@ jerryswrecker.com
 jerryswreckerservice.com
 jerrysykes.com
 jerrytate.com
-jerrythompson13.tumblr.com
 jerrythurman.com
 jerrytindell.com
 jerrytodd.com
@@ -61497,7 +60078,6 @@ jerseycitymedjobs.com
 jerseycitymetro.travel
 jerseycitymortgageloans.com
 jerseycitynewjersey.com
-jerseycitynj.gov
 jerseycitynye.com
 jerseycitypad.com
 jerseycitypersonalinjuryattorneys.com
@@ -61527,7 +60107,6 @@ jerseyconsulting.com
 jerseycontrols.com
 jerseycorn.com
 jerseycountyil.com
-jerseycouplehotwife.tumblr.com
 jerseycoupleselfshots.blogspot.ae
 jerseycoupleselfshots.blogspot.al
 jerseycoupleselfshots.blogspot.am
@@ -61602,7 +60181,6 @@ jerseycupcakes.com
 jerseycurls.com
 jerseycustom.com
 jerseycycle.com
-jerseydaddy-littleprincess-deac.tumblr.com
 jerseydeal.com
 jerseydebt.com
 jerseydecoration.com
@@ -61677,7 +60255,6 @@ jerseydevil200161.blogspot.sk
 jerseydevil200161.blogspot.sn
 jerseydevil200161.blogspot.tw
 jerseydevil200161.blogspot.ug
-jerseydevildom77.tumblr.com
 jerseydevilgrill.com
 jerseydevilhayride.com
 jerseydevilhotsauce.com
@@ -61686,7 +60263,6 @@ jerseydevilwings.com
 jerseydiablo.com
 jerseydiamond.com
 jerseydiamonds.com
-jerseydick7in.tumblr.com
 jerseydiners.com
 jerseydining.com
 jerseydiscountboats.com
@@ -61722,7 +60298,6 @@ jerseyforeclosures.com
 jerseyforshore.com
 jerseyframers.com
 jerseyfreak.com
-jerseyfreak4u.tumblr.com
 jerseyfun.com
 jerseyfurnishedrentals.com
 jerseyfurniture.com
@@ -61733,7 +60308,6 @@ jerseygames.com
 jerseygems.com
 jerseyget.com
 jerseygirl-movie.com
-jerseygirl7171.tumblr.com
 jerseygirlfoodtours.com
 jerseygirlgems.com
 jerseygirlpublishing.com
@@ -61748,9 +60322,7 @@ jerseygreatdeal.com
 jerseygreens.com
 jerseygrills.com
 jerseygurl.com
-jerseygurlz.tumblr.com
 jerseyguru.com
-jerseyguyz6.tumblr.com
 jerseygypsytrash.com
 jerseyhammers.tripod.com
 jerseyhd.com
@@ -61781,7 +60353,6 @@ jerseyislandfinance.com
 jerseyite.com
 jerseyjackets.com
 jerseyjams.com
-jerseyjay1984.tumblr.com
 jerseyjeff.com
 jerseyjems.com
 jerseyjewel.com
@@ -61868,7 +60439,6 @@ jerseyparent.com
 jerseypartyguide.com
 jerseypatch.com
 jerseypavers.net
-jerseypeggin.tumblr.com
 jerseyperformance.com
 jerseypest.com
 jerseypete.com
@@ -62078,7 +60648,6 @@ jerseyssaletoday.com
 jerseysscottsolomon.top
 jerseysshirts.com
 jerseysshop.site
-jerseysshopgoogle.com
 jerseysshopgoogle.net
 jerseysshopping.com
 jerseysshopps.com
@@ -62177,7 +60746,6 @@ jerseywholesaleelitestore.com
 jerseywholesaler.com
 jerseywholesales.com
 jerseywiseguys.com
-jerseyxxx.tumblr.com
 jerseyz.com
 jerseyzone.com
 jerseyzone4u.com
@@ -62209,7 +60777,6 @@ jerter-lint-hr.com
 jerteweb.com
 jertgafdsew.tk
 jerthumbs.com
-jertox.tumblr.com
 jertu.pumbec.ru
 jertuipo.ml
 jertwakjcaym.com
@@ -62400,14 +60967,12 @@ jerywood.in
 jeryy.streamclassy.pw
 jerz.com
 jerz.copotu.ru
-jerzb0i.tumblr.com
 jerzeemedia.com
 jerzeesorganic.com
 jerzeessportsbar.com
 jerzeetoematoes.com
 jerzeez.com
 jerzemommy.com
-jerzgi.tumblr.com
 jerzybonczak.pl
 jerzyjanowicz.com
 jerzyklucznik.com
@@ -62429,7 +60994,6 @@ jes.or.at
 jesaa.com
 jesada.com
 jesadijygherfdsa.tk
-jesadler.tumblr.com
 jesais.fr
 jesaisplus.com
 jesaispokoi.org
@@ -62487,7 +61051,6 @@ jeserora.000webhostapp.com
 jesertadalan.com
 jesertemanserviuceman.it
 jeses.com
-jesesmm.tumblr.com
 jesesmobileac.com
 jeset.googlevideo.com
 jesew.googlevideo.com
@@ -62518,7 +61081,6 @@ jesextenderwebs.com
 jeseye.com
 jesez.googlevideo.com
 jesf.net
-jesfacials.tumblr.com
 jesfc.googlevideo.com
 jesfn.googlevideo.com
 jesfq.googlevideo.com
@@ -62598,7 +61160,6 @@ jesign.com
 jesigolf.com
 jesiica.com
 jesika-manchester.co.uk
-jesikah30.tumblr.com
 jesina.com
 jesionline.com
 jesionowa-dental.pl
@@ -62667,7 +61228,6 @@ jesoutigu.azxmid.getbigg.ru
 jespa.com
 jespadero.com
 jesper.nu
-jesperbizarre.tumblr.com
 jesperchristiansen.com
 jesperchristiansenphoto.com
 jesperdahl.com
@@ -62698,9 +61258,7 @@ jesqo.googlevideo.com
 jesqr.googlevideo.com
 jesro.com
 jesron.com
-jess-curious.tumblr.com
 jess-davies.com
-jess-ellington.tumblr.com
 jess-erickson.info
 jess-franco.com
 jess-hale.info
@@ -62711,18 +61269,14 @@ jess-motlow.su
 jess-secrets.co.za
 jess.h15.ru
 jess.vinnicrystal.com
-jess1791.tumblr.com
-jess2262.tumblr.com
 jess4success.com
 jessa-rhodes.com
 jessa.canalblog.com
 jessa.net
-jessa72.tumblr.com
 jessaang.com
 jessabelle.com
 jessabrams.com
 jessaca.com
-jessacarrera.tumblr.com
 jessadams.com
 jessahlee.com
 jessai.com
@@ -62763,18 +61317,15 @@ jessandnick.com
 jessandpaul.com
 jessandtom.com
 jessandwill.com
-jessangel24.tumblr.com
 jessanissa.com
 jessarnold.com
 jessaroads.com
 jessart.com
 jessassistance.com
 jessat.com
-jessawarriorprincess.tumblr.com
 jessb.googlevideo.com
 jessbaker.com
 jessbalaschak.com
-jessbangz.tumblr.com
 jessbbg.com
 jessbeamish.com
 jessbell.com
@@ -62784,7 +61335,6 @@ jessblake.com
 jessblog.com
 jessboos.com
 jessbowers.com
-jessbrown23.tumblr.com
 jessburke.com
 jessbush.com
 jesscake.com
@@ -62810,7 +61360,6 @@ jessdanielle.com
 jessdavies.com
 jessdavila.com
 jessdesigns.com
-jessdidit.tumblr.com
 jessdoesthings.com
 jessdunn.com
 jesse-bauer.us.org
@@ -62923,7 +61472,6 @@ jesse.9hz.com
 jesse.blogs-china.com
 jesse.googlevideo.com
 jesse2018.com
-jesse97leeee.tumblr.com
 jesseadelman.com
 jesseadelman.net
 jesseadelman.org
@@ -63045,15 +61593,12 @@ jessedane.blogspot.ug
 jessediazfordallas.com
 jessedixon.com
 jessedouglas.com
-jessedouglas89.tumblr.com
 jessedouglascollins.com
 jesseduke.com
 jessedylanpictures.com
 jesseerefill.ru
-jesseeric2002.tumblr.com
 jessefarrell.com
 jessefenwick.com
-jesseflanagan.tumblr.com
 jessegambini.com
 jessegardner.com
 jessegarrett.com
@@ -63082,7 +61627,6 @@ jessejameshall.com
 jessejamesness.com
 jessejane.biz
 jessejane.com
-jessejane2015.tumblr.com
 jessejanevideo.com
 jessejanevip.com
 jessejardine.com
@@ -63095,7 +61639,6 @@ jessejeff.com
 jessejenny.com
 jessejhart.com
 jessejoeboy.myradiotoolbar.com
-jessejonescockworship.tumblr.com
 jessejordanthomas.com
 jessejproductions.com
 jessejscott.com
@@ -63175,8 +61718,6 @@ jessesaska.com
 jessesbistro.com
 jessesblog.com
 jesseschram.com
-jessesgaylife.tumblr.com
-jessesgirl1229.tumblr.com
 jesseshepard.com
 jesseshrug.in
 jessesilva.000webhostapp.com
@@ -63189,9 +61730,7 @@ jesseslade.net
 jesseslandscaping.com
 jessesmail.com
 jessespage.com
-jessestheman.tumblr.com
 jessestoff.com
-jessesub.tumblr.com
 jessesylvia.com
 jessetappleproject.org
 jessethejack.com
@@ -63199,7 +61738,6 @@ jessetime07.com
 jessetrent.com
 jessetyler.com
 jesseum.com
-jessevande.tumblr.com
 jessevanruller.com
 jesseventura2018.com
 jessewalker.blogspot.com
@@ -63212,7 +61750,6 @@ jessewulf.com
 jessexxx.com
 jesseylever.com
 jessezane.com
-jessfan681.tumblr.com
 jessfink.com
 jessforkicks.com
 jessforman.com
@@ -63223,7 +61760,6 @@ jessgardenpark.com
 jessgarrett.net
 jessgeorge.com
 jessglynne.net
-jessgoesnuclear.tumblr.com
 jessgomez.com
 jessgonzales.com
 jessgonzalez.com
@@ -63232,15 +61768,12 @@ jessgorjess.com
 jessgray.com
 jessgriffin.com
 jessguan.com
-jessgue.tumblr.com
-jessguypoz.tumblr.com
 jessh.googlevideo.com
 jesshall.com
 jessheritage.com
 jesshome.com
 jesshop.com
 jesshudson.com
-jessi-absolut.tumblr.com
 jessi-adler.us
 jessi-auclair.us
 jessi-barefield.us
@@ -63278,15 +61811,12 @@ jessi-wild.in
 jessi.com
 jessi.net
 jessi.nl
-jessiabsolut.tumblr.com
 jessiandjames.com
 jessianne.com
 jessibell.com
-jessiblushes.tumblr.com
 jessic.com
 jessic4.info
 jessica-aitken.in
-jessica-alba-breast-zyf.tumblr.com
 jessica-alba-breast.com
 jessica-alba-fansite.cjb.net
 jessica-alba-free-nude-pics.com
@@ -63548,7 +62078,6 @@ jessica-jaymes-pictures.com
 jessica-jaymes.com
 jessica-jaymes.net
 jessica-jaymes.org
-jessica-jaymes461.tumblr.com
 jessica-john.us
 jessica-katona.info
 jessica-kring.us
@@ -63559,7 +62088,6 @@ jessica-loucks.us
 jessica-love.com
 jessica-love.de
 jessica-love.net
-jessica-lund.tumblr.com
 jessica-lynch-nude.com
 jessica-manwaring.us
 jessica-marries-christian.com
@@ -63567,7 +62095,6 @@ jessica-michaud.us.org
 jessica-michibata.com
 jessica-monaco.com
 jessica-monteith.us
-jessica-moore-hdvideos.tumblr.com
 jessica-mui.us
 jessica-nackt.de
 jessica-nava.us
@@ -63799,10 +62326,8 @@ jessica-sleeper.us
 jessica-sobers.us
 jessica-star.de
 jessica-steptoe.us
-jessica-sweet-sdx.tumblr.com
 jessica-talkington.us
 jessica-teegarden.us
-jessica-the-pterodactyl.tumblr.com
 jessica-thedford.us
 jessica-tollett.us
 jessica-veranda.com
@@ -63815,7 +62340,6 @@ jessica-x.be
 jessica-x.qc-x.com
 jessica-xxx.com
 jessica-you.piczo.com
-jessica-yulianna.tumblr.com
 jessica.a1webserver.com
 jessica.alba.nue.online.fr
 jessica.allowednet.com
@@ -63869,13 +62393,11 @@ jessicaarcarophotography.com
 jessicaasylum.com
 jessicaathome.com
 jessicaavery.com
-jessicaba.tumblr.com
 jessicaback.com
 jessicabags.com
 jessicabaker.net
 jessicabakes.com
 jessicaball.net
-jessicabangkokhdvideos.tumblr.com
 jessicabarbosa.com
 jessicabarfield.com
 jessicabarfieldmccarren.com
@@ -63887,7 +62409,6 @@ jessicabeattie.com
 jessicabeech.com
 jessicaben.com
 jessicabenitez.com
-jessicabentleycd.tumblr.com
 jessicabetonte.com
 jessicabhatnagar.com
 jessicabiel.sexybabesx.com
@@ -63931,7 +62452,6 @@ jessicacare.com
 jessicacastro.com
 jessicacathcart.com
 jessicacatherine.com
-jessicacdtvsissyslut-fan.tumblr.com
 jessicachambers.com
 jessicachan.com
 jessicacharline.ru
@@ -64032,7 +62552,6 @@ jessicadarlinxxx.com
 jessicadavidson.com
 jessicadavies.com
 jessicadecker.com
-jessicadee25.tumblr.com
 jessicadeexxx.com
 jessicadegarmo.com
 jessicaden.com
@@ -64051,7 +62570,6 @@ jessicadrake.com
 jessicadrakemodel.com
 jessicaduke.com
 jessicadunnavant.com
-jessicaebony67.tumblr.com
 jessicaechristiano.com
 jessicaedaniel.com
 jessicaelainephotography.com
@@ -64065,14 +62583,11 @@ jessicaescort.com
 jessicaescort.ifrance.com
 jessicaeve.com
 jessicaeye.com
-jessicafads.tumblr.com
 jessicafans.org
-jessicafappit.tumblr.com
 jessicafarnsworth.com
 jessicafayecarter.com
 jessicafee.com
 jessicafeet.com
-jessicafellatrixlovespenis10.tumblr.com
 jessicaferreyro.com
 jessicafinch.com
 jessicaflowers.com
@@ -64080,9 +62595,6 @@ jessicafoleylaw.com
 jessicaforman.com
 jessicaforsythe.com
 jessicafrench.com
-jessicafuckinglange.tumblr.com
-jessicafuckinglynn.tumblr.com
-jessicafurrylesbian.tumblr.com
 jessicag.co.uk
 jessicagavin.com
 jessicagayle.com
@@ -64161,14 +62673,12 @@ jessicajaymesklub.blogspot.mx
 jessicajaymesklub.blogspot.no
 jessicajaymesklub.blogspot.pt
 jessicajaymesklub.blogspot.sk
-jessicajaymespics.tumblr.com
 jessicajaymesvip.com
 jessicajaymesxxx.com
 jessicajeanbaptiste.com
 jessicajewel.com
 jessicajewelry.com
 jessicajewels.com
-jessicajohnson242.tumblr.com
 jessicajordanshow.com
 jessicajordon.com
 jessicajustice.com
@@ -64176,7 +62686,6 @@ jessicakagancushman.com
 jessicakeller.com
 jessicakessler.com
 jessicakey.com
-jessicakeys1x.tumblr.com
 jessicakierson.com
 jessicakilpatrick.com
 jessicakitchin.com
@@ -64196,13 +62705,11 @@ jessicalawless.com
 jessicalea.com
 jessicalee.org
 jessicaleehughes.com
-jessicaleeloo.tumblr.com
 jessicaleeplank.com
 jessicaleexxx.com
 jessicaleigh.com
 jessicaleigharts.com
 jessicaleon.com
-jessicalexxxi.tumblr.com
 jessicalieu.com
 jessicalindellvikarby.com
 jessicalinden.net
@@ -64214,8 +62721,6 @@ jessicalouie.com
 jessicalouisa.com
 jessicalouv.canalblog.com
 jessicalove.de
-jessicalovecock.tumblr.com
-jessicalovefun.tumblr.com
 jessicaloveit.com
 jessicalovesfeet.blogspot.ae
 jessicalovesfeet.blogspot.al
@@ -64339,7 +62844,6 @@ jessicamorgenstern.net
 jessicamorris.com
 jessicamsantini.com
 jessicamulroney.com
-jessicamyers123.tumblr.com
 jessican.com
 jessican.icu
 jessicanailpolishes.com
@@ -64354,7 +62858,6 @@ jessicanwood.com
 jessicanyx.com
 jessicao.com
 jessicaobert.com
-jessicaobeys.tumblr.com
 jessicaoettinger.com
 jessicaofficial.com
 jessicaofkensington.com
@@ -64373,7 +62876,6 @@ jessicaparrish.com
 jessicapassion.com
 jessicapaterson.com
 jessicapatricia.com
-jessicapava.tumblr.com
 jessicapenfold.com
 jessicapenn.com
 jessicaperkins.com
@@ -64388,7 +62890,6 @@ jessicapoe.com
 jessicaprecious.com
 jessicaprieto.com
 jessicapussy.fileave.com
-jessicarabbit9309.tumblr.com
 jessicarabbitphonesex.co.uk
 jessicarabbits.com
 jessicarae.com
@@ -64396,7 +62897,6 @@ jessicaransom.com
 jessicaraven.com
 jessicaredfield.com
 jessicaredwood.com
-jessicaricky-uk.tumblr.com
 jessicariffle.com
 jessicariggle.com
 jessicariggs.com
@@ -64415,7 +62915,6 @@ jessicaroy.com
 jessicarroberts.com
 jessicaruiz.com
 jessicaruth.com
-jessicaryanhdvideos.tumblr.com
 jessicas-amateure.blogspot.ae
 jessicas-amateure.blogspot.al
 jessicas-amateure.blogspot.am
@@ -64642,7 +63141,6 @@ jessicasena.com
 jessicaseron.com
 jessicaserrano.com
 jessicasex.com
-jessicasex1.tumblr.com
 jessicasexinporn.info
 jessicasexy.bookspace.fr
 jessicasexy.com
@@ -64670,12 +63168,10 @@ jessicasimpsonnude.jeun.fr
 jessicasimpsonnude.net
 jessicasimpsonphotos.org
 jessicasinclair.com
-jessicasissyslutgb.tumblr.com
 jessicaslaughter.com
 jessicaslaw.com
 jessicasmail.com
 jessicasmiles.com
-jessicasmithsex.tumblr.com
 jessicasolis.com
 jessicasorganicfarm.com
 jessicasoriginal.biz
@@ -64683,15 +63179,11 @@ jessicasoto.com
 jessicasoto.malinderheta.com
 jessicaspace.atspace.com
 jessicaspanties.com
-jessicaspanties.tumblr.com
-jessicaspantybulge.tumblr.com
 jessicaspinelli.com
 jessicaspinups.com
 jessicasport.cz
 jessicasprague.com
 jessicassecret.com
-jessicassexyselfpics.tumblr.com
-jessicassexystuff.tumblr.com
 jessicastanz.de
 jessicasteve.com
 jessicastevenson.com
@@ -64716,7 +63208,6 @@ jessicathaimarried.com
 jessicathedivine.com
 jessicathefox.com
 jessicathefurrybaroo.com
-jessicathequeen.tumblr.com
 jessicathorp.com
 jessicathumbs.com
 jessicatigheroc.blog.com
@@ -64757,17 +63248,13 @@ jessicawood.co.uk
 jessicawoods.com
 jessicaworks.com
 jessicaworld.com
-jessicawouldxxx.tumblr.com
 jessicax.startspot.nl
-jessicaxxxbeat.tumblr.com
 jessicayaffa.com
 jessicayan.com
 jessicazelinske.com
 jessiccaalba.com
-jessicdream.tumblr.com
 jessichristiana.com
 jessickaviolet.com
-jessicunttt.tumblr.com
 jessie-arp.us
 jessie-avilla.us
 jessie-benedetto.me
@@ -64777,7 +63264,6 @@ jessie-boyle.in
 jessie-bullion.biz
 jessie-canizales.us
 jessie-capelli.com
-jessie-coxxx-pornstar.tumblr.com
 jessie-cruse.us
 jessie-embree.in
 jessie-ensley.us
@@ -64788,12 +63274,10 @@ jessie-j.co.uk
 jessie-juan.us
 jessie-kilby.in
 jessie-koval.us
-jessie-lynne.tumblr.com
 jessie-matheson.us
 jessie-meyer.us
 jessie-montelongo.biz
 jessie-odriscoll.us
-jessie-plays.tumblr.com
 jessie-slater.me
 jessie-suarez.us
 jessie-trainor.us
@@ -64801,12 +63285,9 @@ jessie-tylor.us
 jessie-west.com
 jessie-wooldridge.me
 jessie.be
-jessie196969.tumblr.com
 jessie61520.tripod.com
 jessieabbate.com
-jessiealba.tumblr.com
 jessiealexander.com
-jessieallan.tumblr.com
 jessieanne.com
 jessieart.com
 jessieathome.com
@@ -64833,7 +63314,6 @@ jessiecoxxx.com
 jessieelonore.ru
 jessiefisher.com
 jessiefremont.com
-jessiefuckingjm8.tumblr.com
 jessiegallagher.com
 jessiegirl.com
 jessiegovan.com
@@ -64842,14 +63322,10 @@ jessieharrison.com
 jessiehua.com
 jessiehughes.com
 jessieinsurance.com
-jessiejacksondelrey.tumblr.com
 jessiejames.biz
 jessiejames.com
-jessiejames1989.tumblr.com
 jessiejess.com
-jessiejesslikesgirls.tumblr.com
 jessiejewels.com
-jessiejo247.tumblr.com
 jessiejorda1.bravehost.com
 jessiekamm.com
 jessiekay.com
@@ -64926,13 +63402,9 @@ jessielake.com
 jessielauren.com
 jessieleejewelry.com
 jessielove.com
-jessielowe87.tumblr.com
 jessiemack.com
 jessiemail.com
-jessiemayi652.tumblr.com
 jessiemcmillan.com
-jessiemic.tumblr.com
-jessieminx.tumblr.com
 jessieminxxx.com
 jessiemodel.co.uk
 jessienails.com
@@ -64951,7 +63423,6 @@ jessiereyez.net
 jessiericha.in
 jessierobinson.com
 jessierogers.co
-jessierogerssuperstarteen.tumblr.com
 jessierose.com
 jessierosetrip.com
 jessieroth.com
@@ -65042,7 +63513,6 @@ jessimccarty.com
 jessimen.com
 jessimodel.net
 jessimusprime.com
-jessipalmerhdvideos.tumblr.com
 jessipies.com
 jessiporno.net
 jessirosephotos.com
@@ -65057,7 +63527,6 @@ jessivolunteers.com
 jessiwinchester.com
 jessjames.com
 jessjazi.com
-jessjonessissy.tumblr.com
 jessjordan.com
 jessjoy.com
 jessk.googlevideo.com
@@ -65067,7 +63536,6 @@ jesskaufman.com
 jesskelly.com
 jesski.com
 jesskitchen.com
-jessknapp1985.tumblr.com
 jesskrieger.com
 jesslacochonne.free.fr
 jessland.com
@@ -65076,11 +63544,8 @@ jesslangston.com
 jessleigh.com
 jessliving.com
 jesslondon.com
-jesslovescock.tumblr.com
 jesslovesfashion.com
-jessloveslily.tumblr.com
 jesslowndes.com
-jessluvzsex.tumblr.com
 jesslyn.net
 jesslynnabel.com
 jesslynne.com
@@ -65096,17 +63561,13 @@ jessmeatken.com
 jessmedinafoto.com
 jessmeeken.com
 jessmeeken.net
-jessmisbehavinbbw.tumblr.com
-jessmontgmryxxx.tumblr.com
 jessmorrow.com
 jessmotorsports.com
 jessn.googlevideo.com
 jessneil.com
 jessnerspeel.com
 jessnguyen.com
-jessnico.tumblr.com
 jessnicol.com
-jessnjon.tumblr.com
 jesso.com
 jesson.craigtma.marlonfelipeds.buddzz.janetaursuli
 jesson.craigtma.marlonfelipeds.buddzz.janetaursuline.com
@@ -65145,7 +63606,6 @@ jesssantamaria.net
 jessscull.com
 jesssd.online
 jessse.com
-jesssicalindsey449.tumblr.com
 jesssquared.com
 jessstgcaps.blogspot.ae
 jessstgcaps.blogspot.al
@@ -65221,8 +63681,6 @@ jesstellusalls.com
 jesster.com
 jessterry.com
 jessthefacts.com
-jessthemonkey.tumblr.com
-jessthemp31b.tumblr.com
 jessthomas.ca
 jessthompson.com
 jessthreadingbeautysalon.com
@@ -65236,7 +63694,6 @@ jesstyle.com
 jessu.us
 jessuk.co.uk
 jessuli.com
-jessup.edu
 jessupbaptistchurch.com
 jessupbeautythailand.com
 jessupbrothers.com
@@ -65258,7 +63715,6 @@ jessy-body.us
 jessy-cat-fight-video.info
 jessy-clayborn.in
 jessy-coomes.in
-jessy-dev.tumblr.com
 jessy-devaughn.us
 jessy-ferrier.us
 jessy-frase.us
@@ -65290,7 +63746,6 @@ jessy-voss.us
 jessy-wightman.us
 jessy.book.fr
 jessy.cc
-jessy14nottz.tumblr.com
 jessy19kik.blogspot.ae
 jessy19kik.blogspot.al
 jessy19kik.blogspot.am
@@ -65425,13 +63880,11 @@ jessy19y.blogspot.sk
 jessy19y.blogspot.sn
 jessy19y.blogspot.tw
 jessy19y.blogspot.ug
-jessy2145.tumblr.com
 jessyb.com
 jessybeauty.8k.com
 jessyblueeyes.com
 jessyca.morgane.free.fr
 jessyca.nue.online.fr
-jessycajamesworld.tumblr.com
 jessycam.com
 jessycruz.com
 jessydeluxe.com
@@ -65441,10 +63894,8 @@ jessydubai.com
 jessye.net
 jessygaming.com
 jessygirl.de
-jessygirlxx.tumblr.com
 jessygunnarsseon.gq
 jessyjackson147.000webhostapp.com
-jessyjames85.tumblr.com
 jessyjess.com
 jessyjewelsprm.ru
 jessyjudaica.com
@@ -65458,7 +63909,6 @@ jessys-bar.de
 jessys.com
 jessyscatshack.com
 jessysdolls.com
-jessyskellington.tumblr.com
 jessystudio.com
 jessysunshine.com
 jessythumbnails.com
@@ -65500,7 +63950,6 @@ jester.lusty4u.com
 jester.net
 jester313.spywarerem.hop.clickbank.net
 jesterbar.loyaltytoolbar.com
-jesterbears-gay-cartoons.tumblr.com
 jesterboots.com
 jesterclothing.com
 jesterday.com
@@ -65527,7 +63976,6 @@ jesters.de
 jesters.stream
 jesterscap.com
 jesterscomedy.com
-jesterscrib.tumblr.com
 jestersgame.com
 jesterslinks.com
 jesterssorts.com
@@ -65586,7 +64034,6 @@ jesttwear.com
 jestuab.cn
 jesty.com
 jesty.googlevideo.com
-jesu7599.tumblr.com
 jesuagocomunicacion.com
 jesuanchurch.com
 jesuce.com
@@ -65606,12 +64053,10 @@ jesuewalker.com
 jesuis.nu
 jesuisacroquer.com
 jesuisaprendre.com
-jesuisatoiettuesamoi.tumblr.com
 jesuiscultive.com
 jesuisdespyrenees.com
 jesuisdisponible.com
 jesuisenligne.com
-jesuisenterminale.tumblr.com
 jesuisfan.com
 jesuisfantastique.com
 jesuisfidele.com
@@ -65622,9 +64067,7 @@ jesuisgeek.com
 jesuishi.com
 jesuishigh.com
 jesuisindestructible.com
-jesuisindestructible.tumblr.com
 jesuisjihad.com
-jesuislesbiennedetoi.tumblr.com
 jesuisliberty.net
 jesuislibre.ch
 jesuislibre.com
@@ -65635,11 +64078,9 @@ jesuismort.com
 jesuisnu.multimania.com
 jesuisopen.com
 jesuisparti.com
-jesuispornophile.tumblr.com
 jesuissuisse.com
 jesuisuneblondecanon.mabulle.com
 jesuisunecochonne.centerblog.net
-jesuisunemauvaisefille.tumblr.com
 jesuisunenana.canalblog.com
 jesuisunenympho.com
 jesuisunesalope.com
@@ -65668,7 +64109,6 @@ jesung.com
 jesunt.com
 jesupchristians.com
 jesupcitizenherald.com
-jesupga.gov
 jesurdlo.blog.com
 jesurun.com
 jesurunchurch.com
@@ -65748,7 +64188,6 @@ jesusagenda.com
 jesusalberto.com
 jesusalive.net
 jesusall.com
-jesusallahbrucejennergayorgy.tumblr.com
 jesusalmighty.com
 jesusalovelikenoother.com
 jesusalphaomega.com
@@ -65859,7 +64298,6 @@ jesuschatbot.com
 jesuscheeses.com
 jesuschic.com
 jesuschicks.com
-jesuschrist--deactivated2014072.tumblr.com
 jesuschrist-1.com
 jesuschrist-africa.com
 jesuschrist-biblestudy.com
@@ -66498,7 +64936,6 @@ jesuschristtherighteous.com
 jesuschristtherock.com
 jesuschristthesavior.com
 jesuschristthesaviorupciheritagechurch.com
-jesuschristtheseboysarehot.tumblr.com
 jesuschristthesewallsarethin.com
 jesuschristtheson.com
 jesuschristthesonofgod.com
@@ -66619,7 +65056,6 @@ jesuscrossedmypath.com
 jesuscrosstattoo.com
 jesuscrusaders.com
 jesuscrusades.org
-jesuscruzxxx.tumblr.com
 jesuscuba.com
 jesusculturechurch.com
 jesuscura.com
@@ -66902,10 +65338,8 @@ jesushabit.com
 jesushabits.com
 jesushack.com
 jesusharvest.net
-jesushasabigdick.tumblr.com
 jesushasalawyer.com
 jesushasleftthebuilding.com
-jesushatesapussy.tumblr.com
 jesushchristridingdinosaurs.com
 jesusheal.com
 jesushealingchurch.com
@@ -66932,7 +65366,6 @@ jesushugs.com
 jesushunts.com
 jesushypothesis.com
 jesusianchurch.com
-jesusid.tumblr.com
 jesusimages.net
 jesusinabottle.com
 jesusinamerica.com
@@ -66958,7 +65391,6 @@ jesusischristian.com
 jesusisenough.com
 jesusisforlosers.com
 jesusisgodbiblestudy.com
-jesusisgodsunicorn.tumblr.com
 jesusisisis.com
 jesusiskingchurch.com
 jesusiskingministry.com
@@ -67006,7 +65438,6 @@ jesusismyowner.com
 jesusismyowner.net
 jesusismyplumber.com
 jesusismysuperstar.com
-jesusisnaked-deactivated2012111.tumblr.com
 jesusisnumber1.com
 jesusisnumber1.net
 jesusissweet.com
@@ -67088,7 +65519,6 @@ jesuslivesministry.com
 jesuslivesrevivalchurch.com
 jesuslivingagchurch.com
 jesuslivingwaterchurch.com
-jesusllama.tumblr.com
 jesusllastwords.com
 jesuslogo.com
 jesuslordoflords.com
@@ -67146,7 +65576,6 @@ jesusmixtape.com
 jesusmodel.com
 jesusmom.com
 jesusmomentbible.com
-jesusmonster.com
 jesusmontoya.net
 jesusmoralesjr.com
 jesusmorethanaprophet.com
@@ -67164,7 +65593,6 @@ jesusmppainting.com
 jesusmurillo.com
 jesusmusicfest.com
 jesusmusicfest.net
-jesusmuthafuckinchrist.tumblr.com
 jesusmylordandsaviorchurch.com
 jesusn.com
 jesusnameapostolicchurch.com
@@ -67290,7 +65718,6 @@ jesussacrifice.com
 jesussaidfollowme.org
 jesussaidto.com
 jesussanta.com
-jesussasshole.tumblr.com
 jesussat.com
 jesussavedmylife.com
 jesussaves.net
@@ -67300,7 +65727,6 @@ jesussavesbiblesite.com
 jesussavesinternationalchurch.com
 jesussavestv.com
 jesussavesus.com
-jesussbabymomma.tumblr.com
 jesusscript.com
 jesusscroll.com
 jesusselfie.com
@@ -67378,7 +65804,6 @@ jesuswarriorschurch.com
 jesuswasacommunist.com
 jesuswasamason.com
 jesuswasanigger.com
-jesuswasgayasagoose.tumblr.com
 jesuswashington.com
 jesuswasisis.com
 jesuswaswrong.com
@@ -67409,8 +65834,6 @@ jesuswouldntlikechristians.com
 jesusxo.com
 jesusyear.com
 jesuszentrum.de
-jesuxxx.tumblr.com
-jesuzayn.tumblr.com
 jesuzly.com
 jesuzly.net
 jesv.com
@@ -67889,7 +66312,6 @@ jetenique.com
 jetenjob.nl
 jetenterprisesllc.com
 jeteplais.com
-jetepousse.tumblr.com
 jeteprend.free.fr
 jeteprends.homo.free.fr
 jeter2020.com
@@ -67990,7 +66412,6 @@ jetgenerators.com
 jetgiller.com
 jetgillies.com
 jetgips.com
-jetgirl78.tumblr.com
 jetglam.com
 jetglue.com
 jetgolf.com
@@ -68117,7 +66538,6 @@ jetkn.googlevideo.com
 jetkredi.com
 jetkredi.net
 jetkuuu4.emltrk.com
-jetlagbaby.tumblr.com
 jetlagdesign.com
 jetlagg.com
 jetlaggedclub.com
@@ -68185,7 +66605,6 @@ jetmagazine.be
 jetmakdesigns.com
 jetman.info
 jetmann.com
-jetmanscuckblog.tumblr.com
 jetmarina.com
 jetmartin.com
 jetmasterfires.com
@@ -68303,7 +66722,6 @@ jetpackmiami.com
 jetpackorlando.com
 jetpackpig.com
 jetpackrental.com
-jetpacks-are-fucking-awesome.tumblr.com
 jetpacksforsale.com
 jetpacksouthbeach.com
 jetpackthailand.com
@@ -68340,7 +66758,6 @@ jetpills.ru.com
 jetpilot.com
 jetpk.com
 jetplacement.com
-jetplane117.tumblr.com
 jetplanecp.com
 jetplanes.net
 jetplanet.net
@@ -68572,7 +66989,6 @@ jetsettersinc.com
 jetsettersmagazine.com
 jetsetting.net
 jetsettle.com
-jetsettrade.tumblr.com
 jetsetvacations.com
 jetsetventures.com
 jetsetweb.com
@@ -68971,7 +67387,6 @@ jettsmilkandcookies.com
 jettsokolowski.com
 jettsokolowski.net
 jettsstore.com
-jettster22.tumblr.com
 jettt.googlevideo.com
 jettune.com
 jettuning.com
@@ -69169,7 +67584,6 @@ jetzt7klicken13.de
 jetzt7klicken51.de
 jetzt7klicken53.de
 jetzt95anschauen.de
-jetztaber87.tumblr.com
 jetztabnehmen.com
 jetztaktualisieren.com
 jetztbewerten.com
@@ -70318,7 +68732,6 @@ jeunejean.com
 jeunejeunejeune2.site.voila.fr
 jeunejeunejeunejeune.site.voila.fr
 jeunejolie.com
-jeunejolie.tumblr.com
 jeunejulie.com
 jeunekeum.free.fr
 jeunekiffmatures.blogspot.ae
@@ -70791,7 +69204,6 @@ jeunesnymphos.edu.ms
 jeunesnymphos.online.fr
 jeunesonline.com
 jeunesoumise.com
-jeunesoumise.tumblr.com
 jeunesperverses.com
 jeunespopulaires92.hautetfort.com
 jeunesporno.com
@@ -71129,7 +69541,6 @@ jeux-de-voiture.fr
 jeux-de-voitures.fr
 jeux-de-vol.com
 jeux-deluxe.com
-jeux-des-dames-cruelles.tumblr.com
 jeux-descartes.fr
 jeux-droles.com
 jeux-du-jour.com
@@ -71607,7 +70018,6 @@ jeuxdepirate.com
 jeuxdepistes.com
 jeuxdepistolet.com
 jeuxdepolice.fr
-jeuxdepouvoir.tumblr.com
 jeuxdereflexion.fr
 jeuxderestaurant.net
 jeuxdeseduction.com
@@ -71973,7 +70383,6 @@ jevandavillas.com
 jevansaathi.com
 jevansnead.com
 jevap.com
-jevasymasjevas.tumblr.com
 jevc.com
 jevcg.googlevideo.com
 jevchm.tokyo
@@ -72008,7 +70417,6 @@ jeverlive.com
 jevers.com
 jevesexe.com
 jeveuxbaiser.com
-jeveuxbaiser.tumblr.com
 jeveuxbaiseruneblack.com
 jeveuxchanger.com
 jeveuxdesvideos.com
@@ -72027,7 +70435,6 @@ jeveuxjouer.net
 jeveuxjouir.com
 jeveuxrire.com
 jeveuxsucer.i-gloo.net
-jeveuxsucer.tumblr.com
 jeveuxtefairelamour.com
 jeveuxtonsexe.com
 jeveuxunebaise.com
@@ -72408,7 +70815,6 @@ jewelerytimes.com
 jewelestate.com
 jewelet.com
 jeweletc.com
-jewelevans.tumblr.com
 jewelevents.com
 jewelex.com
 jeweleye.com
@@ -72461,7 +70867,6 @@ jeweljunky.com
 jewelkeeper.com
 jewelkryptonite.com
 jewell-marquis-nude.com
-jewell.edu
 jewellagency.com
 jewellakebandb.com
 jewelland.com
@@ -73434,7 +71839,6 @@ jewelryyou.com
 jewelryzone.com
 jewels-income.com
 jewels-jade.com
-jewels-jadexxx.tumblr.com
 jewels-line.com
 jewels-unlimited.com
 jewels.co.nz
@@ -73513,14 +71917,12 @@ jewelsandb.blogspot.sk
 jewelsandb.blogspot.sn
 jewelsandb.blogspot.tw
 jewelsandb.blogspot.ug
-jewelsandb.tumblr.com
 jewelsanddeals.com
 jewelsanddiamonds.com
 jewelsandflowers.com
 jewelsandjewels.com
 jewelsandstones.com
 jewelsandtreasures.com
-jewelsandxxx.tumblr.com
 jewelsappraisal.com
 jewelsappraised.com
 jewelsappraiser.com
@@ -73649,7 +72051,6 @@ jewelsinfo.com
 jewelsinfotech.com
 jewelsinthedesert.com
 jewelsintime.cc
-jewelsissy.tumblr.com
 jewelsjadeblog.com
 jewelsjadelove.com
 jewelsjewels.com
@@ -73669,7 +72070,6 @@ jewelsnthings.com
 jewelsnursery.com
 jewelsofbeverlyhills.com
 jewelsofbrazil.com
-jewelsofdenial.tumblr.com
 jewelsofemirates.com
 jewelsoffaith.com
 jewelsofflorida.com
@@ -73693,7 +72093,6 @@ jewelsofvalue.com
 jewelsone.com
 jewelsonu.com
 jewelsound.com
-jewelsouth.tumblr.com
 jewelspamaui.com
 jewelsparkles.com
 jewelsphotos.com
@@ -73746,10 +72145,8 @@ jewelweedllc.com
 jewelwish.com
 jewelwiz.com
 jewelworlds.com
-jewelxrossed.tumblr.com
 jewelyadesigns.com
 jewelyspa.com
-jewelz91.tumblr.com
 jewelzandrosez.com
 jewelzbymaricar.com
 jewelzee.com
@@ -74052,8 +72449,6 @@ jewishhavana.com
 jewishheadstones.com
 jewishheartofchristianity.com
 jewishheritage.com
-jewishheritage.gov
-jewishheritagemonth.gov
 jewishhighschool.com
 jewishholidaydepot.com
 jewishholidays.com
@@ -74208,7 +72603,6 @@ jewishoverstock.com
 jewishowned.com
 jewishpal.com
 jewishpanama.com
-jewishpapi.tumblr.com
 jewishparenting.com
 jewishpastor.com
 jewishpeacenews.com
@@ -74216,7 +72610,6 @@ jewishpendants.com
 jewishpenpals.org
 jewishpeople.ws
 jewishpeopledating.com
-jewishpeterdonaldson.tumblr.com
 jewishphoneprincess.blogspot.ae
 jewishphoneprincess.blogspot.al
 jewishphoneprincess.blogspot.am
@@ -74349,7 +72742,6 @@ jewishsports.org
 jewishsportshof.com
 jewishsportsreview.com
 jewishspot.com
-jewishsquats.tumblr.com
 jewishstar.com
 jewishstar.net
 jewishstartreetopper.com
@@ -74482,7 +72874,6 @@ jewmbc.com
 jewme.googlevideo.com
 jewmedia.com
 jewmh.googlevideo.com
-jewmingle.tumblr.com
 jewms.googlevideo.com
 jewmusic.com
 jewmv.googlevideo.com
@@ -74548,7 +72939,6 @@ jewsatthealamo.com
 jewsatthealamo.net
 jewsbar.com
 jewschristiansmuslims.com
-jewscum.tumblr.com
 jewsforisrael.com
 jewsforjayson.com
 jewsforjebbush.com
@@ -74573,11 +72963,9 @@ jewsofcrypto.com
 jewsome.com
 jewspace.com
 jewspage.com
-jewsquats.tumblr.com
 jewsrus.net
 jewssane.com
 jewssansfrontieres.blogspot.com
-jewsten.tumblr.com
 jewstock.net
 jewsweek.com
 jewswithtattoos.com
@@ -74678,7 +73066,6 @@ jexho.googlevideo.com
 jexibe.com
 jexim.com
 jexis.pungs.ru
-jexistenc.tumblr.com
 jexix.net
 jexjb.googlevideo.com
 jexjk.googlevideo.com
@@ -74702,7 +73089,6 @@ jexo.net
 jexonoil.com
 jexov.com
 jexpd.googlevideo.com
-jexpelled.tumblr.com
 jexperts.com.br
 jexpg.googlevideo.com
 jexpj.googlevideo.com
@@ -74757,9 +73143,7 @@ jexxj.googlevideo.com
 jexxon.com
 jexxu.googlevideo.com
 jexxx.googlevideo.com
-jexxxxxx.tumblr.com
 jexy.com
-jey-xxx-wynn.tumblr.com
 jey.com
 jeyaanu.000webhostapp.com
 jeyabfrochofihaz.jiluketireotic.com
@@ -74777,7 +73161,6 @@ jeydc.googlevideo.com
 jeydf.googlevideo.com
 jeydi.googlevideo.com
 jeydl.googlevideo.com
-jeydonblack.tumblr.com
 jeydw.googlevideo.com
 jeydz.googlevideo.com
 jeyears.us
@@ -74846,7 +73229,6 @@ jeyrp.googlevideo.com
 jeyrs.googlevideo.com
 jeyrv.googlevideo.com
 jeysearch.com
-jeysex.tumblr.com
 jeyshop.com
 jeysl.googlevideo.com
 jeysoft.narod.ru
@@ -74871,7 +73253,6 @@ jez.amyb.maxgrowth.ru
 jez.jlxnesex.in
 jez.si
 jezabeljones.com
-jezabelle-bdsm.tumblr.com
 jezabelles.com
 jezabelz.com
 jezaira.com
@@ -74974,15 +73355,12 @@ jezebelentertainment.com
 jezebelgentlemensclub.com
 jezebelite.com
 jezebeljames.com
-jezebeljewel.tumblr.com
 jezebella.com
 jezebelle-bond.com
 jezebellebond.com
 jezebellebound.com
-jezebellery.tumblr.com
 jezebellingerie.com
 jezebelnightclub.com
-jezebelphoenix.tumblr.com
 jezebels-girls.com
 jezebels.co.uk
 jezebels.com
@@ -75060,7 +73438,6 @@ jezebelstryst.blogspot.sk
 jezebelstryst.blogspot.sn
 jezebelstryst.blogspot.tw
 jezebelstryst.blogspot.ug
-jezebelx.tumblr.com
 jezebelz.com
 jezebwl.com
 jezed.googlevideo.com
@@ -75188,7 +73565,6 @@ jezykpolski.com
 jezym.googlevideo.com
 jezyp.googlevideo.com
 jezys.googlevideo.com
-jezza2318.tumblr.com
 jezzballs.com
 jezzie.org
 jezzjackson.com
@@ -75234,7 +73610,6 @@ jf.winads.cn
 jf0.com
 jf007.com
 jf010.hitbox.com
-jf02.tumblr.com
 jf18.free.fr
 jf1860.com
 jf18a.com
@@ -75709,7 +74084,6 @@ jfeed.googlevideo.com
 jfeehan.com
 jfeel.mobi
 jfeer.googlevideo.com
-jfeet14.tumblr.com
 jfeeu.googlevideo.com
 jfegb.googlevideo.com
 jfegl.googlevideo.com
@@ -75826,7 +74200,6 @@ jfepk.googlevideo.com
 jfepp.googlevideo.com
 jfeqeq.com
 jferc.googlevideo.com
-jferd007.tumblr.com
 jfere.googlevideo.com
 jferf.googlevideo.com
 jferh.googlevideo.com
@@ -76178,7 +74551,6 @@ jfibp.googlevideo.com
 jficb.googlevideo.com
 jfice.googlevideo.com
 jfich.googlevideo.com
-jfictitional.tumblr.com
 jficx.googlevideo.com
 jfiec.googlevideo.com
 jfief.googlevideo.com
@@ -76283,7 +74655,6 @@ jfjfj.googlevideo.com
 jfjfl.googlevideo.com
 jfjfo.googlevideo.com
 jfjfr.googlevideo.com
-jfjfr33.tumblr.com
 jfjfu.googlevideo.com
 jfjfx.googlevideo.com
 jfjhm.googlevideo.com
@@ -76485,7 +74856,6 @@ jfktowing.com
 jfktr.googlevideo.com
 jfktrading.com
 jfktransfer.com
-jfku.edu
 jfkungfu.com
 jfkwb.googlevideo.com
 jfkwe.googlevideo.com
@@ -76615,7 +74985,6 @@ jflzn.googlevideo.com
 jflzq.googlevideo.com
 jfm.us
 jfm4.pop.baofeng.net
-jfm4190.tumblr.com
 jfmaa.googlevideo.com
 jfmad.googlevideo.com
 jfmal.googlevideo.com
@@ -76744,7 +75113,6 @@ jfnet.googlevideo.com
 jfnet.top
 jfnew.googlevideo.com
 jfney.googlevideo.com
-jfnfbshchrjsbdbthsj.tumblr.com
 jfnga.googlevideo.com
 jfngd.googlevideo.com
 jfngg.googlevideo.com
@@ -76776,7 +75144,6 @@ jfnmt.googlevideo.com
 jfnmw.googlevideo.com
 jfnmy.googlevideo.com
 jfnoa.googlevideo.com
-jfnoel65.tumblr.com
 jfnol.googlevideo.com
 jfnoo.googlevideo.com
 jfnor.googlevideo.com
@@ -76875,7 +75242,6 @@ jfoml.googlevideo.com
 jfomu.googlevideo.com
 jfomw.googlevideo.com
 jfomx.googlevideo.com
-jfoneal.tumblr.com
 jfonline.com
 jfonqlqtbhlgr.co.uk
 jfons.com
@@ -76895,17 +75261,14 @@ jfopv.googlevideo.com
 jfopx.googlevideo.com
 jforbi.com
 jforce.no-ip.org
-jforceposts.tumblr.com
 jforex-visual.com
 jforexvisual.com
 jforgeoux.free.fr
 jforhan.club.fr
 jfortp.com
 jfosc.googlevideo.com
-jfose.tumblr.com
 jfosf.googlevideo.com
 jfosq.googlevideo.com
-jfosshouse.tumblr.com
 jfost.googlevideo.com
 jfosters.com
 jfosw.googlevideo.com
@@ -77187,7 +75550,6 @@ jfrns.in
 jfrnt.googlevideo.com
 jfrnw.googlevideo.com
 jfrny.googlevideo.com
-jfro175n.tumblr.com
 jfrocksprod.com
 jfrontier.com
 jfrostcustombuilder.com
@@ -77432,8 +75794,6 @@ jfuaq.googlevideo.com
 jfuat.googlevideo.com
 jfuaw.googlevideo.com
 jfuay.googlevideo.com
-jfuckhardsexpussy.tumblr.com
-jfuckinggray.tumblr.com
 jfuda.googlevideo.com
 jfudd.googlevideo.com
 jfudg.googlevideo.com
@@ -77890,7 +76250,6 @@ jfysn.googlevideo.com
 jfysq.googlevideo.com
 jfyst.googlevideo.com
 jfysw.googlevideo.com
-jfyt.tumblr.com
 jfyucynoi.iseeutcar.3inchesnow.ru
 jfyv.com
 jfyva.googlevideo.com
@@ -77930,7 +76289,6 @@ jfzoaoss.com
 jfzpy.googlevideo.com
 jfzq.phlort.ru
 jg-1.com
-jg-1975.tumblr.com
 jg-artgallery.com
 jg-f.com
 jg-group.com
@@ -77981,7 +76339,6 @@ jg71fc94du64dm.biz
 jg7cof.auto.drivealexus.com
 jg7tey.pool.pchamberlain.co.uk
 jg8.com
-jg80882.tumblr.com
 jg83iak3jg3.net
 jg868888.com
 jg878888.com
@@ -78887,14 +77244,12 @@ jgirl.deluxepass.com
 jgirl.net
 jgirl.org
 jgirl.us
-jgirl4bbc.tumblr.com
 jgirl4you.com
 jgirladventures.com
 jgirlbozi.com
 jgirlcinema.com
 jgirlcinema.net
 jgirllove.com
-jgirllove.tumblr.com
 jgirlmagic.com
 jgirls.com
 jgirls.hostonfly.com
@@ -78902,12 +77257,9 @@ jgirls.net
 jgirls.onlineitem.co.kr
 jgirls.org
 jgirls.topicsongwol.co.kr
-jgirls.tumblr.com
 jgirls.usedcaraudio.co.kr
 jgirls.ws
-jgirls87.tumblr.com
 jgirlsnet.com
-jgirlsnipples.tumblr.com
 jgirlworld.com
 jgirlz.com
 jgischools.in
@@ -79169,7 +77521,6 @@ jgloq.googlevideo.com
 jglory.com
 jglot.googlevideo.com
 jglov.googlevideo.com
-jglovelace.tumblr.com
 jglow.googlevideo.com
 jgloy.googlevideo.com
 jglpi.googlevideo.com
@@ -79336,7 +77687,6 @@ jgnkk.googlevideo.com
 jgnkn.googlevideo.com
 jgnkt.googlevideo.com
 jgnky.googlevideo.com
-jgnm80.tumblr.com
 jgnmf.googlevideo.com
 jgnmi.googlevideo.com
 jgnmk.googlevideo.com
@@ -79756,7 +78106,6 @@ jgrqr.googlevideo.com
 jgrqu.googlevideo.com
 jgrqw.googlevideo.com
 jgrr.blogspot.com
-jgrrey.tumblr.com
 jgrtj.googlevideo.com
 jgrtm.googlevideo.com
 jgrtp.googlevideo.com
@@ -79781,7 +78130,6 @@ jgrzj.googlevideo.com
 jgrzl.googlevideo.com
 jgrzo.googlevideo.com
 jgs.findhere.org
-jgs3030.tumblr.com
 jgsa.com
 jgsab.googlevideo.com
 jgsaj.googlevideo.com
@@ -79982,7 +78330,6 @@ jgtuj.googlevideo.com
 jgtul.googlevideo.com
 jgtuo.googlevideo.com
 jgtur.googlevideo.com
-jgturn.tumblr.com
 jgtuu.googlevideo.com
 jgtxb.googlevideo.com
 jgtxe.googlevideo.com
@@ -80063,7 +78410,6 @@ jgupy.googlevideo.com
 jgurc.googlevideo.com
 jguriwoelrde.com
 jgurl.com
-jgurlp.tumblr.com
 jgurn.googlevideo.com
 jgurt.googlevideo.com
 jguru.com
@@ -80095,7 +78441,6 @@ jguxs.googlevideo.com
 jguxv.googlevideo.com
 jguyusguy.com
 jguzman.formstack.com
-jgv-a-sinful-desire.tumblr.com
 jgv-meppen.de
 jgvaakgvc.klarl.ru
 jgvb.com
@@ -80535,11 +78880,9 @@ jh0022.com
 jh004b7034.pwp.blueyonder.co.uk
 jh0066.com
 jh01.com
-jh1070.tumblr.com
 jh1144.com
 jh177.cn
 jh17ka52ps26ve.biz
-jh1984.tumblr.com
 jh1r-nyjcc.info
 jh1sapport.tk
 jh2.info
@@ -80615,7 +78958,6 @@ jhags.googlevideo.com
 jhagv.googlevideo.com
 jhagy.googlevideo.com
 jhail.us
-jhaines04.tumblr.com
 jhair.com
 jhaiurgngjchvgt.com
 jhajd.googlevideo.com
@@ -80644,7 +78986,6 @@ jhame.com
 jhame.googlevideo.com
 jhamey.tripod.com
 jhamild.us
-jhamiltonphotography.tumblr.com
 jhamm.googlevideo.com
 jhammons.quizusa.superhyde.wallitown.giselegina.co
 jhammons.quizusa.superhyde.wallitown.giselegina.com
@@ -80689,7 +79030,6 @@ jhaoy.googlevideo.com
 jhar.com
 jharana.com
 jharanch.net
-jhardcastle82.tumblr.com
 jhardcore.com
 jhardin.com
 jhardware.com
@@ -80723,7 +79063,6 @@ jhatmogtjqmmvr.com
 jhaue.googlevideo.com
 jhaug.googlevideo.com
 jhauj.googlevideo.com
-jhauk41.tumblr.com
 jhaum.googlevideo.com
 jhauptman.com
 jhaus.googlevideo.com
@@ -80757,8 +79096,6 @@ jhbao.googlevideo.com
 jhbar.googlevideo.com
 jhbathrooms.co.uk
 jhbau.googlevideo.com
-jhbb30.tumblr.com
-jhbboi.tumblr.com
 jhbcjhdbchjdbcdhcbdhcbdhc.000webhostapp.com
 jhbcorp.com
 jhbctvc.co.cc
@@ -80784,7 +79121,6 @@ jhbgn.googlevideo.com
 jhbgroup.com
 jhbgy.googlevideo.com
 jhbi0techme.com
-jhbicool75.tumblr.com
 jhbiexhib.allmyblog.com
 jhbio.com
 jhbiuroscato.centerblog.net
@@ -80943,7 +79279,6 @@ jhcommonsense.com
 jhcomp1609.com
 jhcompany.com
 jhconstruction.com
-jhcore.sourceforge.net
 jhcpd.googlevideo.com
 jhcpg.googlevideo.com
 jhcpi.googlevideo.com
@@ -81158,7 +79493,6 @@ jhemd.googlevideo.com
 jhemg.googlevideo.com
 jhemw.googlevideo.com
 jhen.net
-jhen57.tumblr.com
 jhenb.googlevideo.com
 jhend.com
 jhendersonartifacts.com
@@ -81170,7 +79504,6 @@ jhenho.com.tw
 jhenning.com
 jhenpao.info
 jhenrydigital.com
-jhenryphotographer.tumblr.com
 jhenson.com
 jhentai.com
 jhep.com
@@ -81186,7 +79519,6 @@ jheqh.googlevideo.com
 jheqo.incongruousness.hurricanecelia.com
 jhequosbzwclohq6xofj7zl-support-netflix.info
 jheqv.googlevideo.com
-jherdez11.tumblr.com
 jhere.net
 jherem.com
 jheremiah.com
@@ -81227,7 +79559,6 @@ jhexs.googlevideo.com
 jhexu.googlevideo.com
 jheyn.googlevideo.com
 jheyo.bid
-jhezie09.tumblr.com
 jhf.hangpara.or.jp
 jhf.myjino.ru
 jhf.neurology-nurse.net
@@ -81349,7 +79680,6 @@ jhg0088.com
 jhg43.cosmoelan.com
 jhg65.com
 jhg700.fr
-jhgaydusud.tumblr.com
 jhgbv.com
 jhgcb.googlevideo.com
 jhgce.googlevideo.com
@@ -81457,7 +79787,6 @@ jhgts.googlevideo.com
 jhgtu.googlevideo.com
 jhgtx.googlevideo.com
 jhgukn.com
-jhguy.tumblr.com
 jhgv.xn--90ae3fe.xn--p1ai
 jhgvh.com
 jhgvjklhghjk.pochta.ru
@@ -82223,7 +80552,6 @@ jhnwx.com
 jhnyb.googlevideo.com
 jhnye.googlevideo.com
 jhnyh.googlevideo.com
-jhnyhngwll.tumblr.com
 jhnyj.googlevideo.com
 jhnym.googlevideo.com
 jhnyp.googlevideo.com
@@ -82288,13 +80616,11 @@ jhon32op.beget.tech
 jhona.com
 jhonatancruz.com
 jhonatansepulveda.com
-jhonatareisfan.tumblr.com
 jhonb.googlevideo.com
 jhoncn.com
 jhoncordoba.com
 jhondi33.duckdns.org
 jhondoe.com
-jhondoeho.tumblr.com
 jhongmadaliday.com
 jhonhusein.com
 jhonhy.us
@@ -82308,7 +80634,6 @@ jhonny.com
 jhonnymoreno.com
 jhonnypolanco.stevenssvc.landyr.galleryalbany.dory
 jhonnypolanco.stevenssvc.landyr.galleryalbany.dorystarla.com
-jhonnyspot.tumblr.com
 jhonnywaterseed.com
 jhonnyxxx.xpg.com.br
 jhonnyxxx1.xpg.com.br
@@ -82321,7 +80646,6 @@ jhonvega.com
 jhonwilliams.com
 jhonx.googlevideo.com
 jhony.com
-jhonylovesdad.tumblr.com
 jhoo.e-city.tv
 jhooj.googlevideo.com
 jhoojhoo.in
@@ -82346,11 +80670,9 @@ jhoqt.googlevideo.com
 jhoqy.googlevideo.com
 jhoriginals.com
 jhorn.com
-jhoshblog.tumblr.com
 jhostel.com
 jhosts.com
 jhot.cjt1.net
-jhot3.tumblr.com
 jhotbingokpcash.com
 jhotcashwebkp.com
 jhotclubcashkp.com
@@ -82364,7 +80686,6 @@ jhotmixgrandpa1ace.com
 jhoto.googlevideo.com
 jhotr.googlevideo.com
 jhotsex.com
-jhotstud8in.tumblr.com
 jhott.com
 jhott.googlevideo.com
 jhotwinnergrandpa1ace.com
@@ -82900,8 +81221,6 @@ jhtxx.googlevideo.com
 jhtyfc.en.envirowipes.co.uk
 jhtyg.goodnightstories.org
 jhu-bsi.com
-jhu.edu
-jhu.eduafs.moatads.com
 jhu88.com
 jhua2009.com
 jhubc.it
@@ -82973,7 +81292,6 @@ jhumx.googlevideo.com
 jhunb.googlevideo.com
 jhunewsletter.com
 jhunm.googlevideo.com
-jhunniorsdick.tumblr.com
 jhunp.googlevideo.com
 jhuns.googlevideo.com
 jhuntenterprises.com
@@ -83130,7 +81448,6 @@ jhwa.net
 jhwadongchurch.com
 jhwaf.com
 jhwaf.de
-jhwasaki.tumblr.com
 jhwcb.googlevideo.com
 jhwce.googlevideo.com
 jhwch.googlevideo.com
@@ -83437,7 +81754,6 @@ jhyzy.googlevideo.com
 jhz.mobi
 jhz100.3322.org
 jhz3launo.com
-jhz6281-deactivated20151226.tumblr.com
 jhzdd.googlevideo.com
 jhzdpx.com
 jhzeh.com
@@ -83776,7 +82092,6 @@ jiangxi.9upk.com
 jiangxi.greenxf.com
 jiangxi.jz5u.com
 jiangxiaofeng.com
-jiangxin-apple.com
 jiangxitrust.com
 jiangyanjun.com
 jiangyao.com
@@ -84204,7 +82519,6 @@ jibbg.googlevideo.com
 jibbie.com
 jibbijung.biz
 jibbity.com
-jibbity0jabbity.tumblr.com
 jibbj.googlevideo.com
 jibbla.com
 jibblaws.com
@@ -84222,7 +82536,6 @@ jibca.com
 jibcaisa.com
 jibcansag.com
 jibcard.com
-jibclouds.tumblr.com
 jibconstruction.com
 jibcorp.com
 jibdo.com
@@ -84407,7 +82720,6 @@ jibyi.googlevideo.com
 jibyl.googlevideo.com
 jibyq.googlevideo.com
 jic-group.com
-jic.edu.sa
 jic.kz
 jic.talkingdata.com
 jic2.ru
@@ -84988,7 +83300,6 @@ jiffgift.com
 jiffhealth.com
 jiffhyena.com
 jiffk.googlevideo.com
-jiffmiller.tumblr.com
 jiffn.googlevideo.com
 jiffo.com
 jiffq.googlevideo.com
@@ -85090,7 +83401,6 @@ jiffyjimtime.blogspot.sk
 jiffyjimtime.blogspot.sn
 jiffyjimtime.blogspot.tw
 jiffyjimtime.blogspot.ug
-jiffyjimtime.tumblr.com
 jiffyjob.com
 jiffyjokes.com
 jiffylens.com
@@ -85116,7 +83426,6 @@ jiffyscan.com
 jiffysearch.com
 jiffyserver.com
 jiffysex.com
-jiffysex.tumblr.com
 jiffyship.com
 jiffysites.com
 jiffysitter.com
@@ -85286,7 +83595,6 @@ jigfresd.review
 jigfs.googlevideo.com
 jigfv.googlevideo.com
 jigfy.googlevideo.com
-jigga210.tumblr.com
 jiggaban.com
 jiggabootaco.com
 jiggalove.com
@@ -85313,15 +83621,12 @@ jiggities.com
 jiggitybones.com
 jiggityjohn.tripod.com
 jiggla.com
-jiggle-kingdom.tumblr.com
 jiggle.de
-jigglebitz.tumblr.com
 jiggleboobs.com
 jigglebooty.com
 jigglebutts.com
 jigglegifs.com
 jiggleholic.com
-jiggleitforme.tumblr.com
 jigglejoy.com
 jigglely.com
 jigglemax.com
@@ -85330,23 +83635,16 @@ jiggles.net
 jiggleshot.com
 jigglestitch.com
 jiggletime.com
-jiggletitsjillian.tumblr.com
 jiggletones.com
 jigglez.net
 jigglie.com
-jiggliforms.tumblr.com
-jiggling-boob-gif.tumblr.com
-jiggling-tits.tumblr.com
-jigglingboobies.tumblr.com
 jigglingboobs.com
 jigglingtits.com
 jigglingwhisker.com
 jigglive.com
-jiggly-jugs.tumblr.com
 jiggly.cc
 jiggly.com
 jiggly.xyz
-jigglybeanphalange.tumblr.com
 jigglybits.com
 jigglyboobs.com
 jigglybutt.com
@@ -85354,7 +83652,6 @@ jigglycocktails.com
 jigglyeyes.com
 jigglygames.com
 jigglygirls.com
-jigglygirlsofficial.tumblr.com
 jigglyhut.com
 jigglyjello.com
 jigglyjugs.com
@@ -85363,8 +83660,6 @@ jigglypig.com
 jigglypuff.com
 jigglyroom.com
 jigglysix.stream
-jigglytitts.tumblr.com
-jigglywhitegirls.tumblr.com
 jiggy.com
 jiggy.it
 jiggyaction-adult-movies.com
@@ -85526,7 +83821,6 @@ jigsawlogistics.com
 jigsawlounge.co.uk
 jigsawltd.com
 jigsawmail.com
-jigsawman00.tumblr.com
 jigsawmarketing.net
 jigsawmenswear.com
 jigsawmosaics.com
@@ -85601,7 +83895,6 @@ jigyarov.com
 jigyasasharma.com
 jigyasatheschool.us10.list-manage.com
 jigz.org
-jigzagirl24.tumblr.com
 jigzaw.f2o.org
 jigzd.googlevideo.com
 jigzf.googlevideo.com
@@ -85883,7 +84176,6 @@ jiiuo.googlevideo.com
 jiiut.googlevideo.com
 jiiuw.googlevideo.com
 jiiuz.googlevideo.com
-jiivanxxx.tumblr.com
 jiiwliafhyttodm.org
 jiixb.googlevideo.com
 jiixe.googlevideo.com
@@ -86122,7 +84414,6 @@ jikkz.googlevideo.com
 jiklet.com
 jiklltguwqkalabhiunnf.s3-website-us-west-2.ama
 jiklltguwqkalabhiunnf.s3-website-us-west-2.amazona
-jiklltguwqkalabhiunnf.s3-website-us-west-2.amazonaws.com
 jiklome.easyfreeforum.com
 jikls4.com
 jikmb.googlevideo.com
@@ -86184,7 +84475,6 @@ jikusijiffc5fsig.kocezereokoq.info
 jikutffc5fmuruqoq.kocezereokoq.info
 jikuu.com
 jikux.googlevideo.com
-jikuyemanamounaphotography.tumblr.com
 jikuzz5s-fxg.com
 jikvb.googlevideo.com
 jikvj.googlevideo.com
@@ -86394,7 +84684,6 @@ jill-lim.us
 jill-lueck.us
 jill-mortimer.us
 jill-northcutt.us
-jill-palmer.tumblr.com
 jill-redus.us
 jill-richeson.us
 jill-rommel.us
@@ -86405,7 +84694,6 @@ jill-smallwood.us
 jill-sontag.us
 jill-southern.us
 jill-stauffer.us
-jill-sucks-jack.tumblr.com
 jill-tiedeman.us.org
 jill-upchurch.in
 jill-wegner.com
@@ -86419,7 +84707,6 @@ jillamusic.com
 jillanaelonore.com
 jillandben.com
 jillandbrian.com
-jillandjack12.tumblr.com
 jillandjohn.com
 jillandjon.com
 jillandmatt.com
@@ -86438,7 +84725,6 @@ jillatude.tashabishop.tresstonm.wbecker.candidejami.com
 jillayneangelika.in
 jillaynebenjamin.com
 jillayneglenroz.com
-jillbabyjill.tumblr.com
 jillballard.com
 jillbarnes.com
 jillbaum.com
@@ -86517,7 +84803,6 @@ jillian-fentress.biz
 jillian-fitzgerald.us
 jillian-grace.org
 jillian-janicki.in
-jillian-janson-hd720.tumblr.com
 jillian-libby.us
 jillian-madden.in
 jillian-mcbeth.us
@@ -86560,7 +84845,6 @@ jillianh.com
 jillianhoppe.com
 jillianjordan.com
 jillianjsmithportfolio.com
-jillianjxxx.tumblr.com
 jillianlane.com
 jillianlloyd.com
 jillianmichaelsdiet.com
@@ -86583,14 +84867,11 @@ jillianthomas.com
 jillianweber.com
 jillianweibel.com
 jillianzplace.com
-jilliciouscaptions.tumblr.com
-jilliciouserotica.tumblr.com
 jilliegenia.com
 jilliegiacinta.trade
 jillielotty.com
 jilliene.com
 jillingatwork.com
-jillingoffasians.tumblr.com
 jillionsteros.com
 jillippa.homestead.com
 jillivanilli.com
@@ -86676,7 +84957,6 @@ jillnurse.com
 jilloconnorcooks.com
 jilloe.com
 jillofallevents.com
-jilloffforme-deactivated2016062.tumblr.com
 jillorr.com
 jillos.com
 jillpadilla.com
@@ -86694,7 +84974,6 @@ jillrich.com
 jillrosenthal.com
 jillrousseau.com
 jillrutanhoffman.com
-jills-bitch.tumblr.com
 jills.org
 jillsander.com
 jillsandwich.com
@@ -86727,7 +85006,6 @@ jillsjokeline.com
 jillsjoy.com
 jillsjustice.com
 jillslater.com
-jillslesbianside.tumblr.com
 jillslounge.com
 jillsmail.com
 jillsnyder.com
@@ -86769,7 +85047,6 @@ jillward.com
 jillwarrenmusic.com
 jillweaver.com
 jillwelch.com
-jillwolfbdsmeroticaauthor.tumblr.com
 jillwood.com
 jillwua.com
 jillxxx.com
@@ -86777,7 +85054,6 @@ jilly-king.com
 jillyardyce.be
 jillybeandezines.com
 jillybeans.com
-jillybeansauce.tumblr.com
 jillybees.com
 jillybs.co.uk
 jillybugs.com
@@ -86904,7 +85180,6 @@ jim-joes1.me
 jim-lawrence.co.uk
 jim-lecroy.us
 jim-lindsay-travel-adventures.com
-jim-moriartits.tumblr.com
 jim-reed.com
 jim-s.com
 jim-simon.com
@@ -86923,12 +85198,9 @@ jim.roepcke.com
 jim.skimlinks.com
 jim.wistia.com
 jim.xn--80aglaiio2ee.xn--p1ai
-jim02840.tumblr.com
 jim1849.tripod.com
-jim2318.tumblr.com
 jim4us.com
 jim5.com
-jim512007atyahu.tumblr.com
 jim58.com
 jim88smit.me
 jimab.com
@@ -87015,7 +85287,6 @@ jimbert.com
 jimbillie.com
 jimbis.com
 jimbish.com
-jimbisubm.tumblr.com
 jimblaster.com
 jimbledsoe.com
 jimbloch.com
@@ -87027,10 +85298,7 @@ jimbo.hopto.org
 jimbo.ixn.local.vmsn.de
 jimbo.web-log.nl
 jimbo.zorex.net
-jimbo6603.tumblr.com
-jimboajubejube.tumblr.com
 jimboart.com
-jimbob212.tumblr.com
 jimbobob.com
 jimbobs.com
 jimbobtexas.com
@@ -87042,17 +85310,14 @@ jimbofgrid.com
 jimbogalleries.com
 jimbogold.com
 jimboh.com
-jimboi30.tumblr.com
 jimbojump.com
 jimbolaya.com
 jimbololo.com
 jimbololo.nl
-jimbolovesex.tumblr.com
 jimbolt.com
 jimbomart.com
 jimboney.com
 jimboparrish.com
-jimborango.tumblr.com
 jimborepl.com
 jimborg.com
 jimboro.chez.com
@@ -87122,7 +85387,6 @@ jimcasy.com
 jimcc.googlevideo.com
 jimce.googlevideo.com
 jimcentral.com
-jimcest.tumblr.com
 jimcgymc.jemimahcorrine.com
 jimch.googlevideo.com
 jimchampion.com
@@ -87170,7 +85434,6 @@ jimco.co.id
 jimcoach.net
 jimcoatesminiatures.com
 jimcobrae.com
-jimcock33.tumblr.com
 jimcoconstruction.com
 jimcode.com
 jimcoins.com
@@ -87204,10 +85467,7 @@ jimcrivellirewards.com
 jimcroce.com
 jimcrowley.com
 jimcs.com
-jimcu.edu.m1dcountry.com
-jimcub71.tumblr.com
 jimculloty.net
-jimdad12.tumblr.com
 jimdalrymple.com
 jimdandeez.mystoretoolbar.com
 jimdandyskiclub.com
@@ -87216,12 +85476,10 @@ jimdeal.com
 jimdeas.com
 jimdesign.co.uk
 jimdetwiler.com
-jimdiamond.tumblr.com
 jimdickson.com
 jimdienes.com
 jimdiet.com
 jimdietz.com
-jimdilylis.tumblr.com
 jimdixon.raiderjack.christophedcc.caroletc.corlyeb
 jimdixon.raiderjack.christophedcc.caroletc.corlyebba.com
 jimdmclain.com
@@ -87233,7 +85491,6 @@ jimdonoghue.com
 jimdonovanmusic.com
 jimdot.com
 jimdowney.com
-jimdsblog.tumblr.com
 jimdudleyqh.com
 jimdumas.net
 jimdvorak.com
@@ -87252,7 +85509,6 @@ jimeixianye.com
 jimekovich.com
 jimelam.com
 jimeli.com
-jimelliottsr.tumblr.com
 jimellison.com
 jimello.us
 jimelmore.com
@@ -87297,7 +85553,6 @@ jimfarnsworth.com
 jimfashion.com
 jimfaughn.com
 jimfd.googlevideo.com
-jimferroxxxblog.tumblr.com
 jimff.googlevideo.com
 jimfi.googlevideo.com
 jimfiedler.com
@@ -87372,7 +85627,6 @@ jimhillas.com
 jimhillenbrand.com
 jimhimes.com
 jimholbrook.com
-jimholm1957.tumblr.com
 jimhorsley.com
 jimhowes.com
 jimhudsonedits.com
@@ -87447,12 +85701,10 @@ jimix.googlevideo.com
 jimiyu.com
 jimiyua.com
 jimj.com
-jimj777.tumblr.com
 jimjaagua.com
 jimjack.com.ua
 jimjackman.com
 jimjacks.com
-jimjamartnmore.tumblr.com
 jimjamieson.com
 jimjamjar.com
 jimjamlover.com
@@ -87527,7 +85779,6 @@ jimliparis.com
 jimliske.com
 jimlittle.com
 jimlkn.info
-jimllpaintit.tumblr.com
 jimlo.eipaywowjp.com
 jimloan.com
 jimlockwood.com
@@ -87535,7 +85786,6 @@ jimlogan.net
 jimlondon.com
 jimlounsbury.com
 jimlovell.com
-jimlovestojerk.tumblr.com
 jimloyd.com
 jimlq.googlevideo.com
 jimluce.com
@@ -87553,7 +85803,6 @@ jimmaggio.com
 jimmaguireonline.com
 jimmagwood.com
 jimmaisel.com
-jimmalibupictures.tumblr.com
 jimmalloy.com
 jimmaloofrealty.com
 jimmanning.com
@@ -87561,7 +85810,6 @@ jimmarshallinsurance.com
 jimmattern.com
 jimmays.com
 jimmbest.com
-jimmbob1.tumblr.com
 jimmcandrews.com
 jimmccabe.com
 jimmccollum.com
@@ -87590,7 +85838,6 @@ jimmiandkerry.com
 jimmibar.com
 jimmibroadband.in
 jimmica.com
-jimmich68.tumblr.com
 jimmiddleton.com
 jimmieblackmusic.com
 jimmiegreen.com
@@ -87609,20 +85856,16 @@ jimmiejohnsondiecast.com
 jimmiejohnsongear.com
 jimmiemcknight.com
 jimmieporter.com
-jimmiespa87.tumblr.com
 jimmieus.com
 jimmihartmusic.com
 jimmikj.us
 jimmiles.net
 jimmilner.com
-jimmiman.tumblr.com
-jimmineyjack.tumblr.com
 jimmink.nl
 jimminychristmas.com
 jimmisnerlightdesigns.com
 jimmitchellservice.com
 jimmiworld.com
-jimmizagimmie777.tumblr.com
 jimmm.com
 jimmm.ucoz.ru
 jimmodglin.com
@@ -87642,37 +85885,28 @@ jimmthebest1.ru
 jimmu.lunarmania.com
 jimmulligan.com
 jimmunro.co.uk
-jimmunro.tumblr.com
 jimmurrayswhiskybible.com
 jimmurrin.com
 jimmutter.com
 jimmy-bitches.com
 jimmy-chooshoes.com
 jimmy-chooshoes.us.com
-jimmy-fanz.tumblr.com
 jimmy-frandsen.us
 jimmy-hat.com
 jimmy-homan.us
-jimmy-hopkins.tumblr.com
 jimmy-hoppers.de
-jimmy-incest-stories.tumblr.com
 jimmy-jorgenson.us
-jimmy-jupiter.tumblr.com
 jimmy-lin.com
 jimmy-neutron-hentai.com
 jimmy-neutronsex.freehostia.com
 jimmy-ns-morrison.com
 jimmy-ohs.com
 jimmy-ohs.net
-jimmy-page-fuck-me.tumblr.com
-jimmy-punk-fairy-urine.tumblr.com
 jimmy-ray.com
 jimmy-talton.in
 jimmy-witham.in
 jimmy.fr
 jimmy100.com
-jimmy2239.tumblr.com
-jimmy3035.tumblr.com
 jimmy777.spywarebot.hop.clickbank.net
 jimmya1-paparazzi.blogspot.ae
 jimmya1-paparazzi.blogspot.al
@@ -87812,7 +86046,6 @@ jimmya1.pwp.blueyonder.co.uk
 jimmyadamsracing.homestead.com
 jimmyaddressing.com
 jimmyandjenny.com
-jimmyandjenny999.tumblr.com
 jimmyandjoespizza.com
 jimmyandmargaret.com
 jimmyandrea.com
@@ -87833,7 +86066,6 @@ jimmybedford.com
 jimmybigburgers.com
 jimmybinnsjr.com
 jimmybling.com
-jimmyboi1981-deactivated2014121.tumblr.com
 jimmybooth.com
 jimmyboots.com
 jimmybrandcondoms.com
@@ -87856,7 +86088,6 @@ jimmycap.com
 jimmycard.com
 jimmycardinale.com
 jimmycarlo.com
-jimmycarterlibrary.gov
 jimmychamberlincomplex.com
 jimmychapman.com
 jimmycheesman.com
@@ -88013,9 +86244,6 @@ jimmycrackcorn.com
 jimmycrawford.com
 jimmycrickets.com
 jimmycross.com
-jimmyd412.tumblr.com
-jimmyd60.tumblr.com
-jimmyd83.tumblr.com
 jimmydavidson.com
 jimmydavies.com
 jimmydeals.com
@@ -88047,7 +86275,6 @@ jimmyfitz.com
 jimmyflame.com
 jimmyfrank.com
 jimmyfrazier.com
-jimmyfuckedme.tumblr.com
 jimmygambina.com
 jimmygentry.com
 jimmyghione.com
@@ -88081,13 +86308,7 @@ jimmyil.us
 jimmyimage.com
 jimmyimmy.com
 jimmyisafaggott.com
-jimmyjacks99.tumblr.com
 jimmyjam.com
-jimmyjam6981.tumblr.com
-jimmyjam72.tumblr.com
-jimmyjam88smoke.tumblr.com
-jimmyjames6969.tumblr.com
-jimmyjamm65.tumblr.com
 jimmyjane.com
 jimmyjansson.com
 jimmyjax.com
@@ -88096,7 +86317,6 @@ jimmyjean.com
 jimmyjenks.com
 jimmyjetski.com
 jimmyjig.com
-jimmyjizz.tumblr.com
 jimmyjjns.paulmotoyoshi.bterzi.redhead.paviabilli.
 jimmyjjns.paulmotoyoshi.bterzi.redhead.paviabilli.com
 jimmyjlofland.com
@@ -88113,14 +86333,12 @@ jimmyjonesnissan.com
 jimmyjonestrucks.com
 jimmyjonson.com
 jimmyjr.com
-jimmyjr89.tumblr.com
 jimmyjug.com
 jimmyjumpers.com
 jimmyjumpers.fileave.com
 jimmyjungles.co.za
 jimmyjunk.com
 jimmykaplow.com
-jimmykatcio.tumblr.com
 jimmykdesigns.com
 jimmykibble.com
 jimmykimmel4president.com
@@ -88147,7 +86365,6 @@ jimmyliparis.com
 jimmylouis.com
 jimmylovesboobs.com
 jimmylynch.com
-jimmymac001.tumblr.com
 jimmymail.com
 jimmymars.com
 jimmymarsracing.com
@@ -88215,8 +86432,6 @@ jimmysadventures.com
 jimmysalazar.com
 jimmysaville.com
 jimmysbaskets.com
-jimmysbest.tumblr.com
-jimmysbigdick.tumblr.com
 jimmysbodyshop.com
 jimmysbuffet.com
 jimmysburger.com
@@ -88229,7 +86444,6 @@ jimmysdeals.com
 jimmysdinerbrooklyn.com
 jimmyseas.com
 jimmysescort.nl
-jimmysfaves.tumblr.com
 jimmysflowers.com
 jimmysfood.com
 jimmysfreesex.com
@@ -88370,12 +86584,9 @@ jimmyvo.com
 jimmyw.com
 jimmywakely.com
 jimmywallace.com
-jimmywaxxx-deactivated20150723.tumblr.com
-jimmywaxxx.tumblr.com
 jimmywhirlwindwhite.com
 jimmywhite.com
 jimmywho.com
-jimmywimmysworld.tumblr.com
 jimmywinston.com
 jimmywork.com
 jimmyworldwide.com
@@ -88413,7 +86624,6 @@ jimob.com
 jimobang.com
 jimoberstar.com
 jimobi.com
-jimocelot.tumblr.com
 jimody.com
 jimoewtm.cn
 jimogle.com
@@ -88466,7 +86676,6 @@ jimpruitt.com
 jimpsix.stream
 jimptacek.com
 jimpulver.com
-jimpusposts.tumblr.com
 jimpy.stream
 jimqb.googlevideo.com
 jimqm.googlevideo.com
@@ -88649,7 +86858,6 @@ jimsings.com
 jimsintuition.com
 jimsjims.com
 jimsjimsjims.com
-jimskline.tumblr.com
 jimsky.com
 jimslagle.com
 jimslaw.com
@@ -88659,7 +86867,6 @@ jimslip.com
 jimslip.org
 jimslipsuksluts.com
 jimsliptube.com
-jimslogshant.tumblr.com
 jimsmagic.com
 jimsmail.com
 jimsmedia.com
@@ -88702,7 +86909,6 @@ jimsrcboats.com
 jimsreviews.com
 jimsroom.com
 jimssales.com
-jimsslutjm.tumblr.com
 jimssportfishing.com
 jimssupplies.com
 jimstaats.com
@@ -88728,7 +86934,6 @@ jimstrips.com
 jimstrophies.com
 jimstroup.com
 jimstrucking.com
-jimstube.tumblr.com
 jimstump.com
 jimsue.com
 jimsutherland.com
@@ -88888,7 +87093,6 @@ jimteeny.com
 jimth.googlevideo.com
 jimthebaptist.com
 jimtheodore.com
-jimtheredman.tumblr.com
 jimthomas.cjb.net
 jimthomas11.tripod.com
 jimthompsoncottage.com
@@ -88907,7 +87111,6 @@ jimthurber.com
 jimtim.com
 jimtk.googlevideo.com
 jimtn.googlevideo.com
-jimtonix2.tumblr.com
 jimtownkennels.com
 jimtowns.com
 jimtq.googlevideo.com
@@ -88962,7 +87165,6 @@ jimwebbsucks.com
 jimwelker.com
 jimwell.com
 jimwelle.com
-jimwellscounty-tx.gov
 jimwestphalen.com
 jimwf.googlevideo.com
 jimwhiteaker.com
@@ -88993,7 +87195,6 @@ jimyaghi.com
 jimyanke.com
 jimyates.com
 jimyateswaterpolo.com
-jimyboy80.tumblr.com
 jimyg.googlevideo.com
 jimyj.googlevideo.com
 jimyjohns.com
@@ -89005,7 +87206,6 @@ jimyr.googlevideo.com
 jimys.com
 jimythelock.com
 jimyu.googlevideo.com
-jimyvr.tumblr.com
 jimzaspelrealestate.com
 jimze.googlevideo.com
 jimzeky.cn
@@ -89032,7 +87232,6 @@ jin.ourit.ru
 jin0044.com
 jin109.com
 jin115.com
-jin4255.tumblr.com
 jin98816.codns.com
 jin98816.conds.com
 jin98816.kro.kr
@@ -89505,7 +87704,6 @@ jinguesthouse.com
 jinguing.com
 jinguisuo.com
 jinguiyouqi.com
-jingujirenpalace.tumblr.com
 jinguk.com
 jingunoah.com
 jingusa.com
@@ -89601,9 +87799,7 @@ jinhusoft.com
 jinhutuan.com
 jinhuwx.com
 jinhwn.com
-jinhyong.tumblr.com
 jini.moy.su
-jini725.tumblr.com
 jinib.googlevideo.com
 jinib.us
 jinicettp.com
@@ -89787,7 +87983,6 @@ jinnettrivers.com
 jinneydao.com
 jinnf.googlevideo.com
 jinnfizz.com
-jinnfurr.tumblr.com
 jinng.googlevideo.com
 jinni.googlevideo.com
 jinniblack.com
@@ -89843,7 +88038,6 @@ jinostep.fizwig.com
 jinot.com
 jinotepenicaragua.com
 jinoubiaoye.com
-jinpa69.tumblr.com
 jinpaiwww.com
 jinpaiyouju.com
 jinpaiyuesao.com
@@ -89984,7 +88178,6 @@ jinsoku.com
 jinsol.nfile.net
 jinsong9.com
 jinspiano.com
-jinstarr.tumblr.com
 jinsu.kr
 jinsung.net
 jinsungeps.com
@@ -90059,7 +88252,6 @@ jinweipijiu.com
 jinweiyoujing.com
 jinwl.googlevideo.com
 jinwo.com
-jinwoo77.tumblr.com
 jinwoocho.com
 jinwooinfo.co.kr
 jinwr.googlevideo.com
@@ -90190,7 +88382,6 @@ jinxwisdom.com
 jinxx.dntrax.com
 jinxxx.com
 jinxy.ru
-jinxy759.tumblr.com
 jinxykids.com
 jinxys.com
 jinxyshouse.com
@@ -90231,7 +88422,6 @@ jinyudg.com
 jinyuedynasty.com
 jinyugou.com
 jinyumingjia.com
-jinyun2.cqmu.edu.cn
 jinyunexpress.com
 jinyunlab.com
 jinyunong.com
@@ -90263,7 +88453,6 @@ jinzhouhuangtao.com
 jinzhouwan.com
 jinzhouyisi.com
 jinzitayulecheng130.com
-jinzo.tumblr.com
 jinzuanvip.com
 jinzuanyule.com
 jinzuanyulecheng.com
@@ -90580,7 +88769,6 @@ jipof.googlevideo.com
 jipoh.googlevideo.com
 jipol.com
 jipole.com
-jipolog.tumblr.com
 jipon.com
 jipoq.googlevideo.com
 jipor.com
@@ -90685,7 +88873,6 @@ jiprz.googlevideo.com
 jipsa.com
 jipshop.com
 jipster.com
-jipsubondage.tumblr.com
 jipu.eu
 jipub.googlevideo.com
 jipue.googlevideo.com
@@ -91130,7 +89317,6 @@ jiser.googlevideo.com
 jisew.googlevideo.com
 jisex.com
 jisez.googlevideo.com
-jisforjanelle.tumblr.com
 jisgb.fesimi.ru
 jishake.com
 jishamly.chez.com
@@ -91281,7 +89467,6 @@ jistenergy.com
 jister.com
 jistery.com
 jistgroup.com
-jistheking.tumblr.com
 jistinf.com
 jistis.com
 jistobju.blog.com
@@ -91543,7 +89728,6 @@ jitterbugsdirect.com
 jitterbugshop.com
 jitterbugsolder.com
 jitterbugstore.net
-jitterbugswag.tumblr.com
 jitterbugtelephone.com
 jitterbugtelephone.net
 jitterbugtelephones.com
@@ -92159,7 +90343,6 @@ jiwa.fm
 jiwa.fr
 jiwag.com
 jiwai.xyz
-jiwaji.edu
 jiwanaresources.com
 jiwanshathi.com
 jiwanta.co.in
@@ -92754,7 +90937,6 @@ jizxs.googlevideo.com
 jizxv.googlevideo.com
 jizxy.googlevideo.com
 jizy.com
-jizz--tits.tumblr.com
 jizz-a-licious.com
 jizz-city.com
 jizz-covered-glasses.go.cc
@@ -92829,12 +91011,9 @@ jizz-flicks.blogspot.tw
 jizz-flicks.blogspot.ug
 jizz-guzzlers.com
 jizz-hub.com
-jizz-lean.tumblr.com
 jizz-lovers.com
-jizz-loving-whore.tumblr.com
 jizz-movies.com
 jizz-movies.net
-jizz-pump.tumblr.com
 jizz-queen.com
 jizz-queens.com
 jizz-vids.com
@@ -92858,10 +91037,7 @@ jizz24.com
 jizz4jill.com
 jizz4u.com
 jizz99.com
-jizzabellesswallowscum.tumblr.com
-jizzabelltx.tumblr.com
 jizzables.com
-jizzaddictedfagmonkeys.tumblr.com
 jizzaddiction.com
 jizzads.com
 jizzaholic.com
@@ -92870,7 +91046,6 @@ jizzalicious.com
 jizzall.com
 jizzallnight.com
 jizzallover.com
-jizzandjet.tumblr.com
 jizzangels.com
 jizzar.com
 jizzarchives.com
@@ -92883,13 +91058,10 @@ jizzbabes.com
 jizzbank.com
 jizzbar.com
 jizzbath.com
-jizzbath.tumblr.com
 jizzbaths.com
 jizzbell.com
 jizzbible.com
 jizzblastedbitches.com
-jizzblastedcumsluts.tumblr.com
-jizzblaster.tumblr.com
 jizzblitz.com
 jizzblizz.com
 jizzblog.com
@@ -92918,7 +91090,6 @@ jizzcatchers.com
 jizzclips.com
 jizzclipz.com
 jizzclub.com
-jizzclub.tumblr.com
 jizzcoat.com
 jizzcoated.com
 jizzcock.com
@@ -92995,23 +91166,17 @@ jizzday.com
 jizzdb.com
 jizzdesign.com
 jizzdevil.com
-jizzdick27.tumblr.com
 jizzdivas.com
 jizzdolls.com
-jizzdolls.tumblr.com
 jizzdrinkers.com
 jizzdrip.com
 jizzdrops.com
 jizzdrunk.com
 jizzdumper.com
 jizzdumpers.com
-jizzdumpwi.tumblr.com
 jizzeater.com
-jizzeater68.tumblr.com
-jizzed-tittiez.tumblr.com
 jizzed.deluxepass.com
 jizzed.eu
-jizzedclothes.tumblr.com
 jizzeden.com
 jizzedfaces.com
 jizzedgirlfriends.com
@@ -93019,13 +91184,10 @@ jizzedgirls.deluxepass.com
 jizzedjugs.com
 jizzedonface.com
 jizzedsmile.com
-jizzedtits.tumblr.com
 jizzejuice.com
 jizzem.com
-jizzer72.tumblr.com
 jizzercise.com
 jizzert.com
-jizzeverywhere.tumblr.com
 jizzexchange.com
 jizzexplosion.com
 jizzface.net
@@ -93050,12 +91212,10 @@ jizzgalleries.com
 jizzgals.net
 jizzgames.com
 jizzgfs.com
-jizzgif.tumblr.com
 jizzgirl.com
 jizzhardcore.com
 jizzhentai.com
 jizzhere.com
-jizzhungrycumslut.tumblr.com
 jizzhunters.com
 jizzhut.com
 jizzhut.mobi
@@ -93067,7 +91227,6 @@ jizzingteen.com
 jizzinjector.com
 jizzinmyass.com
 jizzinmyface.com
-jizzinmyundies.tumblr.com
 jizzit.com
 jizzjerk.co.uk
 jizzjerk.com
@@ -93075,18 +91234,15 @@ jizzjizz.com
 jizzjobs.xxx
 jizzjoint.com
 jizzjournal.com
-jizzjourney.tumblr.com
 jizzjugglers.com
 jizzjungle.com
 jizzjunkie.com
 jizzjunkie.net
-jizzjunkie.tumblr.com
 jizzjunkies.net
 jizzjunky.com
 jizzking.com
 jizzladies.com
 jizzle.com
-jizzlecummings.tumblr.com
 jizzled.com
 jizzledhoes.com
 jizzlejuice.com
@@ -93098,7 +91254,6 @@ jizzlife.com
 jizzlinks.com
 jizzlinks.net
 jizzlips.com
-jizzlvr.tumblr.com
 jizzm.com
 jizzmagnet.com
 jizzmake.com
@@ -93106,13 +91261,11 @@ jizzmaker.com
 jizzmall.com
 jizzman.com
 jizzmania.com
-jizzmania.tumblr.com
 jizzmans-facial-cum-shots.com
 jizzmaster.com
 jizzmaturesex.com
 jizzmens.com
 jizzmoney.com
-jizzmonkey.tumblr.com
 jizzmore.com
 jizzmouth.com
 jizzmouthfuls.com
@@ -93122,7 +91275,6 @@ jizzmovies.com
 jizzmovies.org
 jizznasium.com
 jizznasty.com
-jizznation.tumblr.com
 jizznetwork.com
 jizznews.com
 jizznuts.com
@@ -93130,7 +91282,6 @@ jizzo.com
 jizzok.com
 jizzom.com
 jizzonbabes.com
-jizzonclothes.tumblr.com
 jizzonface.com
 jizzongay.com
 jizzonglasses.co.uk
@@ -93293,7 +91444,6 @@ jizzonu.com
 jizzorama.com
 jizzorgy.com
 jizzoscar.com
-jizzovision.tumblr.com
 jizzparade.com
 jizzparties.com
 jizzparty.com
@@ -93301,12 +91451,10 @@ jizzpatrol.com
 jizzpeg.com
 jizzpics.com
 jizzpics.info
-jizzpics.tumblr.com
 jizzpictures.com
 jizzpig.com
 jizzpigs.com
 jizzpix.com
-jizzpix.tumblr.com
 jizzpizza.com
 jizzporn.co.uk
 jizzporn.com
@@ -93322,7 +91470,6 @@ jizzrama.com
 jizzrealm.com
 jizzriver.com
 jizzrocket.com
-jizzrocketman.tumblr.com
 jizzroulette.com
 jizzrx.com
 jizzsaw.com
@@ -93342,26 +91489,19 @@ jizzspot.com
 jizzstation.com
 jizzster.com
 jizzswappers.com
-jizztaco.tumblr.com
 jizztastic.com
 jizzteen.com
 jizzteenpussy.com
 jizzteentube.com
 jizzthat.com
-jizzthetits.tumblr.com
 jizzthis.com
-jizztinelymme.tumblr.com
 jizztour.com
 jizztrading.com
 jizztrainer.com
-jizztronic.tumblr.com
 jizztubeaz.com
-jizztubeaz.tumblr.com
 jizztubeporn.com
 jizztubevids.com
-jizzus-lizard-journal.tumblr.com
 jizzut.com
-jizzvideofinder.tumblr.com
 jizzwar.com
 jizzwebcams.com
 jizzwhiz.com
@@ -93377,19 +91517,16 @@ jizzxxx.com
 jizzy.kenal-cn.com
 jizzy.net
 jizzy.ziraat-helpdesk.com
-jizzyboygarage.tumblr.com
 jizzyclipz.com
 jizzyfacial.com
 jizzygfs.com
 jizzygirls.com
-jizzyhot.tumblr.com
 jizzyitsolutions.com
 jizzyjayde.com
 jizzyjizz.com
 jizzyporn.com
 jizzytissue.co.uk
 jizzyuz.com
-jizzyz.tumblr.com
 jizzz.com
 jizzz.net
 jizzzz.com
@@ -93402,7 +91539,6 @@ jj-fz.com
 jj-group.ru
 jj-hawaii.com
 jj-i.com
-jj-jakeporngay.tumblr.com
 jj-jj.com
 jj-keller.com
 jj-kent.com
@@ -93490,7 +91626,6 @@ jj.ady3.info
 jj.am
 jj.aresgame.info
 jj.bonniewarrenmusic.com
-jj.cqjjny.gov.cn
 jj.cuwdyy.wristpieces.ru
 jj.doge-faucet.tk
 jj.duola123.com
@@ -93518,7 +91653,6 @@ jj24a-mtp2dt9-ynv9.work
 jj288.com
 jj33.tk
 jj35up48wn45jl.biz
-jj38dls.tumblr.com
 jj38dq76lv59tl.biz
 jj3m.net
 jj4.net
@@ -93527,7 +91661,6 @@ jj48hms.com
 jj4dxka0281419v7jzy10hmmbp.net
 jj5g.com
 jj5obk3bn2wbqn2.org
-jj69elp.tumblr.com
 jj6rt.voluumtrk.com
 jj786.com
 jj7xrg.focot.focus-outdoors.com
@@ -93559,7 +91692,6 @@ jjacb.googlevideo.com
 jjack.com
 jjackc.com
 jjackc.net
-jjackmehofff.tumblr.com
 jjackq.tistory.com
 jjacobsen.com
 jjacr.googlevideo.com
@@ -93660,7 +91792,6 @@ jjayi.googlevideo.com
 jjays.com
 jjayt.googlevideo.com
 jjayw.googlevideo.com
-jjayy2.tumblr.com
 jjayz.googlevideo.com
 jjb-events.nl
 jjb.yuku.com
@@ -93677,7 +91808,6 @@ jjb88.com
 jjbabskoe.ru
 jjbair.com
 jjballance.com
-jjbang8.tumblr.com
 jjbao.net
 jjbba.co.uk
 jjbbb.googlevideo.com
@@ -93687,7 +91817,6 @@ jjbbgjcf.com-1xl.net
 jjbbj.googlevideo.com
 jjbbjrjt.wang
 jjbbm.googlevideo.com
-jjbbwlover.tumblr.com
 jjbbx.googlevideo.com
 jjbcb.googlevideo.com
 jjbcd.googlevideo.com
@@ -93723,8 +91852,6 @@ jjbhq.googlevideo.com
 jjbht.googlevideo.com
 jjbhw.googlevideo.com
 jjbhz.googlevideo.com
-jjbigfucked.tumblr.com
-jjbjpov.tumblr.com
 jjbkb.googlevideo.com
 jjbkd.googlevideo.com
 jjbkm.googlevideo.com
@@ -93753,7 +91880,6 @@ jjbodyworks.com
 jjbook.net
 jjbookkeeping.com
 jjboss.com
-jjbottom.tumblr.com
 jjbpf.googlevideo.com
 jjbpi.googlevideo.com
 jjbpl.googlevideo.com
@@ -94026,7 +92152,6 @@ jjdog.com
 jjdog.googlevideo.com
 jjdoj.googlevideo.com
 jjdom.googlevideo.com
-jjdom4pupboiz.tumblr.com
 jjdop.googlevideo.com
 jjdor.googlevideo.com
 jjdou.googlevideo.com
@@ -94045,7 +92170,6 @@ jjdrwkistgfh.com
 jjdrywall.com
 jjdslr.com
 jjdsm.com
-jjdsmiabbc.tumblr.com
 jjdss.com
 jjdstorage.com
 jjdtc.googlevideo.com
@@ -94073,7 +92197,6 @@ jjdzp.googlevideo.com
 jjdzs.googlevideo.com
 jjdzv.googlevideo.com
 jjdzy.googlevideo.com
-jje1.tumblr.com
 jje828.tem.ejtm.com
 jjeans.com
 jjebxnaqvq.ws
@@ -94090,7 +92213,6 @@ jjee.uygbdfg.com
 jjeecdfwxdufdu.co.uk
 jjeedy.esp.espanolnerium.com
 jjeeman.com
-jjeemmmaaa.tumblr.com
 jjeevbcllev.bid
 jjefb.googlevideo.com
 jjefcqheowmw.com
@@ -94238,7 +92360,6 @@ jjflower.com
 jjflp.googlevideo.com
 jjflu.googlevideo.com
 jjflx.googlevideo.com
-jjfmatsu.tumblr.com
 jjfnshu.com
 jjfoc.googlevideo.com
 jjfoe.googlevideo.com
@@ -94479,7 +92600,6 @@ jjhorton.com
 jjhoscvbuk.pricemarketi.su
 jjhot.googlevideo.com
 jjhotdogs.com
-jjhotstrip.tumblr.com
 jjhoz.googlevideo.com
 jjhpb.googlevideo.com
 jjhpd.googlevideo.com
@@ -94561,7 +92681,6 @@ jjimd.googlevideo.com
 jjimf.googlevideo.com
 jjimi.googlevideo.com
 jjiml.googlevideo.com
-jjimmy789.tumblr.com
 jjimo.googlevideo.com
 jjimov.com.br
 jjimw.googlevideo.com
@@ -94572,7 +92691,6 @@ jjinspirationstudio.com
 jjinstallations.com
 jjinterior.com
 jjinternacional.com
-jjinterracialerotica.tumblr.com
 jjinviczbountiful.review
 jjiocialiskjnf.fora.pl
 jjioowp.com
@@ -94589,7 +92707,6 @@ jjirasi.com
 jjird.com
 jjirpk.lrnsawmm.ru
 jjisc.googlevideo.com
-jjiscooooollll.tumblr.com
 jjise.googlevideo.com
 jjish.googlevideo.com
 jjisp.com
@@ -94704,7 +92821,6 @@ jjjjaa.com
 jjjjajjiiiooo.eu
 jjjjd.com
 jjjjh.com
-jjjjizz.tumblr.com
 jjjjjjjjnnnnhhhhhhhh.nl.ai
 jjjjjs.com
 jjjjjuc.pe.hu
@@ -94741,7 +92857,6 @@ jjjnu.googlevideo.com
 jjjnx.googlevideo.com
 jjjohnson.alvertajobina.com
 jjjoinery.com
-jjjonny.tumblr.com
 jjjooyeohgghgtwn.pw
 jjjp.asia
 jjjpe.googlevideo.com
@@ -94762,7 +92877,6 @@ jjjqh.googlevideo.com
 jjjqk.googlevideo.com
 jjjqn.googlevideo.com
 jjjrz.com
-jjjs1138.tumblr.com
 jjjsc.com
 jjjsc.googlevideo.com
 jjjseasonings.com
@@ -94787,7 +92901,6 @@ jjjttuu.godaddysites.com
 jjjtv.com
 jjjty.com
 jjjuber.es
-jjjulianabdsm.tumblr.com
 jjjvb.googlevideo.com
 jjjvd.googlevideo.com
 jjjvg.googlevideo.com
@@ -95836,7 +93949,6 @@ jjmarry.com
 jjmas.com
 jjmatthewsimageworks.com
 jjmaxwell.com
-jjmb30.tumblr.com
 jjmbvtqbmhn.cn
 jjmcc.googlevideo.com
 jjmcculloch.livvierobinetta.com
@@ -95845,7 +93957,6 @@ jjmcgeester.com
 jjmch.googlevideo.com
 jjmchate.com
 jjmck.googlevideo.com
-jjmclure.tumblr.com
 jjmcv.googlevideo.com
 jjmcy.googlevideo.com
 jjmd.com
@@ -96041,7 +94152,6 @@ jjnrp.googlevideo.com
 jjnrs.googlevideo.com
 jjnrv.googlevideo.com
 jjnry.googlevideo.com
-jjnsinn40.tumblr.com
 jjntd.googlevideo.com
 jjntf.googlevideo.com
 jjntt.googlevideo.com
@@ -96054,7 +94164,6 @@ jjnuq.googlevideo.com
 jjnut.googlevideo.com
 jjnuw.googlevideo.com
 jjnuz.googlevideo.com
-jjnuzz.tumblr.com
 jjnwb.googlevideo.com
 jjnwe.googlevideo.com
 jjnwj.googlevideo.com
@@ -96097,14 +94206,12 @@ jjogv.googlevideo.com
 jjogy.googlevideo.com
 jjoheld.us
 jjohnrich.chereymeggie.com
-jjohnson29852.tumblr.com
 jjojl.googlevideo.com
 jjojo.googlevideo.com
 jjojq.googlevideo.com
 jjojt.googlevideo.com
 jjojw.googlevideo.com
 jjokekbfoxwip.com
-jjoker85.tumblr.com
 jjol.ru
 jjolq.googlevideo.com
 jjoltbuectw.com
@@ -96115,7 +94222,6 @@ jjomm.googlevideo.com
 jjomp.googlevideo.com
 jjomr.googlevideo.com
 jjomu.googlevideo.com
-jjondck93.tumblr.com
 jjonduk.com
 jjones.com-mr27.net
 jjonesjournal.com
@@ -96213,8 +94319,6 @@ jjpjt.googlevideo.com
 jjpjw.googlevideo.com
 jjpjz.googlevideo.com
 jjplan.com
-jjplush.tumblr.com
-jjplxy.tumblr.com
 jjpmb.googlevideo.com
 jjpmc.com
 jjpmj.googlevideo.com
@@ -96463,13 +94567,11 @@ jjryu.googlevideo.com
 jjryx.googlevideo.com
 jjrzlqho.com
 jjs.dk
-jjs8180.tumblr.com
 jjsadvocates.com
 jjsaharahotel.com
 jjsajvu.com
 jjsalon.com
 jjsanointedhands.com
-jjsatinanty.tumblr.com
 jjsaunders.com
 jjsautorepair.com
 jjsbabes.com
@@ -96509,10 +94611,6 @@ jjsef.googlevideo.com
 jjsei.googlevideo.com
 jjsenterprises.com
 jjsew.googlevideo.com
-jjsexcapades.tumblr.com
-jjsexylips.tumblr.com
-jjsexysweater.tumblr.com
-jjsexywomen.tumblr.com
 jjsez.googlevideo.com
 jjsfb.googlevideo.com
 jjsfd.googlevideo.com
@@ -96538,7 +94636,6 @@ jjshutters.com
 jjshx.googlevideo.com
 jjsic.googlevideo.com
 jjsih.googlevideo.com
-jjsinterlude.tumblr.com
 jjsiv.googlevideo.com
 jjsiy.googlevideo.com
 jjsjustmyopinion.com
@@ -96686,7 +94783,6 @@ jjthornton.com
 jjthq.googlevideo.com
 jjtic.googlevideo.com
 jjtie.googlevideo.com
-jjtightshirtboobs.tumblr.com
 jjtih.googlevideo.com
 jjtik.googlevideo.com
 jjtime.com
@@ -96857,7 +94953,6 @@ jjusapcriskalertd.club
 jjusdwp8mx.com
 jjustdoit.ru
 jjusticephoto.com
-jjustjjack.tumblr.com
 jjut.com
 jjutb.googlevideo.com
 jjutd.googlevideo.com
@@ -96940,13 +95035,11 @@ jjvlc.googlevideo.com
 jjvle.googlevideo.com
 jjvlh.googlevideo.com
 jjvlk.googlevideo.com
-jjvlll.tumblr.com
 jjvls.googlevideo.com
 jjvlv.googlevideo.com
 jjvly.googlevideo.com
 jjvmgabb.ws
 jjvoc.googlevideo.com
-jjvonmcswagger.tumblr.com
 jjvoq.googlevideo.com
 jjvosbaz.com
 jjvot.googlevideo.com
@@ -96996,7 +95089,6 @@ jjwattjerseynike.com
 jjwattjerseys.com
 jjwattjerseys.us
 jjwatts.com
-jjwattsup.tumblr.com
 jjwau.googlevideo.com
 jjwax.googlevideo.com
 jjwbook.com
@@ -97179,7 +95271,6 @@ jjxxp.googlevideo.com
 jjxxrz.com
 jjxxu.googlevideo.com
 jjxxx.googlevideo.com
-jjxxx91.tumblr.com
 jjxyy.com
 jjy1w0clt8s7gzeyvdjze9pwtpttv1508674502.nuid.imrwo
 jjy1w0clt8s7gzeyvdjze9pwtpttv1508674502.nuid.imrworldwide.com
@@ -97338,12 +95429,10 @@ jk-call.xyz
 jk-capital.com
 jk-dioder.dk
 jk-fc.hp.infoseek.co.jp
-jk-fetish.tumblr.com
 jk-global.com
 jk-i.com
 jk-industries.com
 jk-internet.com
-jk-japanese.tumblr.com
 jk-jy.com
 jk-koekken.dk
 jk-m.sakura.ne.jp
@@ -97432,7 +95521,6 @@ jka-saitama.jp
 jka-switzerland.ch
 jka.dk
 jka.or.jp
-jka.uchicago.edu
 jkaa.com.au
 jkaaustralia.com
 jkabrooklyn.com
@@ -97476,7 +95564,6 @@ jkahq.googlevideo.com
 jkaht.googlevideo.com
 jkahw.googlevideo.com
 jkairsolutions.com
-jkajira.tumblr.com
 jkakarate.co.uk
 jkakd.googlevideo.com
 jkakg.googlevideo.com
@@ -97513,7 +95600,6 @@ jkaram.com
 jkarate.ro
 jkaren.com
 jkarlsson.netfirms.com
-jkarlsson1.tumblr.com
 jkarma.com
 jkart.com
 jkas-account.info
@@ -97534,7 +95620,6 @@ jkasolutions.com
 jkasu.googlevideo.com
 jkasv.com
 jkasx.googlevideo.com
-jkat2013.tumblr.com
 jkatalent.com
 jkataweb.it
 jkatcoaching.com
@@ -97571,7 +95656,6 @@ jkb-biblequizzes.com
 jkb.co
 jkb.co.in
 jkb.pyro.net
-jkb1969.tumblr.com
 jkba.com
 jkbabies.com
 jkbabies.net
@@ -97586,7 +95670,6 @@ jkbce.googlevideo.com
 jkbch.googlevideo.com
 jkbciccrm.com
 jkbck.googlevideo.com
-jkbcn.tumblr.com
 jkbcs.googlevideo.com
 jkbcv.googlevideo.com
 jkbcy.googlevideo.com
@@ -97739,7 +95822,6 @@ jkcorp.com
 jkcorporate.com
 jkcorporation.com
 jkcou.googlevideo.com
-jkcouple.tumblr.com
 jkcqr.googlevideo.com
 jkcqu.googlevideo.com
 jkcqx.googlevideo.com
@@ -97969,7 +96051,6 @@ jkegp.googlevideo.com
 jkegs.googlevideo.com
 jkegv.googlevideo.com
 jkegy.googlevideo.com
-jkeithg.tumblr.com
 jkeithjewelry.com
 jkeithparnell.com
 jkej.com
@@ -98004,7 +96085,6 @@ jkemx.googlevideo.com
 jkendel.com
 jkengg.com
 jkengineer.com
-jkent4.tumblr.com
 jkenviro.com
 jkenyon.com
 jkeob.googlevideo.com
@@ -98032,7 +96112,6 @@ jkert.com
 jkert.googlevideo.com
 jkerveillant.free.fr
 jkerw.googlevideo.com
-jkes1.tumblr.com
 jkestates.com
 jkeua.googlevideo.com
 jkeud.googlevideo.com
@@ -98139,7 +96218,6 @@ jkfso.googlevideo.com
 jkfsr.googlevideo.com
 jkfsu.googlevideo.com
 jkfsx.googlevideo.com
-jkfuntimes.tumblr.com
 jkfup.googlevideo.com
 jkfurnituregalleries.com
 jkfurnituresucks.com
@@ -98278,7 +96356,6 @@ jkhew.googlevideo.com
 jkhez.googlevideo.com
 jkhfir.com
 jkhfsdkjfd.com
-jkhgbmhfb.s3-website-us-west-2.amazonaws.com
 jkhgghsfdsff663.net
 jkhgsh.faith
 jkhha.googlevideo.com
@@ -98290,7 +96367,6 @@ jkhho.googlevideo.com
 jkhhr.googlevideo.com
 jkhhu.googlevideo.com
 jkhhx.googlevideo.com
-jkhighjinks.tumblr.com
 jkhimefurnishings.com
 jkhjwkjw.com
 jkhkb.googlevideo.com
@@ -98381,7 +96457,6 @@ jkicn.googlevideo.com
 jkicq.googlevideo.com
 jkict.googlevideo.com
 jkicw.googlevideo.com
-jkidd07.tumblr.com
 jkifd.googlevideo.com
 jkifg.googlevideo.com
 jkifj.googlevideo.com
@@ -98423,7 +96498,6 @@ jkindustries.com
 jkindustries.org.in
 jkinformatique.com
 jking.googlevideo.com
-jkingham83.tumblr.com
 jkingimages.com
 jkingston.com
 jkinj.googlevideo.com
@@ -98467,7 +96541,6 @@ jkitw.googlevideo.com
 jkitz.googlevideo.com
 jkiu7654ewsdfghuyred.is-into-cartoons.com
 jkiutypoetyin.s3-website-us-west-2.amazonaws.c
-jkiutypoetyin.s3-website-us-west-2.amazonaws.com
 jkiva.googlevideo.com
 jkivb.googlevideo.com
 jkivd.googlevideo.com
@@ -98526,7 +96599,6 @@ jkjhv.googlevideo.com
 jkjiq.googlevideo.com
 jkjiw.googlevideo.com
 jkjjkj.top
-jkjk217.tumblr.com
 jkjkf.googlevideo.com
 jkjkff.com
 jkjki.googlevideo.com
@@ -98742,7 +96814,6 @@ jklia.googlevideo.com
 jklialias.com
 jklid.googlevideo.com
 jklife.com
-jklifexxx.tumblr.com
 jklig.googlevideo.com
 jklij.googlevideo.com
 jklim.googlevideo.com
@@ -98971,7 +97042,6 @@ jknguyen.com
 jkngx.googlevideo.com
 jknight.msuarez.jackphoto.surjitsidhu.jessanissa.c
 jknight.msuarez.jackphoto.surjitsidhu.jessanissa.com
-jknight56.tumblr.com
 jknjb.googlevideo.com
 jknje.googlevideo.com
 jknjemunpox.com
@@ -99444,7 +97514,6 @@ jkrhg.googlevideo.com
 jkrhj.googlevideo.com
 jkrhm.googlevideo.com
 jkrho.googlevideo.com
-jkrhp.tumblr.com
 jkrhr.googlevideo.com
 jkrhu.googlevideo.com
 jkrieger.com
@@ -99539,7 +97608,6 @@ jkseqo.cn
 jkseries.com
 jkserralheria.com
 jksex.com
-jksexting.tumblr.com
 jksfa.googlevideo.com
 jksfb.googlevideo.com
 jksfd.googlevideo.com
@@ -99613,7 +97681,6 @@ jksto.googlevideo.com
 jkstor.com
 jkstorm.com
 jkstq.googlevideo.com
-jkstrapme.tumblr.com
 jkstt.googlevideo.com
 jkstv.com
 jkstw.googlevideo.com
@@ -99644,7 +97711,6 @@ jkszv.googlevideo.com
 jkszy.googlevideo.com
 jkt-churchofchrist.com
 jkt.copotu.ru
-jkt2905.tumblr.com
 jkt48-cyber.org
 jkt48indonesia.com
 jktacts.us
@@ -100317,7 +98383,6 @@ jl1afefaregerwacvju9.biz
 jl1d.com
 jl22222.com
 jl29jd25sm24mc29.com
-jl29things3.tumblr.com
 jl39sf36dq14tc.biz
 jl41.com
 jl4sa.com
@@ -100330,7 +98395,6 @@ jl8422.blueweb.hop.clickbank.net
 jl8452fw92.info
 jl8888.com
 jl92.com
-jl9233.tumblr.com
 jl94.com
 jla.gr.jp
 jlaa.com
@@ -100351,7 +98415,6 @@ jlabusiness.com
 jlabweb.com
 jlaca.com
 jlaccountings.com
-jlachman.tumblr.com
 jlachurch.com
 jlacitychurch.com
 jladd.com
@@ -100376,13 +98439,11 @@ jlalexandermd.com
 jlalh.googlevideo.com
 jlalm.googlevideo.com
 jlalx.googlevideo.com
-jlamar215.tumblr.com
 jlambert.com
 jlamp.com
 jlamprecht.de
 jlanaefreelance.com
 jlancel.free.fr
-jlandmh.tumblr.com
 jlaney.com
 jlangecompany.com
 jlangtao.com
@@ -100536,7 +98597,6 @@ jlbzu.googlevideo.com
 jlbzx.googlevideo.com
 jlc-support.com
 jlc.valeriameaghan.com
-jlc93551.tumblr.com
 jlcab.googlevideo.com
 jlcae.googlevideo.com
 jlcah.googlevideo.com
@@ -100678,7 +98738,6 @@ jlcxo.googlevideo.com
 jlcxr.googlevideo.com
 jld.org
 jld.us
-jld1274.tumblr.com
 jlda.net
 jldahua110.com
 jldb1.fr.st
@@ -100794,7 +98853,6 @@ jledaqw.com
 jledmonds.com
 jledr.googlevideo.com
 jledx.googlevideo.com
-jlee225.tumblr.com
 jleel.googlevideo.com
 jleen.com
 jleer.googlevideo.com
@@ -100804,7 +98862,6 @@ jleex.googlevideo.com
 jlefe.free.fr
 jleg.us
 jlegb.googlevideo.com
-jlegionsx.tumblr.com
 jlegit.com
 jlegk.googlevideo.com
 jlegm.googlevideo.com
@@ -100817,7 +98874,6 @@ jlehman.com
 jlejf.googlevideo.com
 jleji.googlevideo.com
 jlejl.googlevideo.com
-jlejlejle.tumblr.com
 jlejn.googlevideo.com
 jlejq.googlevideo.com
 jlejt.googlevideo.com
@@ -101319,7 +99375,6 @@ jlitl.googlevideo.com
 jlitn.googlevideo.com
 jlitq.googlevideo.com
 jlitt.googlevideo.com
-jlittlefagforbbc.tumblr.com
 jlittlewood.com
 jlitw.googlevideo.com
 jliunwjezey.net
@@ -101494,7 +99549,6 @@ jlkjd.googlevideo.com
 jlkjewelry.com
 jlkjg.googlevideo.com
 jlkjjhjkhjbhgh24525545.s3-website.us-east-2.amazon
-jlkjjhjkhjbhgh24525545.s3-website.us-east-2.amazonaws.com
 jlkjo.googlevideo.com
 jlkjr.googlevideo.com
 jlkju.googlevideo.com
@@ -101641,7 +99695,6 @@ jlm13.fr
 jlm598.com
 jlma.com
 jlma.net
-jlman1.tumblr.com
 jlmarks.com
 jlmartins.com
 jlmaviation.com
@@ -101735,7 +99788,6 @@ jlmsv.googlevideo.com
 jlmsx.googlevideo.com
 jlmtravel.be
 jlmuc.googlevideo.com
-jlmud.sourceforge.net
 jlmuf.googlevideo.com
 jlmui.googlevideo.com
 jlmul.googlevideo.com
@@ -101830,7 +99882,6 @@ jlnst.googlevideo.com
 jlnsw.googlevideo.com
 jlnsy.googlevideo.com
 jlntv.com
-jlnu.edu.cn
 jlnva.googlevideo.com
 jlnvd.googlevideo.com
 jlnvg.googlevideo.com
@@ -101856,12 +99907,10 @@ jlnyh.googlevideo.com
 jlnyk.googlevideo.com
 jlnym.googlevideo.com
 jlnyp.googlevideo.com
-jlnyrican.tumblr.com
 jlo-fans.com
 jlo-nrwhessen.de
 jlo.free.fr
 jlo.xoqvtutg.in
-jlo8872.tumblr.com
 jloa.com
 jloass.blogspot.ae
 jloass.blogspot.al
@@ -101977,11 +100026,9 @@ jlols.org
 jlom.com
 jlomd.googlevideo.com
 jlomx.googlevideo.com
-jlon33.tumblr.com
 jlonb.googlevideo.com
 jlone.googlevideo.com
 jloneday.com
-jlongazncock.tumblr.com
 jlongcompanies.com
 jlonh.googlevideo.com
 jlonk.googlevideo.com
@@ -101992,7 +100039,6 @@ jloopqbx.focaldating.ru
 jlopa.net
 jlopackage.com
 jlope.googlevideo.com
-jlopez573.tumblr.com
 jlophpdqfifteenth.review
 jlopi.com
 jlopirtdsmncx.biz
@@ -102018,7 +100064,6 @@ jlosx.googlevideo.com
 jlota.googlevideo.com
 jlotcashvipsp.com
 jlotclubluxurysp.com
-jlotec.tumblr.com
 jlotlifevipsp.com
 jlotr.googlevideo.com
 jlotu.googlevideo.com
@@ -102028,7 +100073,6 @@ jlouise.com
 jlounge.com
 jlovb.googlevideo.com
 jlove.org
-jlovee721.tumblr.com
 jloverheim.scott.nexusgroove.markbenedict.galinara
 jloverheim.scott.nexusgroove.markbenedict.galinaraina.com
 jlovesfreeporn.com
@@ -102297,7 +100341,6 @@ jlrln.googlevideo.com
 jlrlw.googlevideo.com
 jlrly.googlevideo.com
 jlrmarketing.com
-jlrmfemalechastity.tumblr.com
 jlrn.com
 jlroa.googlevideo.com
 jlrockford.org
@@ -102352,7 +100395,6 @@ jlrzx.googlevideo.com
 jlrzy.googlevideo.com
 jls-hotel.com
 jls.pumbec.ru
-jls07magnum.tumblr.com
 jls5.com
 jls7.com
 jls8888.com
@@ -102378,8 +100420,6 @@ jlsecurity.com
 jlselectrical.com
 jlserviceheroes.com
 jlservicesllc.com
-jlsex1991.tumblr.com
-jlsexster.tumblr.com
 jlsfa.googlevideo.com
 jlsfm.googlevideo.com
 jlsfo.googlevideo.com
@@ -102684,7 +100724,6 @@ jlurx.googlevideo.com
 jlusa.googlevideo.com
 jlusd.googlevideo.com
 jlusg.googlevideo.com
-jlushblog.tumblr.com
 jlusr.googlevideo.com
 jlust.com
 jlusu.googlevideo.com
@@ -102701,7 +100740,6 @@ jluux.googlevideo.com
 jluuy.googlevideo.com
 jluvk.cn
 jluvk.stalk.geopager.com
-jluvsdick69.tumblr.com
 jluw.com
 jluwrxpzozprr.biz
 jlux123.no-ip.biz
@@ -102872,7 +100910,6 @@ jlwxo.googlevideo.com
 jlwxr.googlevideo.com
 jlwxu.googlevideo.com
 jlwyje2011.com
-jlx1.tumblr.com
 jlxa.com
 jlxcc.googlevideo.com
 jlxcf.googlevideo.com
@@ -103237,7 +101274,6 @@ jmacintyre.hitbox.com
 jmacinvestments.com
 jmack.kikomendoza.hornetgreenhuntsville.lmceachran
 jmack.kikomendoza.hornetgreenhuntsville.lmceachran.bernardinasheena.com
-jmack9002.tumblr.com
 jmacmillan.com
 jmacmortgage.com
 jmaconsultants.com
@@ -103278,12 +101314,10 @@ jmahoney.net
 jmai6.zik.dj
 jmaia.googlevideo.com
 jmaib.iea.ras.ru
-jmaicanrudeboi.tumblr.com
 jmaid.googlevideo.com
 jmaiesi.aurliegleda.com
 jmaig.googlevideo.com
 jmaij.googlevideo.com
-jmail-apple.com
 jmail.co.jp
 jmail.co.za
 jmail.googlevideo.com
@@ -103321,15 +101355,11 @@ jmam.rebecaharmony.com
 jmambiental.com.br
 jmamma.cjt1.net
 jmamusical.jp
-jman1435.tumblr.com
 jmanager.com
-jmanly1997.tumblr.com
 jmannila.com
-jmannin101.tumblr.com
 jmanning.com
 jmantiques.com
 jmanuel.com
-jmanuelo.tumblr.com
 jmaoc.googlevideo.com
 jmaof.googlevideo.com
 jmaoi.googlevideo.com
@@ -103359,7 +101389,6 @@ jmarkel.com
 jmarket.net
 jmarketer.com
 jmarketing-jo.com
-jmarkjizz-deactivated20140203.tumblr.com
 jmarkmcdowell.com
 jmarl.googlevideo.com
 jmarmusic.com
@@ -103394,8 +101423,6 @@ jmate.com
 jmathpage.com
 jmatosseguros.com.br
 jmats.com
-jmatt93cam.tumblr.com
-jmattata.tumblr.com
 jmatter.com
 jmatthewgroup.net
 jmauctions.com
@@ -103411,7 +101438,6 @@ jmaux.googlevideo.com
 jmaviaries.com
 jmaviation.com
 jmavllc.com
-jmavrick3792.tumblr.com
 jmawi.googlevideo.com
 jmawk.googlevideo.com
 jmawn.googlevideo.com
@@ -103493,7 +101519,6 @@ jmbjm.googlevideo.com
 jmbjp.googlevideo.com
 jmbjs.googlevideo.com
 jmbjv.googlevideo.com
-jmblack.tumblr.com
 jmblanco.com
 jmblond.us
 jmbma.mnegel.ru
@@ -103503,7 +101528,6 @@ jmbmf.googlevideo.com
 jmbmi.googlevideo.com
 jmbmk.googlevideo.com
 jmbmn.googlevideo.com
-jmbmpvt.tumblr.com
 jmbmq.googlevideo.com
 jmbonard.club.fr
 jmbonline.com
@@ -103563,7 +101587,6 @@ jmc-solutions.com
 jmc.be
 jmc.chris.free.fr
 jmc.com
-jmc.gov
 jmc.mud.ru
 jmc.pumbec.ru
 jmc.xoqvtutg.in
@@ -103571,7 +101594,6 @@ jmc2.com
 jmc4a.asdajwe7331salert-browserlocked-call-imm
 jmc4a.asdajwe7331salert-browserlocked-call-immediately.xyz
 jmc4a.browser-alert-lockedcallimmediately.xyz
-jmc985.tumblr.com
 jmcal.cc
 jmcallister.com
 jmcamper.com
@@ -103983,7 +102005,6 @@ jmendicino.com
 jmendurance.com
 jmene.googlevideo.com
 jmenezes.com
-jmenfouu.tumblr.com
 jmengenharia.com
 jmenh.googlevideo.com
 jmenj.googlevideo.com
@@ -104015,7 +102036,6 @@ jmeredith.com
 jmerentals.com
 jmerk.aourabdoul.dackula.cacharifas.annabellemorna
 jmerk.aourabdoul.dackula.cacharifas.annabellemorna.com
-jmerridew.tumblr.com
 jmesa.googlevideo.com
 jmesd.googlevideo.com
 jmesg.googlevideo.com
@@ -104262,7 +102282,6 @@ jmgyl.googlevideo.com
 jmgyo.googlevideo.com
 jmgyr.googlevideo.com
 jmgyu.googlevideo.com
-jmh2422.tumblr.com
 jmhaerial.com
 jmhairdressing.com
 jmhaofang.com
@@ -104447,14 +102466,11 @@ jmikola.com
 jmila.googlevideo.com
 jmild.googlevideo.com
 jmiles.com
-jmilfy713.tumblr.com
 jmilg.googlevideo.com
-jmilld.tumblr.com
 jmiller3d.com
 jmillerflowers.com
 jmillich.com
 jmills.com.au
-jmillsmelbourne.tumblr.com
 jmilo.googlevideo.com
 jmilomedia.com
 jmilr.googlevideo.com
@@ -104500,7 +102516,6 @@ jmirv.googlevideo.com
 jmirw.googlevideo.com
 jmiry.googlevideo.com
 jmit-tech.com
-jmitch39.tumblr.com
 jmith.com
 jmitsolutions.com
 jmitutz.com
@@ -104848,7 +102863,6 @@ jmlpu.googlevideo.com
 jmlpw.googlevideo.com
 jmlr.com.br
 jmlrmg.com
-jmls.edu
 jmlsb.googlevideo.com
 jmlsc.com
 jmlsg.org.uk
@@ -104896,7 +102910,6 @@ jmm015.com
 jmm123.com
 jmm1818.net
 jmm2087.000webhostapp.com
-jmm209.tumblr.com
 jmm567.com
 jmma.com
 jmma.net
@@ -105153,11 +103166,9 @@ jmolu.googlevideo.com
 jmomdeals.com
 jmompc.com
 jmomtube.com
-jmonad.tumblr.com
 jmonb.googlevideo.com
 jmone.googlevideo.com
 jmones.net
-jmonet-soto78.tumblr.com
 jmoney.com
 jmoney.daniel2you.com
 jmoney.net
@@ -105171,7 +103182,6 @@ jmonm.googlevideo.com
 jmonnet-romorantin.com
 jmonp.googlevideo.com
 jmons.googlevideo.com
-jmonstergirls.tumblr.com
 jmontano.com
 jmontejo.janiavania.com
 jmontilla.com
@@ -105184,7 +103194,6 @@ jmoorac.ehealthnewssofi.ru
 jmoorephoto.com
 jmoos.com
 jmop.com
-jmopussy.tumblr.com
 jmoqc.googlevideo.com
 jmoqf.googlevideo.com
 jmoqk.googlevideo.com
@@ -105195,7 +103204,6 @@ jmoqv.googlevideo.com
 jmoqw.googlevideo.com
 jmoqy.googlevideo.com
 jmora.com
-jmoreniko.tumblr.com
 jmoreno.com
 jmorg.com
 jmorganphoto.com
@@ -105481,7 +103489,6 @@ jmqzg.googlevideo.com
 jmqzj.googlevideo.com
 jmqzw.googlevideo.com
 jmqzwtop.com
-jmr823.tumblr.com
 jmracing.com
 jmrae.googlevideo.com
 jmrah.googlevideo.com
@@ -105538,7 +103545,6 @@ jmrgw.googlevideo.com
 jmri.com
 jmrib.googlevideo.com
 jmriba.endoterapiavegetal.com
-jmrichards.tumblr.com
 jmridgway.com
 jmrie.googlevideo.com
 jmrih.googlevideo.com
@@ -105664,7 +103670,6 @@ jmseu.googlevideo.com
 jmsevricegroup.com
 jmsew.googlevideo.com
 jmsex.com
-jmsexy.tumblr.com
 jmsf.com
 jmsgb.googlevideo.com
 jmsgh.googlevideo.com
@@ -105879,14 +103884,10 @@ jmtxi.googlevideo.com
 jmtxk.googlevideo.com
 jmtxn.googlevideo.com
 jmtxq.googlevideo.com
-jmtxva.tumblr.com
 jmtyf.googlevideo.com
 jmtyip.com
 jmu.co1.qualtrics.com
-jmu.edu
-jmu.edu.cn
 jmu.qualtrics.com
-jmu4xxx.tumblr.com
 jmuanduva.com
 jmubg.googlevideo.com
 jmubj.googlevideo.com
@@ -106003,7 +104004,6 @@ jmvcs.googlevideo.com
 jmvcutdjuqfpjliab.com
 jmvcv.googlevideo.com
 jmvcx.googlevideo.com
-jmvdv.tumblr.com
 jmvec.googlevideo.com
 jmvef.googlevideo.com
 jmvei.ourit.ru
@@ -106916,7 +104916,6 @@ jneklnybzef.cn
 jneko.googlevideo.com
 jnekrq.com
 jnekw.googlevideo.com
-jnelem.tumblr.com
 jnell.emelitacordelie.com
 jnelogistik.com
 jnelsonarts.com
@@ -106932,7 +104931,6 @@ jnenh.googlevideo.com
 jnenj.googlevideo.com
 jnenu.googlevideo.com
 jnenx.googlevideo.com
-jnep.sumdu.edu.ua
 jnepower.net
 jneqc.googlevideo.com
 jneqf.googlevideo.com
@@ -106970,7 +104968,6 @@ jneuweltkasino.com
 jnevb.googlevideo.com
 jnevj.googlevideo.com
 jnevm.googlevideo.com
-jnevoyeur.tumblr.com
 jnevp.googlevideo.com
 jnevs.googlevideo.com
 jnevu.googlevideo.com
@@ -107132,7 +105129,6 @@ jngie.googlevideo.com
 jngih.googlevideo.com
 jngij.googlevideo.com
 jngim.googlevideo.com
-jngirls-chav.tumblr.com
 jngix.googlevideo.com
 jngjb.googlevideo.com
 jngje.googlevideo.com
@@ -107658,7 +105654,6 @@ jnkyr.googlevideo.com
 jnkyt.googlevideo.com
 jnkyw.googlevideo.com
 jnkyz.googlevideo.com
-jnl1105.tumblr.com
 jnlagua.com
 jnlb.com
 jnlbb.googlevideo.com
@@ -107973,7 +105968,6 @@ jnofvopnireapvhdjzguojdmov.com
 jnogc.googlevideo.com
 jnogf.googlevideo.com
 jnogh.googlevideo.com
-jnogivafuck.tumblr.com
 jnogjnacse.ru
 jnoguera.com
 jnogv.googlevideo.com
@@ -108233,7 +106227,6 @@ jnqxt.googlevideo.com
 jnqxw.googlevideo.com
 jnqxz.googlevideo.com
 jnqyvnnubjxbd.co.uk
-jnr4747.tumblr.com
 jnr80.formovies.com
 jnrbc.googlevideo.com
 jnrbf.googlevideo.com
@@ -108344,7 +106337,6 @@ jns.co.th
 jns.com-rs22.net
 jns.se
 jns2.odn.ne.jp
-jns6adventures.tumblr.com
 jnsaier.com
 jnsaixin.en.alibaba.com
 jnsassociate.com
@@ -108471,7 +106463,6 @@ jntes.googlevideo.com
 jnteu.googlevideo.com
 jntex.googlevideo.com
 jntgsn0h9v.centde.com
-jntguy.tumblr.com
 jnthc.googlevideo.com
 jnthf.googlevideo.com
 jnthh.googlevideo.com
@@ -108528,7 +106519,6 @@ jntpi.googlevideo.com
 jntpk.googlevideo.com
 jntpn.com
 jntpn.googlevideo.com
-jntporn.tumblr.com
 jntpq.googlevideo.com
 jntpro9087.us
 jntproduct.com
@@ -108580,7 +106570,6 @@ jntyt.googlevideo.com
 jntyv.googlevideo.com
 jntyy.googlevideo.com
 jnu.ac.in
-jnu.edu.cn
 jnu.us
 jnu1usxpndz0.pro
 jnu9uwxlprf.online
@@ -109208,7 +107197,6 @@ jnzyyl.com
 jo-2012.fr
 jo-2024paris.com
 jo-albis.ch
-jo-alifeunexamined.tumblr.com
 jo-baby.com
 jo-baden.ch
 jo-blanc-fils.com
@@ -109217,7 +107205,6 @@ jo-boy.com
 jo-cominiaturehorses.com
 jo-danielshair.com
 jo-dis.com
-jo-dragon.tumblr.com
 jo-escort-erfurt.com
 jo-escort-hof.com
 jo-espana.de
@@ -109266,7 +107253,6 @@ jo4ykw2t.myutilitydomain.com
 jo4ykw2t.myutilitydomain.com
 jo4ykw2t.myutilitydomain.com
 jo4ykw2t.myutilitydomain.com
-jo5hieb.tumblr.com
 jo5kui1.free.fr
 jo6.de
 jo69.com
@@ -109300,7 +107286,6 @@ joaca.fanni.biz
 joacaneducationlounge.com
 joacatare.com
 joacate.com
-joachim-666.tumblr.com
 joachim-bosch.com
 joachim-engler.homepage.t-online.de
 joachim-loup.homepage.t-online.de
@@ -109320,7 +107305,6 @@ joachims.com
 joachimschroeder.com
 joacimcans.com
 joacjfsvqh.cn
-joaco5000.tumblr.com
 joacream.com
 joadayguuni.chez.com
 joadvd.com
@@ -109389,7 +107373,6 @@ joalcom.sites.uol.com.br
 joalcorp.com
 joald.us
 joale.jzdoall.com
-joalealejo.tumblr.com
 joalex.com
 joalheriadeautor.com.br
 joali.net
@@ -109460,7 +107443,6 @@ joanadarcpresentes.com.br
 joanadias.com
 joanaescoval.com
 joanalima.com
-joanalittleslutworld.tumblr.com
 joanallen.co.uk
 joanalopes.com
 joanandbob.com
@@ -109513,7 +107495,6 @@ joanda.com
 joandabunny.com
 joandben.com
 joandbob.home.mindspring.com
-joandca.tumblr.com
 joandco.com
 joanddanny.com
 joanddavid.com
@@ -109561,11 +107542,9 @@ joanhinshaw.com
 joanhoffmann.com
 joanholmes.xn--90afum2a2fcb.xn--p1ai
 joaniart.bizland.com
-joaniarti.tumblr.com
 joanides.com
 joanie385.typepad.com
 joanieallum.com
-joanieblair.tumblr.com
 joaniechristianphotography.com
 joanieconnors.com
 joanieheddi.com
@@ -109592,7 +107571,6 @@ joanlaporta.org
 joanlaw.com
 joanlawrence.com
 joanlind.com
-joanlovescum.tumblr.com
 joanmaria.com
 joanmarjy.com
 joanmccutcheon.lynnetcarley.com
@@ -109628,7 +107606,6 @@ joann-sturtz.us
 joann-traverso.us
 joann.com
 joann.googlevideo.com
-joanna-angel-hdvideos.tumblr.com
 joanna-ashe.us
 joanna-buck.us
 joanna-cohen.us
@@ -109728,7 +107705,6 @@ joanna.nue.ferme.free.fr
 joannaadamczyk.com
 joannaandchristian.com
 joannaangel.com
-joannaangel.tumblr.com
 joannaangelbucks.com
 joannaaron.com
 joannabaker.com
@@ -109767,7 +107743,6 @@ joannajet.com
 joannajet.info
 joannajet.nl
 joannajet.pics
-joannajetfan.tumblr.com
 joannajimenez.com
 joannajohnson.com
 joannajones.erjach.gricevuto.minear.kirstinpetrina
@@ -109885,7 +107860,6 @@ joannaslinky.blogspot.tw
 joannaslinky.blogspot.ug
 joannasmail.com
 joannastewart.com
-joannastgcaptions.tumblr.com
 joannastone.com
 joannasullivan.com
 joannaswgainne.com
@@ -109923,7 +107897,6 @@ joanne-gomes.us
 joanne-haught.in
 joanne-huling.us
 joanne-hungerford.us
-joanne-kemp5815.tumblr.com
 joanne-kildow.info
 joanne-lafontaine.com
 joanne-lafontaine.de
@@ -109981,7 +107954,6 @@ joannefabics.com
 joannefalinski.com
 joannefletcher.com
 joannefournier.com
-joannefrazer.tumblr.com
 joannegarvey.com
 joannegenzone.com
 joannegoldstein.com
@@ -110074,7 +108046,6 @@ joannekleynhans.com
 joanneknowles.com
 joannekwan.com
 joannelarson.com
-joannelatex.tumblr.com
 joannelatham.com
 joanneleung.com
 joannemacleod.com
@@ -110104,8 +108075,6 @@ joannespokes.annebelva.com
 joannestheressa.com
 joannestle.com
 joannestudio.com
-joannesubslut.tumblr.com
-joannesven.tumblr.com
 joannet.com
 joannetest.com
 joannethiemehuffman.typepad.com
@@ -110134,7 +108103,6 @@ joannharris.com
 joannheilman.com
 joannhill.com
 joanni.com
-joannie-mcdougle.tumblr.com
 joannjoann.com
 joannjohnston.com
 joannking.com
@@ -110203,7 +108171,6 @@ joanshannon.co.uk
 joanshelley.com
 joanshop.com
 joansibug.com
-joansissy92.tumblr.com
 joanslinenbasket.com
 joansmail.com
 joansmall.com
@@ -110327,7 +108294,6 @@ joaopinho.com
 joaoreis.com
 joaorenno.com
 joaorey.com
-joaorodriguesthings.tumblr.com
 joaoroque.com
 joaosantana.com
 joaoserra.com
@@ -110340,7 +108306,6 @@ joaotorresbaptista.com
 joaovargas.com
 joaoweb.com
 joaowerner.com
-joaozinho-ohp.tumblr.com
 joapi.googlevideo.com
 joapl.googlevideo.com
 joapo.googlevideo.com
@@ -110359,7 +108324,6 @@ joaquimferreira.com
 joaquimguerra.pt
 joaquimneto.com
 joaquimpessoa.com
-joaquimquimquim.tumblr.com
 joaquimvalente.com
 joaquinberao.com
 joaquinbueno.com
@@ -110402,7 +108366,6 @@ joasu.googlevideo.com
 joatcleaning.com
 joatec.com
 joatman.com
-joatmoa69.tumblr.com
 joatradeshi.com
 joaubemm.beget.tech
 joauto.com
@@ -110476,7 +108439,6 @@ job-health.com
 job-help.info
 job-homes.net
 job-hunt.org
-job-in-apple.com
 job-in-clarke.info
 job-info2015.ru
 job-interview-advice.net
@@ -110613,7 +108575,6 @@ job10k.com
 job117.com
 job1212.co.kr
 job12journal.net
-job12s.tumblr.com
 job13journal.net
 job13journal.ru
 job188.com
@@ -110899,10 +108860,8 @@ jobberdb.com
 jobberdepot.com
 jobberfwcgfkc.website
 jobberg.com
-jobberkink.tumblr.com
 jobbern.com
 jobbern.net
-jobbers-free.tumblr.com
 jobbersdirect.com
 jobberserver.info
 jobbersindia.com
@@ -111395,7 +109354,6 @@ jobccino.jp
 jobce.googlevideo.com
 jobcel.com
 jobcenter.at
-jobcenter.gov
 jobcenter24.com
 jobcenterplus.com
 jobcenterusa.com
@@ -111405,7 +109363,6 @@ jobcentral.online
 jobcentredirect.com
 jobcentredirect.net
 jobcentrelondon.com
-jobcentreplus.gov.uk
 jobcentreplussearch.com
 jobcentreplusuk.com
 jobcentresearch.com
@@ -111491,7 +109448,6 @@ jobcontrol.com
 jobcoop.com
 jobcorners.com
 jobcorporate.com
-jobcorps.gov
 jobcounts.com
 jobcover.com
 jobcoverletters.com
@@ -111830,7 +109786,6 @@ jobhandyman.com
 jobharbour.com
 jobharrassment.com
 jobharvest.com
-jobhasnothingtolose.tumblr.com
 jobhater.tk
 jobhawk.com
 jobhayaring.com
@@ -112917,7 +110872,6 @@ jobs-alert.com
 jobs-alerts.com
 jobs-and-career.ru
 jobs-arab.com
-jobs-at-google.com
 jobs-at.com
 jobs-because.tk
 jobs-biz.com
@@ -113154,7 +111108,6 @@ jobs.uk.hudson.com
 jobs.unibe.ch
 jobs.us.dlink.com
 jobs.usnews.com
-jobs.wa.gov.au
 jobs.wateronline.com
 jobs.wauchopegazette.com.au
 jobs.wbal.com
@@ -113204,7 +111157,6 @@ jobs4servicemembers.com
 jobs4servicemembers.net
 jobs4smilingfaces.com
 jobs4sport.co.uk
-jobs4tn.gov
 jobs4us.com
 jobs4you.net
 jobs6.com
@@ -113290,7 +111242,6 @@ jobsatcasinos.com
 jobsatdoor.com
 jobsathome.cc
 jobsatlantaga.com
-jobsatmonster.com
 jobsatsap.com
 jobsatsea.net
 jobsatsingapore.com
@@ -113495,7 +111446,6 @@ jobsearchings.com
 jobsearchinterviews.com
 jobsearchlink.com
 jobsearchmonitor.com
-jobsearchmonster.com
 jobsearchmyths.com
 jobsearchnewmexico.com
 jobsearchnigeria.com
@@ -113541,7 +111491,6 @@ jobseekerpage.com
 jobseekerpersona.com
 jobseekerpersonas.com
 jobseekerpro.com
-jobseekers.direct.gov.uk
 jobseekersadvice.com
 jobseekersplus.com
 jobseekersresources.com
@@ -113641,7 +111590,6 @@ jobsforsmilingfaces.com
 jobsforstayathomemomswhoneedwork.com
 jobsforsummer.com
 jobsfortexas.com
-jobsfortn.gov
 jobsfortoday.com
 jobsfortruckdrivers.com
 jobsforum.com
@@ -114197,7 +112145,6 @@ jobsminingindustry.com
 jobsmirror.com
 jobsmonger.com
 jobsmonitor.com
-jobsmonster.com
 jobsmorejobs.net
 jobsmountain.com
 jobsms.com
@@ -114703,9 +112650,6 @@ jobu.ac.jp
 jobuble.com
 jobuc.com
 jobud.com
-jobuddies.tumblr.com
-jobuddy4u.tumblr.com
-jobuddynla.tumblr.com
 jobug.com
 jobukr.net
 jobukyujo.site
@@ -114858,7 +112802,6 @@ jobyp.googlevideo.com
 jobyr.googlevideo.com
 jobys.googlevideo.com
 jobyschraier.com
-jobythesexpanda.tumblr.com
 jobyu.googlevideo.com
 jobz-alert.info
 jobz.net
@@ -114922,14 +112865,10 @@ jocar24.com.ve
 jocardi.be
 jocarrollenergy.com
 jocasecaces.ru
-jocasta-island.tumblr.com
 jocasta.com
-jocastaisland-blog.tumblr.com
-jocastaisland.tumblr.com
 jocaxikufrocgicilu.jepireiluwo.com
 jocb.com
 jocc.net
-jocca75.tumblr.com
 joccapital.com
 joccenvmed.trade
 joccin.chez.com
@@ -115176,7 +113115,6 @@ jocfi.googlevideo.com
 jocfl.googlevideo.com
 jocfo.googlevideo.com
 jocfr.googlevideo.com
-jocgay.tumblr.com
 joch.ru
 jochaiiq.info
 jocham-schiffe.de
@@ -115294,7 +113232,6 @@ jock-butt.blogspot.sk
 jock-butt.blogspot.sn
 jock-butt.blogspot.tw
 jock-butt.blogspot.ug
-jock-fucker.tumblr.com
 jock-shop.com
 jock-strap-naked.com
 jock-strap.info
@@ -115369,75 +113306,42 @@ jock-wars.com
 jock.biz
 jock.co.za
 jock.xxx
-jock0100.tumblr.com
 jock1.com
-jock2jock.tumblr.com
-jock2pervert.tumblr.com
 jock2trade.com
-jock31.tumblr.com
-jock4bondage.tumblr.com
-jock4cock.tumblr.com
 jockagent.com
 jockagents.com
 jockair.com
-jockanal.tumblr.com
 jockanalytics.com
-jockanddoc.tumblr.com
 jockballs.com
-jockbdboy.tumblr.com
-jockbearlvr.tumblr.com
 jockbio.com
 jockblockit.com
 jockblog.com
-jockbone.tumblr.com
-jockboners.tumblr.com
 jockbook.com
-jockbottommansex.tumblr.com
-jockboy-4-olderdaddies.tumblr.com
-jockboy1020.tumblr.com
-jockboy1113.tumblr.com
 jockboy69.biz
-jockboybrian.tumblr.com
-jockboyfriends.tumblr.com
-jockboykink.tumblr.com
 jockboys.com
 jockboyz.com
-jockbros.tumblr.com
 jockbutt.com
 jockc.googlevideo.com
 jockcages.com
 jockcalendar.com
-jockcam.tumblr.com
 jockcamlive.com
 jockcash.com
 jockchallenge.com
 jockchat.com
-jockchubcub.tumblr.com
 jockclub.com
-jockcoach.tumblr.com
 jockcoats.blogspot.com
-jockcock69.tumblr.com
 jockcocks.com
 jockcoin.com
 jockcrazy.com
 jockcsoft.com
-jockcub1983.tumblr.com
 jockcum.com
-jockdad38.tumblr.com
 jockdadto.com
 jockdata.com
-jockdicks.tumblr.com
-jockdiesel.tumblr.com
 jockdirectory.com
 jockdjmxqrims.review
 jockdorm.com
-jockdudeoh.tumblr.com
-jockedboy.tumblr.com
-jockedjock.tumblr.com
 jockels.com
 jocker-movies.com
-jocker74.tumblr.com
-jockerotimuss.tumblr.com
 jockertube.com
 jocketr.bpa.nu
 jockets.com
@@ -115537,15 +113441,11 @@ jockfeast.blogspot.sk
 jockfeast.blogspot.sn
 jockfeast.blogspot.tw
 jockfeast.blogspot.ug
-jockfist.tumblr.com
 jockflicks.com
 jockflix.com
 jockfuck.com
-jockfuckfun.tumblr.com
-jockfuckinstrapped.tumblr.com
 jockgayporn.com
 jockgear.com
-jockguybttm.tumblr.com
 jockgym.com
 jockgyms.com
 jockh.googlevideo.com
@@ -115553,67 +113453,49 @@ jockhipster.com
 jockhole.com
 jockhood.com
 jockhorror.com
-jockhumiliation.tumblr.com
-jockhypnoslave.tumblr.com
 jockies.com
 jockinga.com
 jockingemail.info
 jockingme.com
 jockinme.com
-jockintoronto.tumblr.com
 jockinvest.top
 jockism.com
 jockitch.net
 jockitchsymptoms.com
 jockjerkoff.webjump.com
 jockjet.com
-jockjizz.tumblr.com
 jockjoint.com
 jockjuice.com
 jockk.googlevideo.com
-jockknights.tumblr.com
 jockl.com
 jocklads.com
 jocklawyer.com
 jocklawyers.com
-jocklick.tumblr.com
 jocklist.com
-jockloads.tumblr.com
 jocklogic.com
 jocklover.com
-jocklover14.tumblr.com
-jocklover82.tumblr.com
 jocklust.com
-jockluvr.tumblr.com
 jockmachine.com
 jockmail.com
 jockman.com
-jockman87.tumblr.com
 jockmeat.com
 jockmonthly.com
 jockmuscle.com
-jockmydick.tumblr.com
 jockn.googlevideo.com
 jocknews.com
 jocknextdoor.com
 jocknights.com
-jockntocock.tumblr.com
 jockocur.com
 jockogunwet.com
 jockoheugh.com
 jockon.com
-jockorgies.tumblr.com
-jockorgy.tumblr.com
 jockornot.com
 jockosims.com
 jockparty.com
 jockpayperview.com
-jockperv.tumblr.com
 jockphotoblog.com
 jockpics.com
-jockpig.tumblr.com
 jockplanet.com
-jockplay.tumblr.com
 jockplayer.com
 jockplayer.net
 jockpolitics.com
@@ -115622,18 +113504,11 @@ jockprofile.com
 jockprofiles.com
 jockq.googlevideo.com
 jockr.com
-jockrnkink.tumblr.com
-jockrockin.tumblr.com
-jockrunner4.tumblr.com
 jockry.com
-jocks-cocks.tumblr.com
 jocks-n-cocks.com
-jocks-n-pads2.tumblr.com
 jocks.net
 jocks.stream
-jocksandcock420.tumblr.com
 jocksandcocks.com
-jocksandgear.tumblr.com
 jocksandjillsatl.com
 jocksandshorts.co.uk
 jocksarsphone.com
@@ -115707,32 +113582,22 @@ jocksbuttfetish.blogspot.ug
 jocksbyrj.com
 jockscience.com
 jockscocks.com
-jockscocksandsocks.tumblr.com
-jockscockspuppiesfun.tumblr.com
 jockscore.com
-jockscumpiss.tumblr.com
-jockseeker.tumblr.com
 jocksex.com
 jocksfxudg.top
-jocksgay4pay.tumblr.com
 jocksgear.com
 jocksinsocks.com
 jocksjournal.com
-jockslovecock.tumblr.com
-jockslut.tumblr.com
 jocksmith.com
 jocksmusic.com
 jocksnaked.com
 jocksncocks.com
 jocksniffer.com
 jocksnjills.com
-jocksnjunk.tumblr.com
-jocksntheircocks.tumblr.com
 jocksoap.com
 jocksoffcampus.com
 jocksonjocks.com
 jocksonline.com
-jocksox.tumblr.com
 jockspank.blogspot.ae
 jockspank.blogspot.al
 jockspank.blogspot.am
@@ -115941,18 +113806,11 @@ jockstrap-gear-fetish.blogspot.sk
 jockstrap-gear-fetish.blogspot.sn
 jockstrap-gear-fetish.blogspot.tw
 jockstrap-gear-fetish.blogspot.ug
-jockstrap-gear-fetish.tumblr.com
 jockstrap-jocks.com
-jockstrap-lover.tumblr.com
-jockstrap-packages.tumblr.com
-jockstrap-passion.tumblr.com
-jockstrap-sportsmen.tumblr.com
 jockstrap.ca
 jockstrap.fr
 jockstrap.net
-jockstrap.tumblr.com
 jockstrap.webjump.com
-jockstrapbear.tumblr.com
 jockstrapcentral.com
 jockstrapfan.free.fr
 jockstrapfriday.blogspot.ae
@@ -116023,14 +113881,9 @@ jockstrapfriday.blogspot.sn
 jockstrapfriday.blogspot.tw
 jockstrapfriday.blogspot.ug
 jockstrapgirlz.com
-jockstraplion.tumblr.com
 jockstraplockerroom.net
 jockstraplounge.com
-jockstrapmatt.tumblr.com
-jockstrapmen.tumblr.com
 jockstrapparty.com
-jockstrapped-n-loaded.tumblr.com
-jockstrapped247.tumblr.com
 jockstrappedinleather.blogspot.ae
 jockstrappedinleather.blogspot.al
 jockstrappedinleather.blogspot.am
@@ -116098,24 +113951,13 @@ jockstrappedinleather.blogspot.sk
 jockstrappedinleather.blogspot.sn
 jockstrappedinleather.blogspot.tw
 jockstrappedinleather.blogspot.ug
-jockstrapper.tumblr.com
 jockstrapping.com
 jockstraps.com
 jockstraps.vsn.nu
-jockstrapsandcigars.tumblr.com
-jockstrapsandunderwear.tumblr.com
-jockstrapsfucker-deactivated201.tumblr.com
-jockstrapsmen.tumblr.com
-jockstrapswap.tumblr.com
 jockstrip.com
 jockstuds.net
-jockstuds94.tumblr.com
 jocksturges.in
 jockswear.com
-jocksweat.tumblr.com
-jockswithcocks.tumblr.com
-jockswiththickcocks.tumblr.com
-jocktastik.tumblr.com
 jocktax.com
 jockteam.com
 jockteens.webjump.com
@@ -116131,16 +113973,10 @@ jockuniversity.com
 jockuniversity.net
 jockusa.com
 jockvideos.com
-jockvideos.tumblr.com
-jockvids.tumblr.com
 jockwars.com
 jockwatson.com
-jockwithacock.tumblr.com
 jockwithmedal.com
-jockycock022.tumblr.com
-jockypants.tumblr.com
 jockytours.com
-jockzone.tumblr.com
 jocle.com
 joclep.com
 joclub.com
@@ -116198,7 +114034,6 @@ jocreations.com
 jocreative.com
 jocresa.com
 jocri.com
-jocrob.tumblr.com
 jocroc.com
 jocrost.us
 jocs.com
@@ -116225,7 +114060,6 @@ joculartuu7.info
 joculete-barbie.com
 joculetze.net
 joculmeu.com
-jocumer.tumblr.com
 jocumintel.com
 jocundity.com
 jocundly.us
@@ -116353,9 +114187,6 @@ joczuma.com
 jod.mirtesen.ru
 jod9wbq2g.ohdohwpjobboard.net
 jodab.com
-jodacocks.tumblr.com
-jodaddyitsaboy.tumblr.com
-jodagenius.tumblr.com
 jodainternational.com
 jodalton.com
 jodalton.gptpolo.dsyoung.hakan.rayshellnonie.com
@@ -116534,7 +114365,6 @@ jodi.org
 jodi.rosenfeld.ehealthnewstorsi.ru
 jodi1111.com
 jodi1111.com
-jodi347.tumblr.com
 jodia1.com
 jodiadair.com
 jodiainslee.com
@@ -116660,7 +114490,6 @@ jodiedorrie.eu
 jodiedrew.freeuk.com
 jodieforrest.com
 jodiefoster.net
-jodiefoster.tumblr.com
 jodiefosternude.typepad.com
 jodiegasson.com
 jodiegay.com
@@ -116691,7 +114520,6 @@ jodieupchurch.com
 jodiezplace.com
 jodif.googlevideo.com
 jodigaudet.hothostcity.com
-jodigayboi.tumblr.com
 jodigoodman.com
 jodiharris.com
 jodiharrison.com
@@ -116700,7 +114528,6 @@ jodiie.vinnicrystal.com
 jodijacobson.com
 jodijensen.com
 jodik.googlevideo.com
-jodilakin.tumblr.com
 jodilamagna.com
 jodilamont.com
 jodileigh.com
@@ -116798,12 +114625,10 @@ jodisells.com
 jodisexoticbirds.com
 jodisini.ru
 jodiswanholminteriors.com
-joditaylorxxx.tumblr.com
 jodium.com
 jodiumti.parkerisc.com
 jodiv.googlevideo.com
 jodivine.com
-jodiwalsh80600.tumblr.com
 jodiwright.com
 jodixxx.com
 jodiy.googlevideo.com
@@ -116841,7 +114666,6 @@ jodnx.googlevideo.com
 jodo.com
 jodoa.com
 jodoctor.com.ua
-jodofyky99.tumblr.com
 jodog.googlevideo.com
 jodohislam.com
 jodohkami.com
@@ -116965,7 +114789,6 @@ jodyg.co.nz
 jodygilley.com
 jodyglasser.com
 jodyh.googlevideo.com
-jodyhandsandfeet.tumblr.com
 jodyisbackfromthewar.com
 jodyjameson.com
 jodyk.googlevideo.com
@@ -117032,7 +114855,6 @@ joe-cartoon.com
 joe-cole.co.uk
 joe-consumer.net
 joe-d.me
-joe-e-bate.tumblr.com
 joe-gagliardi.com
 joe-griffin.com
 joe-joe.me
@@ -117061,14 +114883,10 @@ joe.freelogs.com
 joe.kenal-cn.com
 joe.ourit.ru
 joe.ziraat-helpdesk.com
-joe102152.tumblr.com
 joe111.com
 joe12341.netii.net
 joe1alvarez.naturaldrugmall.com
-joe272727.tumblr.com
-joe2bb.tumblr.com
 joe2h.com
-joe69bi.tumblr.com
 joe73.com
 joe7pack.no-ip.biz
 joe9099.byethost7.com
@@ -117181,8 +114999,6 @@ joebaxi.com
 joebc.com
 joebcartoons.com
 joebeam.com
-joebear1975.tumblr.com
-joebee35.tumblr.com
 joebeefbeirut.com
 joebeer.com
 joebeeverspoker.com
@@ -117190,7 +115006,6 @@ joebets.com
 joebible.com
 joebidenfacts.com
 joebidenforprez.com
-joebidennudes.tumblr.com
 joebidenquotes.com
 joebidenusa.com
 joebidenvicepresident.com
@@ -117209,9 +115024,7 @@ joebloe.iwarp.com
 joeblowbot.com
 joeblowdry.com
 joeblowglassworks.com
-joeblowmeagain69.tumblr.com
 joeblowproduction.com
-joeblowsurboxersoff.tumblr.com
 joeblue.com
 joeboboutfiters.com
 joebobs.com
@@ -117229,16 +115042,13 @@ joebot.com
 joebot.net
 joebotdj.com
 joebotkin.com
-joebottom.tumblr.com
 joebottoms.narod.ru
 joebourbon.com
 joebourbon.net
 joebous.com
-joebow33.tumblr.com
 joebowler.com
 joeboxer.se
 joeboxers.com
-joeboxxxer.tumblr.com
 joebrain.com
 joebrands.com
 joebrazil.com
@@ -117259,7 +115069,6 @@ joebuddens.com
 joebuddy.com
 joebuds.com
 joebudsfoods.com
-joebuf40.tumblr.com
 joebuffalo.com
 joebull.com
 joebunker.com
@@ -117270,7 +115079,6 @@ joebustos.com
 joebuyave.com
 joebuyyah.com
 joebwolfe.com
-joebxxx.tumblr.com
 joecabo.com
 joecada.com
 joecain.com
@@ -117408,7 +115216,6 @@ joedentguy.com
 joedeveau.com
 joedg.googlevideo.com
 joedial.com
-joedick.tumblr.com
 joedickens.com
 joedickhead.com
 joediffy.com
@@ -117426,7 +115233,6 @@ joedoev.motime.com
 joedom.canalblog.com
 joedonato.com
 joedonegan.com
-joedonnbake.tumblr.com
 joedowd.com
 joedp.googlevideo.com
 joedrennanmusic.com
@@ -117451,7 +115257,6 @@ joeescobar.com
 joeespo.com
 joeestradainsurance.com
 joeevers.com
-joeeveryman.tumblr.com
 joefabel.com
 joefacts.com
 joefalcon.com
@@ -117466,9 +115271,7 @@ joefey.com
 joeff.googlevideo.com
 joefh.googlevideo.com
 joefields.com
-joefiggy.tumblr.com
 joefile.com
-joefink.tumblr.com
 joefinley.com
 joefinn.com
 joefirefighter.com
@@ -117586,7 +115389,6 @@ joehamburger.com
 joehamburgers.com
 joehamburgersauce.com
 joehannigan.com
-joehardcore.tumblr.com
 joehare.com
 joeharristrumpet.com
 joehart.com
@@ -117691,7 +115493,6 @@ joeii.googlevideo.com
 joeijeanette.com
 joeil.googlevideo.com
 joeiles.com
-joeinct.tumblr.com
 joeindie.com
 joeinfo.org
 joeingham.com
@@ -117699,10 +115500,7 @@ joeink.com
 joeinthebox.net
 joeio.googlevideo.com
 joeisahoe.com
-joeisanerd.tumblr.com
 joeiscool.com
-joeishandy.tumblr.com
-joeisnotsexy.tumblr.com
 joeitaoxy.jaragyoop.addinches.ru
 joeito.com
 joeits.com
@@ -117789,22 +115587,15 @@ joejepsen.com
 joejet.com
 joejetranger.com
 joejo.us
-joejody.tumblr.com
 joejoe.de
-joejoe183tweak.tumblr.com
-joejoe7373.tumblr.com
-joejoe821.tumblr.com
 joejoefoto.com
-joejoh1860.tumblr.com
 joejohnson.co.uk
 joejohnsonchevrolet.flu.cc
 joejonas.com
 joejosephine.com
 joejosephs.com
 joejost.com
-joejsexness.tumblr.com
 joejuggler.com
-joejuggs.tumblr.com
 joejunior.com
 joejusko.com
 joeka.org
@@ -117818,7 +115609,6 @@ joekeiser.com
 joekendrick.com
 joekent.com
 joekers.com
-joekerxxx.tumblr.com
 joekesrouani.com
 joekid54.tripod.com
 joekin.com
@@ -117831,7 +115621,6 @@ joekleitch.com
 joeknowsaguy.com
 joeknowsgayporn.com
 joeknowsmarketing.com
-joeknowzit.tumblr.com
 joeknuckles.com
 joekopecky.homestead.com
 joekort.com
@@ -117841,7 +115630,6 @@ joekourie.com
 joekozmaphotography.com
 joekristo.com
 joekruger.com
-joekruise.tumblr.com
 joeku.com
 joekukler.com
 joekumar.com
@@ -117850,15 +115638,12 @@ joel-gonsales.us
 joel-karr.com
 joel-messmer.us
 joel-pelerin.com
-joel-pr.tumblr.com
 joel-siebert.us
 joel.arpin.free.fr
 joel.net
 joel.todsrule.renatoarpaia.ebrooke.aureliabea.com
 joel1.com
-joel215.tumblr.com
 joel69.refannuaire.com
-joel993.tumblr.com
 joelabelson.com
 joelabero.com
 joelachristian.com
@@ -117900,7 +115685,6 @@ joelblog.com
 joelbodhi.com
 joelbohrer.com
 joelborges.com
-joelboy.tumblr.com
 joelbphotography.com
 joelbradshaw.com
 joelbradshaw.net
@@ -117940,7 +115724,6 @@ joeldombrow.com
 joeldubois.com
 joele.googlevideo.com
 joeled.com
-joeledb.tumblr.com
 joelee.co.uk
 joelengle.com
 joelenthen.com
@@ -118174,7 +115957,6 @@ joellesethel.net
 joellesfrenchbistro.com
 joellesmith.com
 joellessacredgrove.com
-joellevine.tumblr.com
 joellevinecompany.com
 joellevy.com
 joellewis.com
@@ -118198,7 +115980,6 @@ joellyndemeter.in
 joellynoami.asia
 joellynoralie.ru
 joellyorsola.ru
-joellyyyy19.tumblr.com
 joelm.googlevideo.com
 joelmacdonald.com
 joelmackenzie.com
@@ -118263,7 +116044,6 @@ joelpate.net
 joelpeluchette.com
 joelperham.com
 joelpeter.com
-joelpez1991.tumblr.com
 joelphotos.com
 joelpierre.com
 joelpiroe.com
@@ -118288,7 +116068,6 @@ joelscoins.com
 joelseb.claranet.fr
 joelseb.com
 joelsex.com
-joelsexcaliente.tumblr.com
 joelshoemaker.com
 joelsilvershein.com
 joelsimaie.net
@@ -118381,12 +116160,8 @@ joelswoodturning.com
 joeltech.com
 joelteixeira.com
 joeltexas.party
-joelthefag2.tumblr.com
 joelthirsk.com
 joeltontn.com
-joeltorrid4.tumblr.com
-joeltorridfamily.tumblr.com
-joeltorridisurdaddy.tumblr.com
 joeltozer.com
 joeltria.com
 joelu.googlevideo.com
@@ -118395,7 +116170,6 @@ joelun.com
 joelung.com
 joelupchurch.com
 joelurker.com
-joeluvs2suck.tumblr.com
 joelvaillancourt.com
 joelvaughan.com
 joelvax.se
@@ -118470,7 +116244,6 @@ joemessina.com
 joemessinaiii.com
 joemetric.com
 joemeyerscars.com
-joemfdodge.tumblr.com
 joemilazzo.com
 joemillen.com
 joemillerart.com
@@ -118517,18 +116290,15 @@ joenemos.com
 joenet.co.jp
 joenet.com
 joenetsfan.com
-joenewsakhu.tumblr.com
 joengangsa.co.kr
 joenic.com
 joenickels.com
 joenickk9.com
-joenid1.tumblr.com
 joenjacob.com
 joenjake.com
 joenjeannette.mypoint.nl
 joennes-shop.dk
 joenobles.com
-joenobody702.tumblr.com
 joenomore.com
 joenord.com
 joenote.com
@@ -118578,10 +116348,8 @@ joepetersforsenate.net
 joepetrik.com
 joepfeiffer.net
 joeph.com
-joephant.tumblr.com
 joephillips.com
 joephotographer.com
-joephyshy.tumblr.com
 joepictures.com
 joepipeline.com
 joepiscatella.com
@@ -118696,7 +116464,6 @@ joequotes.com
 joeracing.com
 joerafferty.com
 joeraia.com
-joerandompervert.tumblr.com
 joerath.ca
 joeratman.com
 joeraven.com
@@ -118720,7 +116487,6 @@ joerg.de
 joerg.googlevideo.com
 joergbroekel.de
 joergehret.de
-joergf.tumblr.com
 joerghofmann.com
 joergklein.jo.ohost.de
 joergkreutzmann.de
@@ -118737,7 +116503,6 @@ joeri.de
 joerica.com
 joericcardi.com
 joericci.com
-joerice2000.tumblr.com
 joeriffic.com
 joeriver.com
 joerm.com
@@ -118774,7 +116539,6 @@ joerw.googlevideo.com
 joerwhalen.com
 joerx.com
 joerz.googlevideo.com
-joes-bisexual-life.tumblr.com
 joes-porn.com
 joes-sachen.de
 joes-sportinggoods.com
@@ -118847,7 +116611,6 @@ joes-videhoes.blogspot.tw
 joes-videhoes.blogspot.ug
 joes-wuerzburg.de
 joes.com
-joes1026.tumblr.com
 joesabanks.com
 joesabia.com
 joesacco.com
@@ -118855,12 +116618,10 @@ joesadler.com
 joesak.com
 joesalter.com
 joesalvage.com
-joesam13.tumblr.com
 joesamuel.com.br
 joesander.com
 joesantibanez.cl
 joesapartment.com
-joesartpile.tumblr.com
 joesasians.com
 joesauction.com
 joesauder.com
@@ -119004,7 +116765,6 @@ joesbabez.blogspot.ug
 joesbaitshack.com
 joesbaitshop.com
 joesbasement.com
-joesbeachclub.tumblr.com
 joesbean.com
 joesbeans.com
 joesbeer.com
@@ -119029,7 +116789,6 @@ joeschanno.com
 joescherping.com
 joeschmitz.com
 joeschmoe.net
-joeschmoehouse.tumblr.com
 joeschmoevideos.com
 joeschmopoker.com
 joeschram.com
@@ -119204,7 +116963,6 @@ joesjoetogo.com
 joesk.co.cc
 joesk.com
 joeslawnmower.com
-joeslibrary.tumblr.com
 joeslim.info
 joeslinks.com
 joesliquorbar.com
@@ -119250,12 +117008,10 @@ joesparty.com
 joespbplatoon.home.att.net
 joespcrepair.com
 joespeelman.com
-joesph90.tumblr.com
 joesphiannuzzi.com
 joespies.com
 joespit.com
 joespizzadallas.com
-joesplace1911.tumblr.com
 joesplace4u.com
 joespoolandspaservice.com
 joespornarchive.com
@@ -119271,7 +117027,6 @@ joesproduce.com
 joesproperties.com
 joespsoriasishelp.com
 joespunk.com
-joespunkmen.tumblr.com
 joesradiatorshop.com
 joesrentals.com
 joesrepair.com
@@ -119315,7 +117070,6 @@ joestpottery.com
 joestraffic.com
 joestraining.com
 joestrang.com
-joestrannyfeet.tumblr.com
 joestrauss.com
 joestreehouse.com
 joestrokingcafe.com
@@ -119327,7 +117081,6 @@ joesuchy.net
 joesucker.com
 joesullo.com
 joesun.net
-joesunbarger.tumblr.com
 joesupertwa.com
 joesupport.com
 joesurplus.com
@@ -119380,7 +117133,6 @@ joetop.com
 joetopping.com
 joetorresafeathome.com
 joetourist.ca
-joetowncub.tumblr.com
 joetp.googlevideo.com
 joetpai.blog.com
 joetr.googlevideo.com
@@ -119443,7 +117195,6 @@ joevoter.com
 joevtasdsha.us
 joevtls.us
 joevxjkcv.bid
-joewalker1081.tumblr.com
 joewallst.com
 joewalsh.centerblog.net
 joewander.com
@@ -119482,7 +117233,6 @@ joewrigley.com
 joews.googlevideo.com
 joewv.googlevideo.com
 joewy.googlevideo.com
-joexgayfetish.tumblr.com
 joexr6.iudasitebuildng.com
 joextravel.com
 joey-bejarano.us
@@ -119504,12 +117254,7 @@ joey.fr
 joey.over-blog.fr
 joey.pl
 joey.planete-friends.com
-joey236420.tumblr.com
-joey4701.tumblr.com
-joey4881.tumblr.com
-joey4lifeblog.tumblr.com
 joey4you.toptip.to
-joey5382.tumblr.com
 joeyandcarlo.com
 joeyandcarlos.com
 joeyandjake.com
@@ -119524,17 +117269,12 @@ joeybecker.gmxhome.de
 joeybeezy.com
 joeybellafund.com
 joeyberrios.com
-joeybiggs.tumblr.com
-joeybiggz69.tumblr.com
 joeybiondo.com
 joeybirnbaum.com
 joeyblayze.com
 joeybooth.com
-joeybowie.tumblr.com
 joeybox.com
 joeyboxer.com
-joeyboy18.tumblr.com
-joeyboy30.tumblr.com
 joeybreiner.com
 joeybrill.com
 joeybryan.com
@@ -119561,7 +117301,6 @@ joeydifato.com
 joeydineanddash.com
 joeydns.com
 joeydoctors.com
-joeydoesporn.tumblr.com
 joeydrocks.com
 joeydrums.com
 joeydsjerky.com
@@ -119577,7 +117316,6 @@ joeygadget.com
 joeygeorge.com
 joeygilbert.com
 joeygladstone.com
-joeygo3.tumblr.com
 joeygonzalez.com
 joeyhart.com
 joeyhayes.com
@@ -119587,7 +117325,6 @@ joeyhicklin.com
 joeyj.com
 joeyj0j0.bigfast.net
 joeyjay.net
-joeyjoe87.tumblr.com
 joeyjoeyjoey.com
 joeyjohns.com
 joeyjunior.net
@@ -119601,14 +117338,12 @@ joeylaw.com
 joeylee.com
 joeylehrman.com
 joeylestrat.com
-joeylewis77.tumblr.com
 joeylimo.com
 joeylive.de.vu
 joeylongo.com
 joeylook.com
 joeylove.net
 joeylowensteinfoundation.org
-joeylucas.tumblr.com
 joeylyons.com
 joeyman.net
 joeymancil.com
@@ -119660,13 +117395,11 @@ joeysalinas.com
 joeysbikes.tripod.com
 joeysbubble.com
 joeyschairs.com
-joeyscock69.tumblr.com
 joeyscomedy.com
 joeyscuteclub.com
 joeyseafoodshack.com
 joeysebestyen.com
 joeyseries.net
-joeysexblog.tumblr.com
 joeyshelby.com
 joeysherye.com
 joeyshipley.com
@@ -119676,7 +117409,6 @@ joeysilver.com
 joeysilvera.com
 joeysilvera.fr
 joeysilvera.net
-joeysilverado.tumblr.com
 joeysilveraporn.com
 joeysilverasworld.com
 joeysilveraxxx.com
@@ -119691,14 +117423,10 @@ joeysmoney.com
 joeysnightclub.com
 joeysnorthside.com
 joeysonlyusa.com
-joeysparklezdudkiewicz.tumblr.com
 joeyspizza.net
 joeyspouch.com
 joeysroom.com
-joeysspace.tumblr.com
 joeysspecialtitty.com
-joeyst0cks.tumblr.com
-joeystjohn01.tumblr.com
 joeystocks.com
 joeyswestbar.com
 joeythecommie.com
@@ -119719,10 +117447,8 @@ joeywam.com
 joeyware.com
 joeywilliamsdrums.com
 joeywilliamson.com
-joeywinch.tumblr.com
 joeywise.com
 joeywong.com
-joeyxxx77.tumblr.com
 joeyzimmerman.com
 joeyzone.com
 joezambito.com
@@ -119852,7 +117578,6 @@ jofxi.googlevideo.com
 jofxt.googlevideo.com
 jofxw.googlevideo.com
 jofxz.googlevideo.com
-jofydyso22.tumblr.com
 jofz9t.shaeyffh6.net
 jofzblog.com
 jofzr.googlevideo.com
@@ -119969,7 +117694,6 @@ jogengineering.com
 jogeorge.com
 joger.se
 jogera.com
-jogeva.tumblr.com
 jogforschool.net
 jogfud.com
 jogg.com
@@ -120484,7 +118208,6 @@ jogosdobicho.com
 jogosdobobesponja.tv
 jogosdodesejo.com
 jogosdodia.com
-jogosdogoogle.com
 jogosdohomemaranha.com
 jogosdoicarly.com
 jogosdoorkut.com
@@ -120724,8 +118447,6 @@ johan.micoud.free.fr
 johan.net
 johan.op.se
 johana-sexy.amiz.fr
-johana171194.tumblr.com
-johanadonis.tumblr.com
 johanaeden.spithamail.top
 johanahlberg.com
 johanas.com
@@ -120880,7 +118601,6 @@ johannahess.com
 johannahsalaidh.ru
 johannajimenez.com
 johannakathleen.com
-johannalahti.tumblr.com
 johannaluella.com
 johannalyman.com
 johannamarcia.ru
@@ -120974,7 +118694,6 @@ johannordin.com
 johannpena.com
 johannpetermurmann.com
 johannsandra.com
-johannsenus.tumblr.com
 johannthomas.com
 johannusboots.com
 johannuschurchorgans.com
@@ -121046,7 +118765,6 @@ johbv.googlevideo.com
 johby.googlevideo.com
 johcd.org
 johcsantander2018.com
-johdal57.tumblr.com
 johdina.com
 johdinacallingcards.com
 johed.googlevideo.com
@@ -121084,7 +118802,6 @@ johhb.googlevideo.com
 johhe.googlevideo.com
 johhg.googlevideo.com
 johhj.googlevideo.com
-johhnnnnnyy22.tumblr.com
 johhnnyofporn.com
 johhnydepp.com
 johhx.googlevideo.com
@@ -121147,7 +118864,6 @@ john-garland.com
 john-garland.net
 john-gault.com
 john-gilbert.com
-john-green-luvs-dick.tumblr.com
 john-harrison.com
 john-heiden.us
 john-hendrix.com
@@ -121158,14 +118874,12 @@ john-kappel.us
 john-kerry.usa-election.de
 john-kieler-music.com
 john-kocinski.com
-john-krasinski-sib.tumblr.com
 john-lipscomb.com
 john-lokk.com
 john-lowe.net
 john-marchand.in
 john-mcafee.com
 john-miller.com
-john-mirror-captions.tumblr.com
 john-morton-racing.us
 john-nguyen.com
 john-osterhout.us
@@ -121182,7 +118896,6 @@ john-terry.net
 john-the-baptist.com
 john-thebaptistcrying.com
 john-thompson-bukkake.com
-john-thompson-bukkake.tumblr.com
 john-walker.com
 john-wike.us
 john-wilkins.com
@@ -121206,17 +118919,14 @@ john.net.pl
 john.reist.nl
 john.sorbietrees.btinternet.co.uk
 john.w.turner.btinternet.co.uk
-john001001.tumblr.com
 john10.com
 john117.com
-john1180.tumblr.com
 john12.ethosdistro.com
 john1234.com
 john146church.com
 john1633christiancounseling.com
 john2.org
 john24.noadware.hop.clickbank.net
-john2fuck.tumblr.com
 john3-16.ourtoolbar.com
 john3-16bible.com
 john3-16bibleverse.com
@@ -121238,20 +118948,14 @@ john3verse16ofbible.com
 john3verse16ofthebible.com
 john4.com
 john6.com
-john633.tumblr.com
-john703821.tumblr.com
-john845ny.tumblr.com
 john8ins.fsnet.co.uk
 john92110.tripod.com
-john9241.tumblr.com
-john949.tumblr.com
 johna.quillens.xvwto.fungicide.hempholiday.com
 johnaa.com
 johnaancorafinancial.com
 johnabate.com
 johnabbott.qc.ca
 johnabenton.com
-johnabisexual.tumblr.com
 johnabouttown.com
 johnabrahamworkout.com
 johnaburns.com
@@ -121314,7 +119018,6 @@ johnandcynthia.com
 johnanddanielle.com
 johnanddebbie.com
 johnandersonagency.com
-johnandeve.tumblr.com
 johnandginger.co.uk
 johnandheidi.com
 johnandjeff.com
@@ -121345,7 +119048,6 @@ johnandsteph.com
 johnandsteven.com
 johnandsusi.com
 johnandsuzanne.com
-johnandthegofuckyourselfs.tumblr.com
 johnandy.com
 johnandy.in
 johnangerson.com
@@ -121381,7 +119083,6 @@ johnathanbinghamart.com
 johnathancainer.com
 johnathanchristian.com
 johnathandessaules.com
-johnathanhancock.tumblr.com
 johnathanmcclain.com
 johnathanmelendez.com
 johnathanperkins.com
@@ -121412,7 +119113,6 @@ johnawright.com
 johnback.com
 johnbackershengelsport.nl
 johnbadetopsoil.com
-johnbaer.tumblr.com
 johnbag.com
 johnbaglivo.com
 johnbaham.com
@@ -121421,7 +119121,6 @@ johnbaillie.com
 johnbak.com
 johnbaker.rocketrider.resplandor.philipperuze.fran
 johnbaker.rocketrider.resplandor.philipperuze.francoisemirabelle.com
-johnbaldwin1.tumblr.com
 johnbalistreri.com
 johnballance.xn--c1aa4azca.xn--p1ai
 johnbanistermansion.com
@@ -121466,7 +119165,6 @@ johnbeaner.com
 johnbearce.com
 johnbearross.com
 johnbeatty.net
-johnbeau143.tumblr.com
 johnbeauty.com
 johnbeazorantiques.co.uk
 johnbecks.com
@@ -121493,7 +119191,6 @@ johnberke.com
 johnberrys.com
 johnbertini.com
 johnbetley.com
-johnbexxxar.tumblr.com
 johnbfinniv.com
 johnbgabel.com
 johnbhamrickcoins.com
@@ -121501,7 +119198,6 @@ johnbiamonte.com
 johnbible.com
 johnbibledesigns.com
 johnbiblestudy.com
-johnbiceps.tumblr.com
 johnbicknell.com
 johnbiddar.com
 johnbill.com
@@ -121523,7 +119219,6 @@ johnbob.info
 johnboie.com
 johnbola.com
 johnboltonfanclub.com
-johnbon1587.tumblr.com
 johnboner.com
 johnbonus.com
 johnboo.com
@@ -121549,8 +119244,6 @@ johnbowman.btinternet.co.uk
 johnbowman.cc
 johnboyar.com
 johnboydbooks.com
-johnboyega.tumblr.com
-johnboylug.tumblr.com
 johnboys.com
 johnboysmobile.com
 johnbramlett.com
@@ -121574,7 +119267,6 @@ johnbros.com
 johnbrought.tk
 johnbrownbloodstock.com
 johnbrowneonline.com
-johnbrowning234.tumblr.com
 johnbrownloyalrsc.com
 johnbroysv.free-forums.org
 johnbrumby.com
@@ -121592,9 +119284,7 @@ johnburros.com
 johnburwellwilkes.net
 johnbusche.com
 johnbusters.com
-johnc7883.tumblr.com
 johncabot.com
-johncabot.edu
 johncali.com
 johncall.com
 johncalla.com
@@ -121602,12 +119292,10 @@ johncalvinchurch.com
 johncam.com
 johncamacho.com
 johncamera.com
-johncampari.tumblr.com
 johncamper.com
 johncampo.com
 johncan.com
 johncandrews.com
-johncano.tumblr.com
 johncantine.com
 johncantrell.com
 johncao.com
@@ -121656,7 +119344,6 @@ johncharlesassociates.com
 johncharlesgarcia.com
 johnchat.malinderheta.com
 johncherry.com
-johnchia.tumblr.com
 johnchisholm.com
 johnchisum.com
 johncholmes.com
@@ -121735,7 +119422,6 @@ johncieslewicz.com
 johncini.com
 johncioni.com
 johnckois.com
-johnclarke99.tumblr.com
 johnclausen.com
 johnclaw.com
 johncleland.com
@@ -121743,7 +119429,6 @@ johnclevelandvauxhall.files.wordpress.com
 johnclick.com
 johnclilly.com
 johncloutier.com
-johncm2069.tumblr.com
 johncmccosh.com
 johnco.cc.ks.us
 johncocci.com
@@ -121755,7 +119440,6 @@ johncolt.com
 johncolton.com
 johncombest.com
 johncomp.com
-johnconnor10.tumblr.com
 johncookformayor.com
 johncookgolf.com
 johncookhomebeautification.com
@@ -121791,10 +119475,8 @@ johncrouchcigars.com
 johncrouchtobacco.com
 johncrowley.net
 johncrump.com
-johncsblog.tumblr.com
 johncsullivan.com
 johncure.com
-johncurtiss1966.tumblr.com
 johncushman.com
 johncushnahan.com
 johncutney.com
@@ -121803,7 +119485,6 @@ johncutting.com
 johncyn.net
 johncyr.com
 johnd.naturaldrugmall.com
-johnda69.tumblr.com
 johndada.se
 johndaileysoftware.com
 johndalrymple.com
@@ -121895,15 +119576,11 @@ johndineen.com
 johndirect.com
 johndistler.com
 johndiver.com
-johndjohnson11.tumblr.com
-johndlokcuc.tumblr.com
 johndmoore.net
 johndo.com
 johndoctorco.com
 johndoddato.photofolio.com
-johndoe741974.tumblr.com
 johndoeband.com
-johndoebisex.tumblr.com
 johndoebrowsing.com
 johndoeenterprises.com
 johndoeentertainment.com
@@ -121911,11 +119588,9 @@ johndoefilms.com
 johndoejr.com
 johndoemusic.com
 johndoenetwork.net
-johndoenumber3.tumblr.com
 johndoeproxy.com
 johndoesntcare.com
 johndoex2.squarespace.com
-johndoleson.tumblr.com
 johndome.com
 johndonaldcody.com
 johndonne.com
@@ -121931,7 +119606,6 @@ johndouglasbusinesssolutionsinc.ca
 johndouglashightower.com
 johndoyle.com
 johndoylemusic.com
-johndp92.tumblr.com
 johndphillips.com
 johndragon.com
 johndragon.de
@@ -121961,7 +119635,6 @@ johnduron.com
 johndustysteele.com
 johndw.com
 johndwilson.com
-johndwrite.tumblr.com
 johndx.blogs.com
 johndx.com
 johndykemanimages.com
@@ -121979,7 +119652,6 @@ johned.com
 johnedepth.com
 johnedepthxxx.com
 johnedgell.com
-johnedger106.tumblr.com
 johnedmiston.com
 johnedney.com
 johnedwards2020.com
@@ -122021,7 +119693,6 @@ johnerrific.com
 johneshaya.gamereden.com
 johnessa.com
 johnester.com
-johnestockman.tumblr.com
 johnethomas.com
 johnettas.com
 johnettehartnett.com
@@ -122088,7 +119759,6 @@ johnfrida.com
 johnfrieda.lisnr.com
 johnfromcincinnati.com
 johnfryphoto.com
-johnfuckingwatson.tumblr.com
 johnfulmer.com
 johnfultonfineart.com
 johnfun.com
@@ -122175,7 +119845,6 @@ johngummer.com
 johngunner.com
 johnh.ubqtus.mehicks.firstboblorraine.carrirandene
 johnh.ubqtus.mehicks.firstboblorraine.carrirandene.com
-johnh677.tumblr.com
 johnhageechurch.com
 johnhaggard.net
 johnhaggardministries.com
@@ -122188,7 +119857,6 @@ johnhall88.homestead.com
 johnhalldesigns.co.uk
 johnhallonline.com
 johnhallpre-university.com
-johnhaman95.tumblr.com
 johnhamiltonlewis.com
 johnhamrickrealestate.com
 johnhancockacn.com
@@ -122311,7 +119979,6 @@ johnhurtmovies.com
 johnhusmoravianchurch.com
 johnhutto.com
 johnhy.com
-johni666.tumblr.com
 johnian.com
 johnican.info
 johnie.net
@@ -122370,7 +120037,6 @@ johnjohnstone.com
 johnjoiner.com
 johnjonesmahindra.com
 johnjonesphotography.com
-johnjonno.tumblr.com
 johnjoshua.com
 johnjsmith.com
 johnjsoroko.com
@@ -122454,8 +120120,6 @@ johnkulias.com
 johnkunkel.com
 johnkusterman.com
 johnkyl.com
-johnl54780world.tumblr.com
-johnl54780world2.tumblr.com
 johnlab.com
 johnlabelle.com
 johnlabs.com
@@ -122565,7 +120229,6 @@ johnlundstram.com
 johnlutzen.com
 johnlwright.com
 johnlyall.com
-johnlyall.tumblr.com
 johnlydon.com
 johnlyn.com
 johnlynchfoundation.org
@@ -122585,7 +120248,6 @@ johnmadigan.com
 johnmadrigal.com
 johnmag.com
 johnmagavern.com
-johnmagnumporngod.tumblr.com
 johnmahan.com
 johnmaher.com
 johnmahnicart.com
@@ -122663,7 +120325,6 @@ johnman27.blogspot.sn
 johnman27.blogspot.tw
 johnman27.blogspot.ug
 johnmanasseh.com
-johnmanc1965.tumblr.com
 johnmanoochehri.com
 johnmarchese.com
 johnmarihart.com
@@ -122777,7 +120438,6 @@ johnmok.com
 johnmolls.com
 johnmonica.com
 johnmonnecka.com
-johnmonster.com
 johnmonte.com
 johnmoor.com
 johnmooresports.co.uk
@@ -122858,7 +120518,6 @@ johnniecarson.com
 johnniecash.com
 johnniecass.com
 johnniecleans.com
-johnniecockren.tumblr.com
 johnniefischer.com
 johnnieg.jacare.wilsonvegas.stevebudgetsaver.dorys
 johnnieg.jacare.wilsonvegas.stevebudgetsaver.dorystarla.com
@@ -122879,10 +120538,8 @@ johnniesdoghouse.com
 johnniesfoodmaster.com
 johnniew.ataraxia7.cpa.clicksure.com
 johnniewalker.co.ke
-johnniewalker41.tumblr.com
 johnniewalkerclassic.com
 johnniewalkersilver.com
-johnniewaswolf.tumblr.com
 johnniewater.com
 johnnieweb.com
 johnnightingale.com
@@ -122894,10 +120551,7 @@ johnno.co.uk
 johnnorris.co.uk
 johnnotzonrealty.com
 johnnucci.com
-johnny-azn-lover-deactivated201.tumblr.com
-johnny-boy2005.tumblr.com
 johnny-cash.com
-johnny-cum-lately.tumblr.com
 johnny-depp-lesbian-strip.org
 johnny-depp.blogspot.ae
 johnny-depp.blogspot.al
@@ -122984,8 +120638,6 @@ johnny-depth.blogspot.no
 johnny-depth.blogspot.pt
 johnny-depth.blogspot.sk
 johnny-dobson.in
-johnny-escobar.tumblr.com
-johnny-fuckin-utah.tumblr.com
 johnny-gwinn.us
 johnny-kelly.us
 johnny-mariscal.us
@@ -122993,21 +120645,14 @@ johnny-mogensen.us
 johnny-moronic.com
 johnny-moronictv.com
 johnny-plant-my-seed.com
-johnny-rapid-all-the-way.tumblr.com
 johnny-the-hacker.com
 johnny.griffin.ehealthnewsgoi.ru
 johnny.ihackstuff.com
 johnny.intnet.mu
 johnny.mfer.jp
-johnny1175.tumblr.com
-johnny2468.tumblr.com
 johnny5425.free.fr
-johnny66-stuff.tumblr.com
-johnny69150.tumblr.com
 johnnyacestudios.com
-johnnyadvent.tumblr.com
 johnnyaguilar.com
-johnnyallenqueen.tumblr.com
 johnnyandjanedoe.com
 johnnyandjunes.com
 johnnyandkate.com
@@ -123021,7 +120666,6 @@ johnnyarrow.com
 johnnyart.com
 johnnyautosales.com
 johnnybaby.com
-johnnybadd2013.tumblr.com
 johnnybailey.com
 johnnyballance.com
 johnnyballgames.com
@@ -123058,15 +120702,11 @@ johnnyblogjob.blogspot.no
 johnnyblogjob.blogspot.pt
 johnnyblogjob.blogspot.sk
 johnnybombay.com
-johnnybooboo82.tumblr.com
-johnnyboy028.tumblr.com
 johnnyboygarentino.com
 johnnybracelets.com
 johnnybrava.com
-johnnybravo2391.tumblr.com
 johnnybravoflatball.com
 johnnybriggs.net
-johnnybrough.tumblr.com
 johnnybsbbq.com
 johnnybsutah.com
 johnnybueno.com
@@ -123120,15 +120760,12 @@ johnnydiep.net
 johnnydiesel.com
 johnnydietrich.com
 johnnydigital.com
-johnnydirtymind.tumblr.com
 johnnydiver.com
 johnnydoc.com
 johnnydog.net
-johnnydollar.tumblr.com
 johnnydonut.com
 johnnydooche.com
 johnnydread.com
-johnnydrew93.tumblr.com
 johnnydwyer.com
 johnnydz.com
 johnnyeason.com
@@ -123153,14 +120790,11 @@ johnnyfincham.com
 johnnyfishborn.com
 johnnyfist.com
 johnnyfivealive.com
-johnnyfootfetish.tumblr.com
 johnnyford.com
 johnnyfoster.com
 johnnyfound.com
-johnnyfourskin.tumblr.com
 johnnyfranco.com
 johnnyfriendly.com
-johnnyfuckedhubby.tumblr.com
 johnnyfumble.com
 johnnyg.westhost.com
 johnnygaspari.madalenaamalle.com
@@ -123174,7 +120808,6 @@ johnnygonzales.com
 johnnygor.space
 johnnygranger.com
 johnnygspinning.com
-johnnygstring.tumblr.com
 johnnyguacamole.com
 johnnygunning.com
 johnnyhaliday-home.com
@@ -123202,12 +120835,10 @@ johnnyiii.com
 johnnyike.com
 johnnyishootstuff.com
 johnnyissacson.com
-johnnyissmall.tumblr.com
 johnnyjaan.com
 johnnyjager.com
 johnnyjailbird.com
 johnnyjanitor.com
-johnnyjarhead.tumblr.com
 johnnyjenkins.com
 johnnyjerkoff.com
 johnnyjet.com
@@ -123236,9 +120867,7 @@ johnnyleefanclub.com
 johnnylife.com
 johnnylightdep.com
 johnnylloyd.com
-johnnylongcock.tumblr.com
 johnnylovesart.com
-johnnylovesmalefeet.tumblr.com
 johnnylozada.com
 johnnylung.com
 johnnylust1984.blogspot.ae
@@ -123309,7 +120938,6 @@ johnnylust1984.blogspot.sn
 johnnylust1984.blogspot.tw
 johnnylust1984.blogspot.ug
 johnnylyon.com
-johnnymac61.tumblr.com
 johnnymackonline.com
 johnnymacs.com
 johnnymakemoney.com
@@ -123319,7 +120947,6 @@ johnnymarolla.com.br
 johnnymart.com
 johnnymasters.com
 johnnymccartin.com
-johnnymcfakename.tumblr.com
 johnnymckee.com
 johnnymedia.com
 johnnymemphis.com
@@ -123331,7 +120958,6 @@ johnnymonkey.com
 johnnymontoya.com
 johnnymoon.com
 johnnymoronic.com
-johnnymotion.tumblr.com
 johnnymovie.com
 johnnymullen.com
 johnnymusic.free.fr
@@ -123345,7 +120971,6 @@ johnnynomates.com
 johnnynormal.com
 johnnynova.com
 johnnynova.tv
-johnnyntx.tumblr.com
 johnnynuke.com
 johnnynutrition.com
 johnnyo.unblog.fr
@@ -123376,14 +121001,9 @@ johnnyrage2.tripod.com
 johnnyrahm.com
 johnnyrapid.net
 johnnyrapidgayporn.com
-johnnyrapidgaypornstar.tumblr.com
-johnnyrapidpornfan.tumblr.com
-johnnyrapidvideo.tumblr.com
-johnnyrapidxxx.tumblr.com
 johnnyrazor.com
 johnnyrebel.com
 johnnyred.com
-johnnyredondo.tumblr.com
 johnnyrepo.com
 johnnyreverb.com
 johnnyrey.com
@@ -123394,7 +121014,6 @@ johnnyroadtrip.com
 johnnyrobish.com
 johnnyrocketscatering.com
 johnnyromano.com
-johnnyrotten247.tumblr.com
 johnnyrox.com
 johnnyrumcakes.com
 johnnyrzeznik.com
@@ -123407,7 +121026,6 @@ johnnysaintbarth.com
 johnnysales.com
 johnnysalsa.com
 johnnysangels.com
-johnnysappleseeds.tumblr.com
 johnnysauter.net
 johnnysautosales.com
 johnnysbabes.com
@@ -123438,7 +121056,6 @@ johnnyshmears.com
 johnnyshmeers.com
 johnnysilva.com
 johnnysinajiffy.com
-johnnysinzcockworship.tumblr.com
 johnnysit.com
 johnnysjohnnys.com
 johnnysjohns.com
@@ -123475,13 +121092,11 @@ johnnyt.com
 johnnytahoe.com
 johnnytalk.com
 johnnytees.com
-johnnyteodoro.tumblr.com
 johnnythebaptist.com
 johnnythebaptist.org
 johnnythecreditcardguy.com
 johnnythemesters.com
 johnnythepainter.com
-johnnytherotten.tumblr.com
 johnnythong.com
 johnnythrust.com
 johnnythunders.com
@@ -123520,7 +121135,6 @@ johnnywhoop.com
 johnnywishbone.com
 johnnywow.com
 johnnyxie.com
-johnnyxxxrapid.tumblr.com
 johnnyyip.com
 johnnyyongbosch.com
 johnnyyoon.com
@@ -123538,9 +121152,7 @@ johnobeytourism.com
 johnocallaghan.com
 johnoday.com
 johnodonovan.com
-johnof.tumblr.com
 johnofalltrades.net
-johnofe.tumblr.com
 johnofpatmos.com
 johnoftwass.ru
 johnogauntschool.com
@@ -123659,12 +121271,10 @@ johnpaulus.blogspot.sk
 johnpaulus.blogspot.sn
 johnpaulus.blogspot.tw
 johnpaulus.blogspot.ug
-johnpaulxxx.tumblr.com
 johnpaxson.com
 johnpbartel.com
 johnpbennett.com
 johnpcock.homestead.com
-johnpcolemanjr.tumblr.com
 johnpcowan.com
 johnpeach.com
 johnpeet.com
@@ -123693,7 +121303,6 @@ johnphfrearson.host22.com
 johnphil.com
 johnphilbin.com
 johnphiliptomkins.com
-johnphoenixfuckyeah.tumblr.com
 johnphoto.com
 johnpia.com
 johnpicciuto.net
@@ -123706,7 +121315,6 @@ johnpirihs.sa.edu.au
 johnpistole.com
 johnpkellogg.com
 johnplaster.com
-johnplay.tumblr.com
 johnplayersfreshlights.info
 johnplays.com
 johnplumber.com
@@ -123733,7 +121341,6 @@ johnpur.com
 johnpur.net
 johnpurrier.com
 johnpurrier.net
-johnputeh.tumblr.com
 johnputney.com
 johnpwheeleriii.com
 johnpwmcgrath.com
@@ -123814,7 +121421,6 @@ johnquill.com
 johnraatz.com
 johnracing.be
 johnraines2017.000webhostapp.com
-johnrambo420.tumblr.com
 johnrandall.com
 johnrandalldennis.com
 johnrandallhouse.com
@@ -123833,7 +121439,6 @@ johnreader.com
 johnredden.com
 johnreddin.com
 johnreddy.com
-johnreece117.tumblr.com
 johnreed.thekeepingroom.co
 johnreinhold.com
 johnreistetter.com
@@ -123931,7 +121536,6 @@ johnroads.com
 johnrob794.website2.me
 johnrobbins.com
 johnrobertpowersmodeling.com
-johnroberts1544.tumblr.com
 johnrobertsoninc.com
 johnrobinsonewl5.com
 johnrocket.net
@@ -124043,7 +121647,6 @@ johns-beaver-babes.com
 johns-free-porn-pictures.com
 johns-leather-repair.com
 johns-planet.com
-johns-slut.tumblr.com
 johns-toys.com
 johns.gr
 johns3trade.biz
@@ -124116,7 +121719,6 @@ johnscreekchristian.com
 johnscreekchristianchurch.com
 johnscreekchristiancounseling.com
 johnscreekga.com
-johnscreekga.gov
 johnscreekhotels.com
 johnscreekmoms.com
 johnscreekpages.com
@@ -124140,7 +121742,6 @@ johnsentertainment.com
 johnseroka.com
 johnsessions.com
 johnsevans.com
-johnseve.tumblr.com
 johnseven.com
 johnsex.com
 johnsfencing.com
@@ -124167,7 +121768,6 @@ johnshawphoto.com
 johnshealth.com
 johnsheltondavis.com
 johnshen.com
-johnshendavid.tumblr.com
 johnshephard.com
 johnsherry.com
 johnshobby.com
@@ -124240,7 +121840,6 @@ johnshon.blogspot.sk
 johnshon.blogspot.sn
 johnshon.blogspot.tw
 johnshon.blogspot.ug
-johnshon.tumblr.com
 johnshop.com
 johnshopkinshealthalerts.com
 johnshopkinshospital.com
@@ -124268,14 +121867,12 @@ johnsislandscrealestate.com
 johnsite.com
 johnsitsi.pro
 johnsj.com
-johnsjam505.tumblr.com
 johnsjazz.com
 johnsjewelry.com
 johnsjewelryinc.com
 johnsjewels.com
 johnsjottings.com
 johnsjunkyard.com
-johnski6161.tumblr.com
 johnskinner76.com
 johnslanding.com
 johnslemmer.com
@@ -124287,7 +121884,6 @@ johnsmassage.com
 johnsmd.com
 johnsmedley.com
 johnsmetana.com
-johnsmilfpictures.tumblr.com
 johnsminiatureroses.com
 johnsmit.com
 johnsmith-online.com
@@ -124299,7 +121895,6 @@ johnsmithagency.com
 johnsmithandco.com
 johnsmithandcompany.com
 johnsmithinsurance.com
-johnsmithjsjs.tumblr.com
 johnsmithmail.com
 johnsmithmusic.com
 johnsmithperry.com
@@ -124320,7 +121915,6 @@ johnsmoss.com
 johnsmotel.com
 johnsmusic.com
 johnsnowz.top
-johnsnude.tumblr.com
 johnsnursery.com
 johnsnyder.biz
 johnso.knsux.genteelly.aldeburghcookeryschool.com
@@ -124339,7 +121933,6 @@ johnson.co.th
 johnson.co.za
 johnson.qualtrics.com
 johnson2.fsnet.co.uk
-johnson7986.tumblr.com
 johnsonadvisors.com
 johnsonamplification.com
 johnsonandjohnsonrecalls.com
@@ -124354,7 +121947,6 @@ johnsonavenue.com
 johnsonavenuechurch.com
 johnsonavenuechurchofchrist.com
 johnsonbaitplus.com
-johnsonbanghard.tumblr.com
 johnsonbaptistchurch.com
 johnsonbar.com
 johnsonbattery.com
@@ -124409,7 +122001,6 @@ johnsoncityrestaurant.com
 johnsoncityschool.com
 johnsoncityseo.com
 johnsoncityshopping.com
-johnsoncitytn.gov
 johnsoncitytnapartmentrentals.com
 johnsoncityusedcars.com
 johnsoncollectionll.com
@@ -124503,7 +122094,6 @@ johnsonlequinn.tonyqile.escherjane.revsan.charilde
 johnsonlequinn.tonyqile.escherjane.revsan.charildehlia.com
 johnsonlist.com
 johnsonlocal.com
-johnsonlovers.tumblr.com
 johnsonlowerunit.com
 johnsonlowerunits.com
 johnsonlukose.com
@@ -124661,7 +122251,6 @@ johnspoolservice.com
 johnspornlinks.com
 johnspornlist.com
 johnsporno.com
-johnspornstash.tumblr.com
 johnsportraits.com
 johnsports.com
 johnspots.com
@@ -124670,7 +122259,6 @@ johnspress.net
 johnspring.com
 johnsprinting.com
 johnsquartershop.com
-johnsquirt.tumblr.com
 johnsradiator.com
 johnsrant.com
 johnsrentals.com
@@ -124695,7 +122283,6 @@ johnstanfieldinn.com
 johnstanko.com
 johnstannard.com
 johnstar.com
-johnstarksnow.tumblr.com
 johnstart.com
 johnstautner.com
 johnstautner.net
@@ -124861,7 +122448,6 @@ johnstradingco.com
 johnstrand-mk.co.uk
 johnstrayer.com
 johnstromberg.com
-johnstrongcockworship.tumblr.com
 johnstruble.com
 johnstruck.de
 johnstuff.com
@@ -124885,7 +122471,6 @@ johnsydney.com
 johnsymes.com
 johnt.vinnicrystal.com
 johntaggart.com
-johntagshisprn.tumblr.com
 johntallent.com
 johntambascio.com
 johntaouk.com
@@ -124900,7 +122485,6 @@ johntbone.com
 johntcoleman.net
 johnteam.com
 johnteeter.com
-johnteganxxx.tumblr.com
 johntejada.com
 johntek.free.fr
 johntemrowskilaw.com
@@ -124931,9 +122515,7 @@ johnthecalvinistbaptist.com
 johnthecloudguy.com
 johnthecock.com
 johntheebaptist.com
-johnthefisherman.tumblr.com
 johnthefucker.com
-johnthejack.tumblr.com
 johnthejobbot.com
 johnthereformedbaptist.com
 johnthesouthernbaptist.com
@@ -124954,14 +122536,12 @@ johntimberland.com
 johntimmins.com
 johntips.com
 johntisbury.co.uk
-johntisbury.tumblr.com
 johntitan.com
 johntitor.com
 johntobinpresents.net
 johntofhalo.ru
 johntolson.com
 johntomlin.com
-johntoovicious.tumblr.com
 johntorino.com
 johntorres.net
 johntortorella.com
@@ -124978,7 +122558,6 @@ johntravels.com
 johntreeservice.com
 johntrentblessingbooks.com
 johntruscott.com
-johnttown.tumblr.com
 johntu.com
 johntuma.com
 johnturano.com
@@ -125013,7 +122592,6 @@ johnvkaravitis.com
 johnvmartinmd.com
 johnvoelz.com
 johnvouyoukas.com
-johnvz89.tumblr.com
 johnw.host.sk
 johnwachter.com
 johnwackermandrumheads.com
@@ -125024,7 +122602,6 @@ johnwakim.com
 johnwaky.biz
 johnwalker.kelilamagda.com
 johnwalkeronline.com
-johnwall12333.tumblr.com
 johnwallacelaw.com
 johnwaller.ws
 johnwalmsley.com
@@ -125062,7 +122639,6 @@ johnwesleyneal.com
 johnwesleythomas.com
 johnwesleywhite.com
 johnwesselsphotography.com
-johnwest--3.tumblr.com
 johnwesten.com
 johnwestgatedesign.com
 johnwesttherapy.com
@@ -125092,7 +122668,6 @@ johnwilliamsmovie.com
 johnwilliamsmusic.com
 johnwilliamson.com
 johnwillie.com
-johnwillierules.tumblr.com
 johnwillingham.net
 johnwilloughby.com
 johnwilson4az.com
@@ -125108,7 +122683,6 @@ johnwittmann.com
 johnwittneben.com
 johnwleblanc.com
 johnwmiller.com
-johnwms1988.tumblr.com
 johnwnelson.com
 johnwnickfoundation.com
 johnwnickfoundation.net
@@ -125133,20 +122707,16 @@ johnwyles.com
 johnwyne.com
 johnwysocki.com
 johnxxx.com
-johnxxxdoe.tumblr.com
 johnxxxipor.top
 johny-porn-pics.com
 johny.xn--80aglaiio2ee.xn--p1ai
 johnyannayon.com
 johnyappleseed.com
-johnyb824.tumblr.com
 johnyblacksheep.com
 johnyboy32ta.gq
-johnyburger.tumblr.com
 johnydiba.com
 johnydriver.nextview.ru
 johnyevil.com
-johnygt.tumblr.com
 johnylee.com
 johnylee.net
 johnylever.com
@@ -125155,7 +122725,6 @@ johnymopeds.com
 johnyolsson.com
 johnyoon.net
 johnyoungschristiancinema.com
-johnystutz.tumblr.com
 johnytech.com
 johnythomas.com
 johnythunder.com
@@ -125320,7 +122889,6 @@ joiedelivre.com
 joiedevie.com
 joiedevieantiques.com
 joiedujour.com
-joiedumariage.tumblr.com
 joiee.googlevideo.com
 joiem.googlevideo.com
 joiemealsupport.com
@@ -125408,7 +122976,6 @@ join-microsoftcsp.com
 join-missymartinez.com
 join-morganlee.com
 join-natashastarr.com
-join-netflix.com
 join-now.cf
 join-online.de.intellitxt.com
 join-or-die.com
@@ -126038,7 +123605,6 @@ joinine.com
 joininformedmedicaldecisions.com
 joiningachurch.com
 joiningclub.com
-joiningforces.gov
 joiningforcesgov.com
 joininggotomeeting.com
 joininghandsandhearts.com
@@ -126174,7 +123740,6 @@ joinmyleadsystempro1.info
 joinmylendingteam.com
 joinmylife.com
 joinmylist.com
-joinmymatureblog.tumblr.com
 joinmymobile.com
 joinmyorg.com
 joinmyorg.net
@@ -126414,7 +123979,6 @@ joinserver.com
 joinservices.com
 joinsex.com
 joinsex.net
-joinsex08.tumblr.com
 joinsexshow.com
 joinshape.com
 joinshapesecure.info
@@ -126625,7 +124189,6 @@ jointhefans.net
 jointhefray.com
 jointhefreedommovement.com
 jointhegaurd.com
-jointhegirlgang.tumblr.com
 jointhegreen.com
 jointheharvest.com
 jointhehashtag.com
@@ -127085,7 +124648,6 @@ joivj.googlevideo.com
 joivlw.gq
 joivx.googlevideo.com
 joix.ru
-joixxx.tumblr.com
 joiyabuilders.com
 joiyc.googlevideo.com
 joiyf.googlevideo.com
@@ -127173,7 +124735,6 @@ jojmu.googlevideo.com
 jojmx.googlevideo.com
 jojnlewis.com
 jojo-blog.pl
-jojo-kiss-p720p.tumblr.com
 jojo-modellbau.de
 jojo-paige-nude.com
 jojo-romo.dk
@@ -127253,13 +124814,7 @@ jojo.net
 jojo.pl
 jojo.sexybabesx.com
 jojo.startspot.nl
-jojo0000de.tumblr.com
 jojo15000.unblog.fr
-jojo2232.tumblr.com
-jojo2fuc.tumblr.com
-jojo2sexy.tumblr.com
-jojo6020.tumblr.com
-jojo6983.tumblr.com
 jojo6ar7mp.com
 jojo_guitarman99.com-fr26.net
 jojoash.com
@@ -127277,7 +124832,6 @@ jojobas.com
 jojobatours.com
 jojobear.com
 jojobecker.com
-jojobelle91.tumblr.com
 jojobet.com
 jojobet45.bid
 jojobob.no-ip.biz
@@ -127288,20 +124842,17 @@ jojobrand.net
 jojobunny.com
 jojoche.net
 jojocheng.com
-jojocho.tumblr.com
 jojocicily.ru
 jojocircus.com
 jojoclements.vinnicrystal.com
 jojoclub.com
 jojoco.com
 jojocreates.com
-jojodancer4u.tumblr.com
 jojodb.com
 jojode.com
 jojodefreq.com
 jojodesign.com.pl
 jojodu62.centerblog.net
-jojoe1243.tumblr.com
 jojoeffekt.eu
 jojoen.com
 jojoer.com
@@ -127325,7 +124876,6 @@ jojokids.com
 jojokitty.chezfynney.alinebnjmn.toress.georgiannar
 jojokitty.chezfynney.alinebnjmn.toress.georgiannaroshelle.com
 jojolapin.com
-jojolesbiana.tumblr.com
 jojolife.com
 jojolouisvuittonshops.com
 jojolove.com
@@ -127347,7 +124897,6 @@ jojoparis.com
 jojopepp.com
 jojopffc5fhumi.kocezereokoq.info
 jojophotos.com
-jojophoug.tumblr.com
 jojoplace.com
 jojopo.com
 jojorecords.com
@@ -127369,7 +124918,6 @@ jojoslinks.com
 jojosmassage.co.uk
 jojosparkles.com
 jojoss.com
-jojosstockings.tumblr.com
 jojostudio.com
 jojostyle.com
 jojosuicide.com
@@ -127399,7 +124947,6 @@ jojst.googlevideo.com
 joju.net
 jojunkie.com
 jojurffc5fyipox.kocezereokoq.info
-jojutlagay.tumblr.com
 jojutlaradio.com
 jojux.com
 jojux.net
@@ -127535,7 +125082,6 @@ jokemature.com
 jokemedic.ru.com
 jokemegreat.com
 jokemoe.net
-jokemonster.com
 jokemore.net
 jokemrt.com
 jokemsu.us
@@ -127571,7 +125117,6 @@ joker-inc.com
 joker-kretowiny.pl
 joker-man.com
 joker-prawojazdy.pl
-joker-riddler-batman.tumblr.com
 joker-shopping.com
 joker-sport.com
 joker-tattoo.by
@@ -127587,10 +125132,7 @@ joker.podzone.net
 joker08565.friendpages.com
 joker1.linkpc.net
 joker1180.8u.cz
-joker3223.tumblr.com
-joker4lifeadx.tumblr.com
 joker500.mywire.org
-joker52186.tumblr.com
 joker7.com
 jokeradult.com
 jokerandthief.com
@@ -127625,7 +125167,6 @@ jokerdesign.com
 jokerdog.com
 jokerdomains.com
 jokereport.com
-jokereugene.tumblr.com
 jokerfest.com
 jokerflash.ru
 jokerfood.com
@@ -127980,7 +125521,6 @@ jokkp.googlevideo.com
 jokku.googlevideo.com
 jokkulitmobil.com
 jokkx.googlevideo.com
-joklah67.tumblr.com
 joklein.com
 joklu.com
 jokman.com
@@ -128135,12 +125675,10 @@ joldon.com
 joldr.com
 jole.com
 jolea.com
-joleanaliya.tumblr.com
 jolebatch.com
 joledesign.com
 joleemechelle.ru
 joleemolee.com
-joleen-burghart.tumblr.com
 joleenariel.ru
 joleendorolisa.ru
 joleenkellia.com
@@ -128417,7 +125955,6 @@ joliejfpourjfsodo.i-gloo.net
 joliejolie.com
 joliejulie.com
 jolieking.com
-jolielangue.tumblr.com
 jolielingerie.canalblog.com
 jolielingerie.com
 joliemaisvicie.livejournal.com
@@ -128452,7 +125989,6 @@ jolierose.com
 jolierousse.net
 jolies-amateurs.com
 jolies-amatrices.com
-jolies-asian-girls.tumblr.com
 jolies-asiatiques.com
 jolies-beurettes.biz
 jolies-beurettes.com
@@ -128463,7 +125999,6 @@ jolies-cochonnes.com
 jolies-coquines.net
 jolies-culs.com
 jolies-femmes-en-collants.com
-jolies-femmes-en-photo.tumblr.com
 jolies-femmes-nues.com
 jolies-femmes-nues.net
 jolies-femmes-nues.ws
@@ -128537,7 +126072,6 @@ joliesfillesnues.com
 joliesfillesnues.net
 joliesfotos.multimania.com
 joliesgarces.com
-jolieshistoires.tumblr.com
 joliesjambettes.canalblog.com
 jolieslingerie.com
 joliesminettes.be
@@ -128637,7 +126171,6 @@ jolirete.info
 jolis-clitos.com
 jolis-culs.com
 jolis-dessous.com
-jolis-garcons.tumblr.com
 jolis-minous.com
 jolis-seins.com
 jolis-seins.net
@@ -128660,9 +126193,7 @@ jolisseinsfr.centerblog.net
 jolissites.com
 jolite.co.uk
 joliteens.com
-jolitrav.tumblr.com
 joliu.googlevideo.com
-joliver14.tumblr.com
 joliversouza.sites.uol.com.br
 jolivia.fr
 jolivillage.com
@@ -128670,8 +126201,6 @@ jolivin.com
 joliwood.com
 jolix.googlevideo.com
 jolixchristianartist.com
-jolixtools.s3.amazonaws.com
-jolj94500.tumblr.com
 jolk.cz.cc
 jolka.com
 jolks.com
@@ -128694,7 +126223,6 @@ jolleyrogersrv.com
 jolleys.net
 jolleyvtchurch.com
 jolli-fi.com
-jollibae.tumblr.com
 jollibee.com.ph
 jollibeer.com
 jollicandy.com
@@ -128732,11 +126260,9 @@ jolly-harbour-marina.com
 jolly-jack.de
 jolly-joker.com
 jolly-jumpers.de
-jolly-ladyboy.tumblr.com
 jolly-light.cloudvent.net
 jolly-shop.com
 jolly-tube.com
-jolly-xxx.tumblr.com
 jolly-yachting.com
 jolly.googlevideo.com
 jolly5pro.com
@@ -128762,8 +126288,6 @@ jollybombs.com
 jollybooth.com
 jollybootsofdoom.net
 jollybox.co.uk
-jollyboy.tumblr.com
-jollyboy900.tumblr.com
 jollybr.us
 jollybrothers.com
 jollybutcher.com
@@ -128864,7 +126388,6 @@ jollylight.com
 jollylimo.com
 jollyliving.com
 jollylodger.com
-jollylollylily.tumblr.com
 jollylondon.com
 jollylove.info
 jollymadison.com
@@ -128874,7 +126397,6 @@ jollymedical.com
 jollymodel.com
 jollymom.com
 jollymonsailing.com
-jollymount.tumblr.com
 jollymove.xyz
 jollynetwork.com
 jollynews.com
@@ -128893,7 +126415,6 @@ jollypostman.com
 jollyproxy.com
 jollypulizie.com
 jollypussy.com
-jollypussy.tumblr.com
 jollyqa.us
 jollyrancherprox.info
 jollyrancherproxy.info
@@ -128923,8 +126444,6 @@ jollys.com
 jollysex.com
 jollysfree.com
 jollyshandy.com
-jollyshemale.tumblr.com
-jollyshemale4.tumblr.com
 jollyshop.biz
 jollyski.it
 jollysmoker.com
@@ -128945,7 +126464,6 @@ jollytoddler.com
 jollytot.com
 jollytoys.com
 jollytrade.net
-jollytree.tumblr.com
 jollytt.us
 jollyvaper.com
 jollyville.com
@@ -129051,7 +126569,6 @@ jolthealth.com
 jolthotel.com
 joltid.com
 joltiest.us
-joltits.tumblr.com
 joltitv.com
 joltivan.com
 joltk.googlevideo.com
@@ -129105,7 +126622,6 @@ joly-golf-tours.de
 joly.zapto.org
 jolyb.googlevideo.com
 jolydeirdre.ru
-jolydixie.tumblr.com
 jolye.com
 jolye.googlevideo.com
 jolyg.googlevideo.com
@@ -129121,7 +126637,6 @@ jolynnlilah.in
 jolynnsullivan.com
 jolyroom.com
 jolyscortinas.com.br
-jolyshemales.tumblr.com
 jolyursola.asia
 jolyuuaz.cuyxauupi.3inchesnow.ru
 jolzb.googlevideo.com
@@ -129141,9 +126656,7 @@ jom006.site
 jom007.site
 jom008.site
 jom009.site
-jom8-deactivated20131021.tumblr.com
 jom8.com
-jom8.tumblr.com
 jom88.com
 jom9re.ser.liveadreamlifestyle.com
 jomaa.com
@@ -129155,7 +126668,6 @@ jomafrocpiziyib.jutagereolajic.com
 jomafroczurelis.jefeqretasij.com
 jomah.com
 jomah.googlevideo.com
-jomaha15.tumblr.com
 jomahtech.com
 jomail.com
 jomajaco.com
@@ -129204,7 +126716,6 @@ jombo.ru
 jomboct.chez.com
 jombogroup.com
 jomboinvestmenttittle.org
-jomc.unc.edu
 jomcc.googlevideo.com
 jomcchesney.com
 jomcgowan.com
@@ -129298,19 +126809,16 @@ jomoj.com
 jomokudez.cn
 jomol.com
 jomoma.com
-jomomojo.tumblr.com
 jomomsen.com
 jomon-bidogu.com
 jomondo.net
 jomoney.com
 jomoni.com
-jomonster.com
 jomoonru.blog.com
 jomop.googlevideo.com
 jomor.googlevideo.com
 jomori.com
 jomos.ch
-jomosexualfication.tumblr.com
 jomoshop.com
 jomotours.de
 jomotrailers.com
@@ -129404,7 +126912,6 @@ jon-zimmerman.com
 jon.marjgeorgianne.com
 jon.net
 jon.vharris.thehaze.alral.sybyljosefa.com
-jon07.tumblr.com
 jon14-88.narod.ru
 jon44w.com
 jonaa.com
@@ -129576,17 +127083,14 @@ jonasdick.blogspot.sn
 jonasdick.blogspot.tw
 jonasdick.blogspot.ug
 jonasent.net
-jonasfakesex.tumblr.com
 jonasgbian.com
 jonasgomes.com
 jonashallgrimsson.com
 jonashansen.com
 jonashanssondk.mytowntoolbar.com
-jonashlong.tumblr.com
 jonashomes.com
 jonashornqvist.com
 jonasinfo.ch
-jonasistgeil.tumblr.com
 jonasjerebko33.com
 jonasjonas.com
 jonasjurasas.com
@@ -129683,7 +127187,6 @@ jonassmail.com
 jonassoftware.actonsoftware.com
 jonassulzbach.com
 jonast.com
-jonastina.tumblr.com
 jonastunnell.com
 jonasusiredyj.tk
 jonasy.com
@@ -129698,20 +127201,15 @@ jonathan-churchill.com
 jonathan-cruiser.com
 jonathan-delarosa.com
 jonathan-donaghy.us
-jonathan-ejaculation.tumblr.com
-jonathan-gay-amateur-vids.tumblr.com
-jonathan-gay-gifs.tumblr.com
 jonathan-gilmore.com
 jonathan-gunning.us
 jonathan-killingsworth.us
-jonathan-leo.tumblr.com
 jonathan-llanos.in
 jonathan-mayorga.us
 jonathan-padro.us
 jonathan-reid-gealt.com
 jonathan-root.com
 jonathan-saunders.com
-jonathan-str8-guys-acting-gay.tumblr.com
 jonathan-tong.com
 jonathan-web.de
 jonathan-web.net
@@ -129802,7 +127300,6 @@ jonathandorga.kelilamagda.com
 jonathandstephens.com
 jonathandukes.com
 jonathandunkle.com
-jonathanecko.tumblr.com
 jonathanelbaz.com
 jonathanelee.com
 jonathanengler.com
@@ -129827,7 +127324,6 @@ jonathanfuller.com
 jonathangall.com
 jonathangarner.com
 jonathangault.com
-jonathangaylove.tumblr.com
 jonathangirard.com
 jonathangomez.com
 jonathangough.com
@@ -130069,7 +127565,6 @@ jonbdgzs1.000webhostapp.com
 jonbe.com
 jonbeardphotography.com
 jonbehrensfilms.com
-jonbehrxxx.tumblr.com
 jonbelinkie.com
 jonben.com
 jonbesh.com
@@ -130082,7 +127577,6 @@ jonbock.com
 jonbovi.com
 jonbowerbank.com
 jonbowie.com
-jonboyz50.tumblr.com
 jonbpol.com
 jonbrewer.com
 jonbrumit.com
@@ -130092,7 +127586,6 @@ jonburn.co.uk
 jonbwwikiu.net
 jonca.com
 joncarterlope.pl
-joncat71.tumblr.com
 joncee.com
 joncels.com
 joncesaters.com
@@ -130141,7 +127634,6 @@ jondi.googlevideo.com
 jondi.ru
 jondinyc.com
 jondiwhitis.com
-jondkink.tumblr.com
 jondl.googlevideo.com
 jondo.googlevideo.com
 jondon.com
@@ -130176,7 +127668,6 @@ jonelimutan.com
 jonell.info
 jonellclementina.com
 jonellebrooks.com
-jonellecap59.tumblr.com
 jonellelfreda.com
 jonellis.net
 jonelyorkies.com
@@ -130199,7 +127690,6 @@ jones-sands-publishing.com
 jones-the-grocers.com
 jones-web.com
 jones-world.com
-jones.edu
 jones.net.au
 jones.suprnova.cc
 jones2.com
@@ -130287,7 +127777,6 @@ jonescook.com
 jonescorner.com
 jonescounseling.com
 jonescountygis.com
-jonescountync.gov
 jonescreditcard.com
 jonescreekbaptist.com
 jonescreekfarm.com
@@ -130296,12 +127785,10 @@ jonescrossroads.com
 jonescuttinghorses.com
 jonescycles.com
 jonesdaniel.com
-jonesdante18.tumblr.com
 jonesdds.com
 jonesdeerfarm.com
 jonesdeini.com
 jonesdigital.com
-jonesdirt.tumblr.com
 jonesdiscount.com
 jonesdoublereed.com
 joneselectronics.com
@@ -130339,7 +127826,6 @@ jonesinfo.com
 jonesinforcoupons.com
 jonesink.com
 jonesinsurancegroup.com
-jonesinternational.edu
 jonesit.com
 jonesjersey.blog.com
 jonesjewellery.com
@@ -130355,7 +127841,6 @@ joneslawyer.com
 joneslegalgroup.com
 joneslights.co.uk
 jonesline.com
-joneslockerxxx.tumblr.com
 joneslogin.co.uk
 joneslondon.com
 jonesmailbox.com
@@ -130370,11 +127855,9 @@ jonesmimi.me
 jonesmining.com
 jonesmoore.com
 jonesmugshots.com
-jonesn4cock.tumblr.com
 jonesnews.net
 jonesnewsletter.com
 jonesnforcoupons.net
-jonesnorm99.tumblr.com
 jonesok.com
 jonesong.com
 jonesonline.com
@@ -130431,7 +127914,6 @@ jonesvaluation.com
 jonesvilleamezion.com
 jonesvillebaptist.com
 jonesvillebaptistchurch.com
-jonesvillenc.gov
 joneswaku.blog.com
 joneswalkerfurniture.com
 joneswallker.com
@@ -130440,7 +127922,6 @@ joneswebb.com
 joneswhile.com
 joneswilsoninsurance.com
 jonesy.info
-jonesy76o.tumblr.com
 jonesyswoodproducts.com
 jonesyweb.com
 jonet.org
@@ -130453,7 +127934,6 @@ jonew.com
 jonewholesale.info
 jonewton.com
 jonex.strefa.pl
-joneyboy12.tumblr.com
 joneyharper.tripod.com
 jonezo-inc.me
 jonf-wuolds.com
@@ -130630,7 +128110,6 @@ jongesextieners.nl
 jongesletjes.nl
 jongesletten.be
 jongesletten.nl
-jongesongsonge.tumblr.com
 jongestudentes.nl
 jongeteeners.nl
 jongetienerhoeren.nl
@@ -130701,7 +128180,6 @@ jongvldkortrijk.com
 jongwee.com
 jongy.com
 jongzuigt.nl
-jonhall75.tumblr.com
 jonhancock.com
 jonhannah.com
 jonharrisontaylor.net
@@ -130755,7 +128233,6 @@ jonijanessa.ru
 jonik.googlevideo.com
 jonike.com
 jonimabe.com
-jonimalcriau.tumblr.com
 jonimarietheodorsen.com
 jonimendes.com
 jonin.googlevideo.com
@@ -130788,10 +128265,7 @@ jonjo.ga
 jonjo.life
 jonjohnnc.com
 jonjomcnally.com
-jonjon6669.tumblr.com
-jonjonboiboi.tumblr.com
 jonjonn.leesatootsie.com
-jonjonssexyside.tumblr.com
 jonjonsson.com
 jonjontraxx.com
 jonjonwoods.com
@@ -130850,7 +128324,6 @@ jonly.com
 jonlyponly.com
 jonlyponly.net
 jonlz.googlevideo.com
-jonmalfoy.tumblr.com
 jonmalkemus.com
 jonmarion.com
 jonmarjewelry.com
@@ -130877,7 +128350,6 @@ jonn-22.info
 jonn.net
 jonn22.com
 jonnadesign.com
-jonnafina.tumblr.com
 jonnamalinowski.com
 jonnarvisuals.co.uk
 jonnas.com
@@ -130891,20 +128363,17 @@ jonniaux.com
 jonnicholas.co.uk
 jonnicholson.com
 jonnidarkkoxxx.com
-jonnidarkkoxxx.tumblr.com
 jonnie.com
 jonnie.jouwpagina.nl
 jonnlknbtaix.com
 jonno.com
 jonnoel.com
-jonnogayboyxx.tumblr.com
 jonnos.com
 jonnospornoplaza.com
 jonnott.com
 jonns.com
 jonny.us
 jonny00.mikegeary1.hop.clickbank.net
-jonny4dad.tumblr.com
 jonny5.com
 jonnyaloha.com
 jonnyandthebaptists.com
@@ -130912,8 +128381,6 @@ jonnyangelfoundation.com
 jonnyanna.com
 jonnyappleseed.com
 jonnyasp.com
-jonnyb1488.tumblr.com
-jonnyb427.tumblr.com
 jonnybarnes.com
 jonnybary.no-ip.biz
 jonnybary.no.ip.biz
@@ -130921,10 +128388,8 @@ jonnybegood.com
 jonnyblack.com
 jonnyblack7934.net
 jonnyblogs.com
-jonnyboi77.tumblr.com
 jonnybooks.com
 jonnyborgesmusic.com
-jonnybyron.tumblr.com
 jonnycake.com
 jonnychangginc.ru
 jonnyching.com
@@ -130934,21 +128399,14 @@ jonnyclarke.com
 jonnycollis.com
 jonnycool.com
 jonnycupcake.com
-jonnydepp.tumblr.com
 jonnydev.site
 jonnydingle.edmckenzie.bexxskatemom.jairosanto.tal
 jonnydingle.edmckenzie.bexxskatemom.jairosanto.talyaaleta.com
-jonnydoright.tumblr.com
-jonnydsex.tumblr.com
-jonnyduck.tumblr.com
 jonnyeblog.com
 jonnyevans.com
 jonnyevil.com
-jonnyfck1980.tumblr.com
 jonnyfive.com
 jonnyflynn.com
-jonnyfromuk13.tumblr.com
-jonnyfuckingsniper.tumblr.com
 jonnygates.com
 jonnygrephagein.us
 jonnygrey.com
@@ -130960,11 +128418,9 @@ jonnymills.com
 jonnymorris.com
 jonnymoseley.com
 jonnymx.com
-jonnymx5.tumblr.com
 jonnyp.com
 jonnyphillips.com
 jonnyphoto.com
-jonnypiercedjunk.tumblr.com
 jonnypistolxxx.blogspot.ae
 jonnypistolxxx.blogspot.al
 jonnypistolxxx.blogspot.am
@@ -131032,24 +128488,17 @@ jonnypistolxxx.blogspot.sk
 jonnypistolxxx.blogspot.sn
 jonnypistolxxx.blogspot.tw
 jonnypistolxxx.blogspot.ug
-jonnypistolxxx.tumblr.com
 jonnyporn.com
 jonnypornmovies.com
-jonnyporno.tumblr.com
 jonnypornvideos.com
-jonnyr56.tumblr.com
-jonnyr72.tumblr.com
 jonnyreb.com
 jonnyrehnstrom.com
 jonnyrivas.com
-jonnyro.tumblr.com
 jonnys-free-gay-porn.com
 jonnys.com
 jonnyshouse.com
-jonnysmith18xxx.tumblr.com
 jonnysmw.com
 jonnysoza.com
-jonnysrocket88.tumblr.com
 jonnyswelding.com
 jonnythemonkey.com
 jonnytube.com
@@ -131142,7 +128591,6 @@ jonrowan.com
 jonroyce.com
 jonrozek.com
 jonrs.googlevideo.com
-jonrsnow.tumblr.com
 jonrutkowski.com
 jonrv.googlevideo.com
 jonry.googlevideo.com
@@ -131163,7 +128611,6 @@ jonsautorepair.com
 jonsavzimi.com
 jonsbeachhouse.com
 jonsbridal.com
-jonsbrine.tumblr.com
 jonscans.co.uk
 jonscans.com
 jonscelebworld.co.uk
@@ -131180,7 +128627,6 @@ jonserrano.com
 jonses.com
 jonsex.com
 jonsgalleries.com
-jonshieldxxx.tumblr.com
 jonshore.com
 jonsie.com
 jonsigns.com
@@ -131196,7 +128642,6 @@ jonsmail.com
 jonsmidt.cjb.net
 jonsmovies.com
 jonsnascar.spiritualitea.net
-jonsnowismydaddy.tumblr.com
 jonso.com
 jonsoftgames.com
 jonson.jogger.pl
@@ -131207,12 +128652,10 @@ jonspight.com
 jonspocketcottage.com
 jonsq.com
 jonssonmail.com
-jonstark66.tumblr.com
 jonsteen.com
 jonsteenpics.freeservers.com
 jonsteinar.com
 jonstern.net
-jonstewartfuckyeah.tumblr.com
 jonstewartweb.com
 jonstravelguides.com
 jonstravelreviews.com
@@ -131241,7 +128684,6 @@ jonto.googlevideo.com
 jontoon.com
 jontore.com
 jontr.googlevideo.com
-jontraser.tumblr.com
 jontrickey.com
 jontrickey.net
 jontt.googlevideo.com
@@ -131304,7 +128746,6 @@ jonyuen.net
 jonyxui.toh.info
 jonz.phlort.ru
 jonzacgites.com
-jonzdad.tumblr.com
 jonzen.com
 jonzer.com
 jonzestarrbaby.blogspot.ae
@@ -131893,7 +129334,6 @@ joostforum.com
 joostgroot.com
 joosthistory.com
 joosthuver.com
-joostin1313.tumblr.com
 joostina.com
 joostinc.com
 joostkeijl.glromans.willygotts.philcoker.jadabetta
@@ -132320,7 +129760,6 @@ jordan--capri.com
 jordan--shoes.org
 jordan-11-shoes.org
 jordan-11.us.com
-jordan-1819.tumblr.com
 jordan-2.com
 jordan-baden.us
 jordan-bolling.us
@@ -132410,8 +129849,6 @@ jordan-compton.com
 jordan-concords.com
 jordan-elliot.com
 jordan-for-sale.com
-jordan-g-world.tumblr.com
-jordan-handjob.tumblr.com
 jordan-henriquez.us
 jordan-holylandexplorer.com
 jordan-houlihan.in
@@ -132428,7 +129865,6 @@ jordan-shoes.net.co
 jordan-shoes2015.com
 jordan-shoescheap.net
 jordan-shop.com
-jordan-skye-pornstar.tumblr.com
 jordan-stables.com
 jordan-stamper.in
 jordan-tc.com
@@ -132446,7 +129882,6 @@ jordan.intrinsicality.org
 jordan.monclit.com
 jordan.pl
 jordan112013.com
-jordan1156.tumblr.com
 jordan11bred.us
 jordan11concordonlinesale.com
 jordan11hotsale.com
@@ -132492,7 +129927,6 @@ jordan1tokyosale.com
 jordan2013outlet.com
 jordan23-shoes.com
 jordan23.com
-jordan23returns.tumblr.com
 jordan247.com
 jordan4.com
 jordan42012.net
@@ -132620,7 +130054,6 @@ jordanapartments.com
 jordanartist.com
 jordanas.com
 jordanasands.com
-jordanashcockworship.tumblr.com
 jordanatjp.com
 jordanaustralia.com
 jordanaustraliasalehot.com
@@ -132936,7 +130369,6 @@ jordandesertcup.co.uk
 jordandgarcia.com
 jordandirecttours.com
 jordandomains.com
-jordandominicoxxx.tumblr.com
 jordandowney.com
 jordandowney.net
 jordanduffy.com
@@ -132979,7 +130411,6 @@ jordanforbes.com
 jordanforum.net
 jordanfoster.com
 jordanfoundation.com
-jordanfoxxx.tumblr.com
 jordanfr.com
 jordanfr5.com
 jordanfrancepascher.com
@@ -133045,7 +130476,6 @@ jordanhousing.com
 jordanhowlett.com
 jordanhughey.com
 jordanhulls.com
-jordanhumpsalot.tumblr.com
 jordania.uw.hu
 jordanian-migration.com
 jordanianarabic.com
@@ -133218,7 +130648,6 @@ jordanpounds.com
 jordanpowersoutletjp.com
 jordanpro.com
 jordanpruitt.com
-jordanpryce.tumblr.com
 jordanpugh.com
 jordanpundik.com
 jordanqualk.com
@@ -133530,11 +130959,7 @@ jordriekwel.com
 jordslen.com
 jordwanpir.com
 jordy-dost.com
-jordyaholic.tumblr.com
-jordybear5t.tumblr.com
-jordyboixxx.tumblr.com
 jordydesigns.com
-jordygay.tumblr.com
 jordykline.com
 jordynandblake.com
 jordynandchristian.com
@@ -133562,7 +130987,6 @@ joredii.com
 joredxfg.cf
 joreean.us
 joreeves.com
-joreezee.tumblr.com
 joref.googlevideo.com
 joreg.googlevideo.com
 joregen.mahostia.com
@@ -133625,7 +131049,6 @@ jorgearodriguez.com
 jorgearrambide.com
 jorgeart.com
 jorgeavena.com
-jorgeb0210.tumblr.com
 jorgebarbosa.com
 jorgebarco.diary-x.com
 jorgebarontelevision.com.co
@@ -133677,7 +131100,6 @@ jorgefilho.com
 jorgeflorencio.com.br
 jorgefossati.com
 jorgefranco.com.br
-jorgefullsex.tumblr.com
 jorgeg.com
 jorgegabriel.com
 jorgegallegos.com
@@ -133686,7 +131108,6 @@ jorgegarcia.net
 jorgegarciainsurance.com
 jorgegarciarealtor.com
 jorgegaviria.com
-jorgegbarba.tumblr.com
 jorgegranada.com
 jorgegurgel.com
 jorgeh.com
@@ -133938,7 +131359,6 @@ jorgezeno.com
 jorgezuluaga.com
 jorginza.com
 jorgio.com
-jorgosalmani.tumblr.com
 jorgphilipp.com
 jorgroup.com
 jorgs.com
@@ -133993,7 +131413,6 @@ jorito.com
 jorivi47bd6qulinu.kagrereyaze.info
 joriyikue0d38yus.jiforeokowa.com
 joriyixoffc5fpuhovot.kocezereokoq.info
-jorja1961.tumblr.com
 jorjee.com
 jorjfix.ru
 jorjodika.com
@@ -134159,10 +131578,8 @@ jornsguesthouse.co.za
 jorobiz.palomaviviebab.com
 joroeirn.com
 joroi.com
-jorok1337.tumblr.com
 joroku.com
 jorokusgtjgnxbhb.pw
-jorolovesex.tumblr.com
 joromi.com
 joropos.com
 joror.com
@@ -134199,7 +131616,6 @@ jorryalexina.ru
 jorryanthia.com
 jorryjacqui.com
 jorsan.com
-jorsantoni.tumblr.com
 jorsc.googlevideo.com
 jorse.com
 jorse.us
@@ -134356,7 +131772,6 @@ josalon.com
 josananda.com
 josandden.com
 josanjo.com
-josanvepe.tumblr.com
 josanyorkiesmaltese.com
 josar.free.fr
 josasjellies.com
@@ -134400,7 +131815,6 @@ josdeb.com
 josdemon.flirtmoi.com
 josdevogelaer.be
 josdiner.com
-jose-chess.sourceforge.net
 jose-christian.com
 jose-cupps.us
 jose-enrique.com
@@ -134423,7 +131837,6 @@ jose01.tk
 jose2.univerlas.com
 jose200495fgts.com
 jose2017.com
-jose6806.tumblr.com
 joseagar.co.nz
 joseagostinhobaptista.com
 josealamo.com
@@ -134485,12 +131898,10 @@ josebrito.com
 josebritoenglishtaxi.com
 josebrooks.com
 josebrothers.com
-josebrown2.tumblr.com
 joseburgos.com
 josebyamukama.com-wy16.net
 josecalazans.com
 josecaldas.fot.br
-josecalixtro.tumblr.com
 josecampagna.com
 josecampana.com
 josecanseco.com
@@ -134519,7 +131930,6 @@ josecontracts.com
 josecouso.info
 josecristobal.com
 josecross.com
-josecuck.tumblr.com
 josecuevas.com
 josedaryl.dlinkddns.com
 josedefreitas.com
@@ -134531,7 +131941,6 @@ josedesign.com
 josedias.com
 josediego.com
 josedolar.com
-josedun.tumblr.com
 josedurante.com
 josee-persians.com
 joseeanne.com
@@ -134548,7 +131957,6 @@ joseemelisa.com
 joseeplaypen.com
 joseevans.com
 josef.us
-josefa599.tumblr.com
 josefandreas.com
 josefboquoi.com
 josefchurch.com
@@ -134599,7 +132007,6 @@ josefine-sweet.us
 josefine-syverson.us
 josefine-turley.us
 josefine.de
-josefinejonsson.tumblr.com
 josefines.com
 josefingarage.com
 josefino.com
@@ -134656,7 +132063,6 @@ josehemuda.com
 josehess.com
 josehua.com
 josei.com
-joseiam88.tumblr.com
 joseibi.com
 joseiglesias.com
 joseiki.com
@@ -134761,14 +132167,12 @@ joselook.blogspot.sn
 joselook.blogspot.tw
 joselook.blogspot.ug
 joselorenzo.com
-joselos.tumblr.com
 joselu.eu
 joselugo.com
 joseluis.webcindario.com
 joseluisarmesto.com
 joseluiscarrasco.com
 joseluiscasal.com
-joseluisduran6442.tumblr.com
 joseluisfern.biz
 joseluisgonzalez.net
 joseluislandry.com
@@ -134776,10 +132180,8 @@ joseluislopez.com
 joseluislosada.com
 joseluismanzano.com
 joseluismendoza.net
-joseluismo1968.tumblr.com
 joseluisperezservicioslegales.com
 joseluisponce.com
-joseluisrubira1.tumblr.com
 joseluiszalazar.com
 joseluz.com
 joselyndumas.com
@@ -134854,7 +132256,6 @@ joseokeefe.rockmanbvc.raysherrybentley.kkreilly.da
 joseokeefe.rockmanbvc.raysherrybentley.kkreilly.dannyesilvie.com
 joseoliveras.com
 joseolmo.com
-joseomus.tumblr.com
 joseonjok.com
 joseonpe.5gbfree.com
 josep.googlevideo.com
@@ -134880,12 +132281,9 @@ josepdeharo.blogspot.no
 josepdeharo.blogspot.pt
 josepdeharo.blogspot.sk
 josepdomingo.com
-josepeacock.tumblr.com
 joseperalta.com
 joseperdomomusic.com
-joseperezcastano.tumblr.com
 josepfornell.com
-josepgabarros.tumblr.com
 joseph-castanon.com
 joseph-churchill.com
 joseph-fabry.us
@@ -134910,8 +132308,6 @@ joseph.capital
 joseph.d.free.fr
 joseph.rapson.qcmnd.scapegoat.flpropertypublicadjuster.com
 joseph.rehgo.org
-joseph1posts.tumblr.com
-joseph2362.tumblr.com
 josephabolling.com
 josephahenry.com
 josephalcala.com
@@ -134956,7 +132352,6 @@ josephberman.com
 josephbernadel.com
 josephbeth.com
 josephbinder.com
-josephblkbull.tumblr.com
 josephblog.com
 josephbogradteam.com
 josephbot.com
@@ -135084,7 +132479,6 @@ josephgriffin.com
 josephgriffin.net
 josephgriffinjr.com
 josephgrodinsky.com
-josephgsugg.tumblr.com
 josephgtownsend.com
 josephguido.com
 josephgutizpublishing.com
@@ -135121,7 +132515,6 @@ josephine-delozier.us
 josephine-deltoro.us
 josephine-eusebio.us
 josephine-geise.us
-josephine-gilbert.tumblr.com
 josephine-gilmour.in
 josephine-guajardo.us
 josephine-gullo.us
@@ -135238,7 +132631,6 @@ josephlong.pentra.gbtes.clovis.helenkacordula.com
 josephloren.com
 josephlorenz.com
 josephlove.com
-josephloveer.tumblr.com
 josephlovefilms.com
 josephlovemedia.com
 josephloveproductions.com
@@ -135248,7 +132640,6 @@ josephmai.com
 josephmail.net
 josephmangan.com
 josephmary.com
-josephmasters.tumblr.com
 josephmathis.com
 josephmcevoy.com
 josephmckee.com
@@ -135282,7 +132673,6 @@ josephnorton.com
 josephofarrell.com
 josepholibrice.com
 josephong.com
-josephornication.tumblr.com
 josephosborn.com
 josephpacker.com
 josephpamic.com
@@ -135293,7 +132683,6 @@ josephphelpsinsignia.com
 josephphichitchurch.com
 josephpittman.com
 josephplunkett.com
-josephpmorganda.tumblr.com
 josephpolytechnic.com
 josephpontiac.com
 josephpopper.com
@@ -135379,7 +132768,6 @@ josephsu.com
 josephsullo.com
 josephswiger.com
 josephswoodgalleria.com
-josepht1990.tumblr.com
 josephtailoring.com
 josephtennis.ch
 josephtennison.com
@@ -135416,7 +132804,6 @@ josephzbarry.com
 josephzhou.com
 josephzizzo.com
 josephzooey.com
-josepiaca.tumblr.com
 josepires.com
 josepisanta.com
 josepo.com
@@ -135462,7 +132849,6 @@ josesoler.com
 josesoto.net
 josesplace.com
 josesusumoazano.com
-joseswifeniceass.tumblr.com
 josetadeucoraleorquestra.com.br
 joseteixeira.com
 joseteran.com
@@ -135493,9 +132879,7 @@ josevis.com
 josewilliams.com
 josex.com
 josex.de
-josexoso.tumblr.com
 josexy.com
-josey76.tumblr.com
 joseyada.co.tv
 joseycues.com
 joseydelaw.com
@@ -135519,7 +132903,6 @@ josfs.googlevideo.com
 josga.com
 josgaublfyagvkrci.com
 josgerards.com
-josh-1233.tumblr.com
 josh-e-junoon.com
 josh-epstein.com
 josh-hartnett.star-sites.com
@@ -135528,8 +132911,6 @@ josh-w.ehealthnewsry.ru
 josh.bakehorn.net
 josh.com-uj82.net
 josh.xpornmaster.com
-josh199505.tumblr.com
-josh78blog.tumblr.com
 joshadvisor.com
 joshahbe.blog.com
 joshalden.com
@@ -135551,14 +132932,11 @@ joshandterra.com
 joshandwhitneychurch.com
 joshangrisano.com
 joshansports.com
-joshapple.com
 josharcher.com
 joshard.com
 josharieh.com
 josharp.com.au
-joshasfuck.tumblr.com
 joshay.com
-joshaymond.tumblr.com
 joshba.com
 joshbach.com
 joshbaptista.com
@@ -135586,7 +132964,6 @@ joshbob.com
 joshbone.com
 joshborges.com
 joshbourke.com
-joshboybutts.tumblr.com
 joshbragg.com
 joshbray.com
 joshbrickeydesign.com
@@ -135606,10 +132983,8 @@ joshc.googlevideo.com
 joshcabo.com
 joshcahan.com
 joshcamlive.com
-joshcashmoney60s.tumblr.com
 joshcatalanodesign.com
 joshchanfee.com
-joshchavy69.tumblr.com
 joshchristian.com
 joshchristianmusic.com
 joshchurch.com
@@ -135617,10 +132992,7 @@ joshchurchin.com
 joshchurchrealty.com
 joshchurchsthetruth.com
 joshcoffman.net
-joshcole21.tumblr.com
-joshcolt.tumblr.com
 joshcomeauxhair.com
-joshconnersfanclubxxx.tumblr.com
 joshcoombs.com
 joshcoulson.co.uk
 joshcraigmotox.com
@@ -135641,12 +133013,10 @@ joshcubexxx.blogspot.mx
 joshcubexxx.blogspot.no
 joshcubexxx.blogspot.pt
 joshcubexxx.blogspot.sk
-joshcums.tumblr.com
 joshdavis.com
 joshdeal.com
 joshdeals.com
 joshdean.com
-joshdelarosaa.tumblr.com
 joshdellay.com
 joshdfarris.com
 joshdillon.com
@@ -135674,7 +133044,6 @@ joshenlee.com
 joshephine.themejedi.com
 joshexists.com
 joshexplorer.co.za
-josheyness.tumblr.com
 joshf.googlevideo.com
 joshfamily.com
 joshfarro.com
@@ -135696,11 +133065,9 @@ joshginter.com
 joshgivens.com
 joshgolladay.com
 joshgorban.com
-joshgotlength.tumblr.com
 joshgould.com
 joshgraymedia.com
 joshgriggs.com
-joshgrimm97.tumblr.com
 joshgrin.com
 joshgroban.com
 joshgrobanconcertickets.com
@@ -135713,7 +133080,6 @@ joshhack.com
 joshhaile.com
 joshhamilton.com
 joshhamiltonstory.com
-joshhardwood.tumblr.com
 joshharp.com
 joshharveyclemons.com
 joshheard.com
@@ -135732,12 +133098,9 @@ joshhomes.com
 joshhuahh.com
 joshhuestis.com
 joshhuntracing.com.au
-joshhutchersn.tumblr.com
 joshhutchersonfan.com
 joshhutchersonnews.com
-joshhyschlong.tumblr.com
 joshi-ana.com
-joshi-loves-guys.tumblr.com
 joshi.org
 joshian.com
 joshiana.com
@@ -135754,7 +133117,6 @@ joshigynechospital.com
 joshiinfotech.com
 joshik.com
 joshikosei.com
-joshileybandey.tumblr.com
 joshilynjackson.com
 joshimo.com
 joshin.co.jp
@@ -135772,7 +133134,6 @@ joshisoccer.net
 joshison.com
 joshisthebest.com
 joshiteam.com
-joshitx.tumblr.com
 joshiwap.tk
 joshiweb.com
 joshjacksonphoto.com
@@ -135808,9 +133169,7 @@ joshlin.com
 joshliston.com
 joshlkirk.com
 joshlongdirector.com
-joshlonger10.tumblr.com
 joshlovescarolina.com
-joshluvzboyz.tumblr.com
 joshm.com
 joshm.us
 joshmachine.com
@@ -135839,13 +133198,11 @@ joshmendelsohnsux.com
 joshmeth.com
 joshmetz.com
 joshmetzler.com
-joshmilkxxx.tumblr.com
 joshmill.com
 joshmilne.com
 joshmilton.com
 joshminer.com
 joshmouch.com
-joshmuratori.tumblr.com
 joshn.googlevideo.com
 joshna.com
 joshnapier.com
@@ -135872,7 +133229,6 @@ joshparsons.com
 joshpascoe.com
 joshpatton.com
 joshpauljones.com
-joshpeck.tumblr.com
 joshpeeves.com
 joshperlman.com
 joshpoker.com
@@ -135887,7 +133243,6 @@ joshrants.com
 joshreddick.com
 joshredlowsk.com
 joshredlowsk.net
-joshreed439.tumblr.com
 joshreich.com
 joshreinhardt.com.au
 joshreisman.com
@@ -135907,8 +133262,6 @@ joshrubinphotography.com
 joshrubinphotography.net
 joshrubio.com
 joshryanblog.com
-joshryansblog.tumblr.com
-joshs-left-earlobe.tumblr.com
 joshs.org
 joshsale.com
 joshsamara.com
@@ -135931,14 +133284,12 @@ joshsjournal.com
 joshsklar.com
 joshslone.com
 joshsmail.com
-joshsmutcherson.tumblr.com
 joshsolomon.com
 joshsongs.com
 joshsorensen.com
 joshsoutham.com
 joshspage.com
 joshspiegelfanclub.com
-joshspookydun.tumblr.com
 joshsporn.com
 joshspringer.com
 joshstacy.com
@@ -135947,7 +133298,6 @@ joshsteinmetz.com
 joshstern.com
 joshstone.com
 joshstonexxx.com
-joshstonexxx.tumblr.com
 joshstonexxx.wordpress.com
 joshstrong.com
 joshstuff.com
@@ -135986,11 +133336,9 @@ joshua.com
 joshua.conflux.org
 joshua.healthgarciniauldm.ru
 joshua.lougon.bloggarcinialheck.eu
-joshua10nbed.tumblr.com
 joshuaaaron.net
 joshuaalan.com
 joshuaalexander.com
-joshuaandbabygirl.tumblr.com
 joshuaanglero.com
 joshuaaslansmith.com
 joshuabacon.com
@@ -136102,7 +133450,6 @@ joshuahamm.com
 joshuahardman.com
 joshuahardy.com
 joshuahartzell.com
-joshuahaugaaf511338.tumblr.com
 joshuahaywood.com
 joshuahead.com
 joshuaheath.com
@@ -136183,12 +133530,10 @@ joshuaorton.com
 joshuaowings.com
 joshuapacheco.com
 joshuapaintings.com
-joshuaparkerspage.tumblr.com
 joshuapatterson.com
 joshuapatton.com
 joshuapena.com
 joshuapeninger.com
-joshuapharrellxxx.tumblr.com
 joshuaphoto.com
 joshuapitts.com
 joshuaporn.com
@@ -136243,7 +133588,6 @@ joshuasway.com
 joshuatabenraclebaptist.com
 joshuathemovie.com
 joshuathomas.co.uk
-joshuathompson20.tumblr.com
 joshuathunderbird.com
 joshuatjones.com
 joshuatorres.com
@@ -136321,17 +133665,10 @@ joshwinot.com
 joshwoodford.embrey.herbbranson.dhondts.carilynmar
 joshwoodford.embrey.herbbranson.dhondts.carilynmarna.com
 joshworld.com
-joshxyox.tumblr.com
 joshy.googlevideo.com
-joshy5678.tumblr.com
-joshyhighrollr.tumblr.com
-joshymdb.tumblr.com
 joshyudell.com
-joshyyyismeee.tumblr.com
 joshzak.com
 joshzeitz.com
-joshzporn.tumblr.com
-joshzytkiewicz.tumblr.com
 josi1a6a9nup.juyewelresiwi.com
 josiahchristian.com
 josiahchurch.com
@@ -136456,7 +133793,6 @@ josie.duh.org
 josieanderic.com
 josieandfriends.com
 josieann.com
-josieastories.tumblr.com
 josiebrooks.com
 josiecamp.com
 josiechurchill.com
@@ -136464,10 +133800,8 @@ josieco.com
 josiecouture.com
 josiedeleon.com
 josiedew.co.uk
-josiedoodles.tumblr.com
 josiedorlus.com
 josiefreedman.com
-josiefur.tumblr.com
 josiegeiger.com
 josiegirl.com
 josiehagen.com
@@ -136485,7 +133819,6 @@ josiekstern.com
 josiele.com
 josielee.com
 josielife.com
-josieluvz.tumblr.com
 josielynn.com
 josielynn.net
 josiemail.com
@@ -136496,7 +133829,6 @@ josiemock.com
 josiemodel.ca
 josiemodelblog.com
 josiemurray.com
-josienheels.tumblr.com
 josienutter.com
 josiepeebles.com
 josiepicanco.com
@@ -136514,10 +133846,8 @@ josiestamour.com
 josiestravel.com.au
 josiesuniforms.com
 josiesweb.com
-josiesweets.tumblr.com
 josiesworld.com
 josiethebitch.com
-josiethemaid.tumblr.com
 josietherapy.com
 josiethomas.com
 josietucker.com
@@ -136581,10 +133911,8 @@ joslindiabetes.com
 joslinhall.com
 joslinsalesltd.com
 josllc.com
-josluttyboiforyou.tumblr.com
 joslyn-james.com
 joslyn.lybarger.xhfce.hallways.janeheathphotography.com
-joslynegurl.tumblr.com
 joslynjamesonline.com
 joslynmcintire.com
 joslynsfiberfarm.com
@@ -136655,7 +133983,6 @@ joss.com.au
 joss12.hol.es
 jossace.com
 jossackland.com
-jossanay.tumblr.com
 jossbay.net
 jossbiog.com
 jossc.com
@@ -136673,7 +134000,6 @@ josses.stream
 jossex.com
 jossg.googlevideo.com
 jossh.game-host.org
-jossi25.tumblr.com
 jossieonline.com
 jossis.com
 jossm.gr.jp
@@ -136765,7 +134091,6 @@ josuerivera.com
 josuerojas.com
 josuesantana.com
 josuesilva.com
-josuexxx.tumblr.com
 josuf41aeniruluh.kicaqijereic.info
 josuha.com
 josuhernaiz.com
@@ -136793,7 +134118,6 @@ josvs.googlevideo.com
 josvsmos.com
 josvu.googlevideo.com
 josvx.googlevideo.com
-joswalt1228.tumblr.com
 joswap.co
 joswift.blogspot.ca
 joswift.blogspot.ch
@@ -136936,8 +134260,6 @@ jotaochoa.com
 jotaorella.com.ar
 jotaortega.com
 jotaplus.com
-jotar10.tumblr.com
-jotaro-kun.tumblr.com
 jotartpa.blog.com
 jotaste.us
 jotastudio.com
@@ -137088,7 +134410,6 @@ jotjelunge.de
 jotjobs.com
 jotjoytqi.biz
 jotk.com
-jotkkara.tumblr.com
 jotknife.com
 jotko.com
 jotkzathku5uzxyzfv56.maherstcottage.com.au
@@ -137118,7 +134439,6 @@ jotns.googlevideo.com
 joto-rituchu.com
 jotobags.com
 jotod.com
-jotodan.tumblr.com
 jotodyovykow.kz
 jotoe.googlevideo.com
 jotoeali.blog.com
@@ -137128,7 +134448,6 @@ jotoin.com
 jotok.com
 jotomovies.com
 jotompersians.com
-jotomywife2.tumblr.com
 joton.com.vn
 joton.googlevideo.com
 jotone.com
@@ -137220,7 +134539,6 @@ jotzw.googlevideo.com
 jotzz.googlevideo.com
 jou-domein.nl
 jou.thedisneygroup.com
-jou.ufl.edu
 jou4.com
 jou6k-sva-xp.biz
 joualvert.com
@@ -137365,7 +134683,6 @@ jouezgagnant.com
 jouezjeux.fr
 jouezsouc.com
 jouezsport.com
-jouf26.tumblr.com
 joufc.googlevideo.com
 jouff.googlevideo.com
 joufh.googlevideo.com
@@ -137607,7 +134924,6 @@ jouncing.us
 joundco.net
 jouneyed.com
 joung.net
-jounglongskinnylegs1.tumblr.com
 joungmin.com
 joungs.com
 jounieh.org
@@ -137629,8 +134945,6 @@ jounryblights.com
 jouns.googlevideo.com
 jounv.googlevideo.com
 jouny.googlevideo.com
-jouonsaveclidee.tumblr.com
-jouonsavecuneid.tumblr.com
 jouonsflash.com
 joup.net
 joupagina.nl
@@ -137655,7 +134969,6 @@ jourdainmma.net
 jourdanaelizabeth.com
 jourdancooper.com
 jourdanjanith.com
-jourdanjones23.tumblr.com
 jourdanlewis.com
 jourdanmyers.com
 jourdansadye.com
@@ -137866,7 +135179,6 @@ journaldelamode.com
 journaldelascience.fr
 journaldemontreal.com
 journaldemourreal.com
-journaldenuit.tumblr.com
 journaldenvolee.canalblog.com
 journaldequebec.com
 journalderosemont.com
@@ -137878,7 +135190,6 @@ journaldescasinos.com
 journaldesdemoiselles.com
 journaldeshommes.com
 journaldesoumis.canalblog.com
-journaldesoumise.tumblr.com
 journaldespme.com
 journaldesreductions.com
 journaldessables.com
@@ -137904,10 +135215,8 @@ journalduncoupleexhib.centerblog.net
 journaldunecoquine.allmyblog.com
 journalduneinfidle.unblog.fr
 journaldunet.com
-journaldunevieillemeuf.tumblr.com
 journaldunpute.canalblog.com
 journaldunsalop.centerblog.net
-journaldunsoumis.tumblr.com
 journaldupirate.com
 journalduporn.com
 journalduporno.com
@@ -137968,14 +135277,11 @@ journalis.com
 journalised.com
 journalislam.com
 journalism-islam.de
-journalism.cmich.edu
 journalism.co.uk
-journalism.indiana.edu
 journalism.net
 journalism.org
 journalism.sdu.dk
 journalism.uk.smarttargetting.com
-journalism.umd.edu
 journalism1.com
 journalism4schools.com
 journalismcareers.com
@@ -138089,7 +135395,6 @@ journaloes.punt.nl
 journalofachristiansportsman.com
 journalofactionresearch.com
 journalofafeminist.com
-journalofahotwife.tumblr.com
 journalofastrology.com
 journalofayoungdom.blogspot.ae
 journalofayoungdom.blogspot.al
@@ -138216,7 +135521,6 @@ journals.elsevierhealth.com
 journals.infostore.org
 journals.iucr.org
 journals.jevon.org
-journals.uchicago.edu
 journalsaturne.ch
 journalserver.com
 journalsexuel.canalblog.com
@@ -138276,7 +135580,6 @@ journawatch.com
 journbarff.com
 journee.bien-etre.du.printemps.eriged.fr
 journee.net
-journeeasexualite.tumblr.com
 journeedecouverte.com
 journeedelavoitureelectrique.net
 journeeduvelo.ch
@@ -138656,7 +135959,6 @@ journeyphoto.com
 journeyphotobook.com
 journeypickersfast.com
 journeypilates.com
-journeyplanner.tfl.gov.uk
 journeyplanr.com
 journeyplusrise.com
 journeypointechurch.com
@@ -138811,7 +136113,6 @@ journeytojah.pl
 journeytojoel.com
 journeytolovingyou.com
 journeytomakemoney.com
-journeytomilk.tumblr.com
 journeytonirvana.com
 journeytool.com
 journeytoscratch.com
@@ -139069,7 +136370,6 @@ jovelyncelestial.com
 jovem10.com
 jovemcapfm.bqhosthits.com
 jovemdefuturo.com
-jovemexcitado.tumblr.com
 jovemgospel.com
 jovemguarda.mus.br
 jovemhits.com
@@ -139086,9 +136386,7 @@ jovempanfm.virgula.uol.com.br
 jovempanpatos.com.br
 jovemvix.com
 joven-latina.com
-jovenahueonao.tumblr.com
 jovenamateur.com
-jovenantonio.tumblr.com
 jovenbesonegro.com
 jovenchicas.com
 jovenchicas.free.fr
@@ -139930,7 +137228,6 @@ jovialliving.com
 jovially.com
 jovially.us
 joviallyconverthappy.info
-jovialpuppyenthusiast.tumblr.com
 jovialscenery.ru
 jovialty.us
 jovian-tw.dlinkddns.com
@@ -139957,7 +137254,6 @@ jovink.nl
 jovip.googlevideo.com
 jovipak.com
 jovipovikidz.com
-joviracer.tumblr.com
 jovis.fr
 jovis.googlevideo.com
 jovisca.com
@@ -140304,13 +137600,9 @@ joxrn.googlevideo.com
 joxrq.googlevideo.com
 joxrs.googlevideo.com
 joxrv.googlevideo.com
-joxsandhunks.tumblr.com
-joxsnifmuc.tumblr.com
 joxso.googlevideo.com
-joxsox.tumblr.com
 joxspace.com
 joxsr.googlevideo.com
-joxstrapp.tumblr.com
 joxsw.googlevideo.com
 joxug.googlevideo.com
 joxui.googlevideo.com
@@ -140445,14 +137737,12 @@ joy4kids.com
 joy4lifechurch.com
 joy4men.ch
 joy4men.com
-joy4milf.tumblr.com
 joy4soy.com
 joy4wow.com
 joy58.com
 joy6.tv
 joy66.com
 joy69.com
-joy6969.tumblr.com
 joy78.com
 joy92.net
 joy997fm.com.gh
@@ -140487,7 +137777,6 @@ joyamonteiro.com
 joyances.us
 joyand.com
 joyandbliss.com
-joyandcum.tumblr.com
 joyandenergy.com
 joyanderson.com
 joyandfaithgifts.com
@@ -140519,7 +137808,6 @@ joyarena.com
 joyaride.com
 joyaride.net
 joyaroundtheworld.com
-joyarowden46.tumblr.com
 joyart2.com
 joyartesana.com
 joyas.setdart.com
@@ -140917,7 +138205,6 @@ joydent.de
 joydesigns.com
 joydetergent.com
 joydex.com
-joydick.tumblr.com
 joydirectory.com
 joydisco.com
 joydisk.com
@@ -141034,7 +138321,6 @@ joyerojoseluis.com
 joyeros.cl
 joyerosyocari.com
 joyes.googlevideo.com
-joyescorts.tumblr.com
 joyeses.com
 joyess.com
 joyest.com
@@ -141143,7 +138429,6 @@ joyfulbeginnings.com
 joyfulbibleverses.com
 joyfulbirth.net
 joyfulbirthing.com
-joyfulblowjob.tumblr.com
 joyfulbody.com
 joyfulcakes.com
 joyfulcalm.com
@@ -141174,7 +138459,6 @@ joyfulclipz.com
 joyfulclub.hp.infoseek.co.jp
 joyfulcoaching.com
 joyfulcode.com
-joyfulcollectioninfluencer.tumblr.com
 joyfulcommunitychurch.com
 joyfulconsciousness.com
 joyfulcork.com
@@ -141188,7 +138472,6 @@ joyfuldrums.com
 joyfulendeavours.com
 joyfulexpressionsbookstore.com
 joyfulfair.com
-joyfulfangiver.tumblr.com
 joyfulfellowshipchurch.com
 joyfulfocus.com
 joyfulfollow.com
@@ -141234,10 +138517,7 @@ joyfullpurpose.com
 joyfulls.199.nl
 joyfullubrications.com
 joyfully.org
-joyfullybigboobs.tumblr.com
-joyfullyimpossiblemoon.tumblr.com
 joyfullyjoined.com
-joyfullykitten.tumblr.com
 joyfullythriving.com
 joyfulmama.com
 joyfulman.com
@@ -141247,7 +138527,6 @@ joyfulministries.com
 joyfulmom.com
 joyfulmoment.com
 joyfulmommaskitchen.com
-joyfulmonk.tumblr.com
 joyfulmorning.com
 joyfulmother.com
 joyfulnails.com
@@ -141270,7 +138549,6 @@ joyfulpetcoach.com
 joyfulplace.com
 joyfulpraisechurchinternational.com
 joyfulprayer.com
-joyfulprincetimemachine.tumblr.com
 joyfulrentals.com
 joyfulretirement.com
 joyfulride.com
@@ -141280,9 +138558,7 @@ joyfulscribe.net
 joyfulseason.com
 joyfulsex.com
 joyfulsextoys.com
-joyfulsexysecretcollector.tumblr.com
 joyfulsimplicity.com
-joyfulsissyfuck.tumblr.com
 joyfulsouls.net
 joyfulsoundchurch.com
 joyfulspace.com
@@ -141541,8 +138817,6 @@ joyluckgambling.net
 joyluckshop.com
 joyluckteam.com
 joylutheranchurch.com
-joyluvtwat-deactivated20140530.tumblr.com
-joyluvtwat.tumblr.com
 joymac.com
 joymag.com
 joymag.net
@@ -141575,7 +138849,6 @@ joymia.com
 joymii.com
 joymii.ru
 joymiibabes.com
-joymiibabes.tumblr.com
 joymiifan.com
 joymiihub.com
 joymiimodels.com
@@ -141652,9 +138925,7 @@ joyofcode.com
 joyofcreating.com
 joyofcruising.com
 joyofcrystal.com
-joyofcumshots.tumblr.com
 joyofcyberdating.net
-joyofdebauchery.tumblr.com
 joyofdetox.com
 joyofdriving.net
 joyofdrugs.com
@@ -141747,8 +139018,6 @@ joyofmassage.com
 joyofmodeling.com
 joyofmotiondc.com
 joyofmusicschool.org
-joyofn.tumblr.com
-joyofnaturehardcore.tumblr.com
 joyofonlinedating.net
 joyoforalsex.com
 joyofoureyes.com
@@ -141976,7 +139245,6 @@ joyoustimes.com
 joyoustimes.info
 joyoutdoor.com
 joyoutreachinternational.com
-joyoverdose.tumblr.com
 joyoyixf2b28hoziyu.jinoqoreolisi.com
 joyoyo.com
 joyozilffc5frigo.kocezereokoq.info
@@ -142192,7 +139460,6 @@ joysofparrothood.net
 joysofsex.com
 joysofsocialmedia.com
 joysoft.net
-joysoftoys.tumblr.com
 joysoftreats.com
 joysolutions.com
 joyson.genericapteka24.ru
@@ -142279,7 +139546,6 @@ joysupply.com
 joysurvey.com
 joysw.googlevideo.com
 joyswallows.com
-joyswethairypussy.tumblr.com
 joyswing.com
 joyswoyer.com
 joysz.googlevideo.com
@@ -142560,7 +139826,6 @@ jp-ad.net
 jp-adult.net
 jp-analytics.com
 jp-appel.com
-jp-appleid-apple.com
 jp-appleid-privacyseccure.team
 jp-appleid.team
 jp-applestorekakin.com
@@ -142704,7 +139969,6 @@ jp-woman.com
 jp-x.com
 jp-xxx.com
 jp-xxx.net
-jp-youngxxx.tumblr.com
 jp.0pu.ru
 jp.10bet.com
 jp.2015nian.com
@@ -142714,7 +139978,6 @@ jp.admob.com
 jp.adnxs.com
 jp.advertising.com
 jp.aliyun.com
-jp.appleid.apple.com.review-submit.info
 jp.as.cp61.ott.cibntv.net
 jp.as.criteo.com
 jp.as.criteo.net
@@ -142768,7 +140031,6 @@ jp.pmali.com
 jp.pn
 jp.popin.cc
 jp.porn.com
-jp.pornhub.com
 jp.rakutenmusic.com
 jp.real.com
 jp.realnetworks.com
@@ -142833,7 +140095,6 @@ jp2013timberlandshoes.com
 jp2018srb.com
 jp2018srbs.top
 jp2124.space
-jp21375.tumblr.com
 jp2271.space
 jp233.com
 jp24.com
@@ -142895,7 +140156,6 @@ jp3183.space
 jp31philliplimninkistore.com
 jp39v.cn
 jp3h8ifgp.looqucoventrybuildingsociety.com
-jp431010.tumblr.com
 jp45.com
 jp45c.com
 jp4wm6.top
@@ -142909,7 +140169,6 @@ jp70fp1nx90rh.biz
 jp71.com
 jp7c4knxve.newaidpurchase.ru
 jp82ds40bb26ti.biz
-jp890.tumblr.com
 jp89c1.hero.laxmitech.co.uk
 jp8yh.voluumtrk.com
 jp95s.com
@@ -142930,7 +140189,6 @@ jpaconseilinc.com
 jpaconsulting.com
 jpacp.googlevideo.com
 jpacx.com
-jpaddlr.tumblr.com
 jpadidashoes.com
 jpadidasmise.com
 jpadidasoriginalsshop.com
@@ -142992,13 +140250,11 @@ jpamvjncaavlepj.co.uk
 jpandaman.com
 jpandco.com
 jpandersen.com
-jpangel101.tumblr.com
 jpangels.com
 jpanime.com
 jpannka.com
 jpanptqngrflhkx.co.uk
 jpanrailpass.com
-jpantyhose2.tumblr.com
 jpao.com
 jpapadopoulos.gr
 jpappleidhelpcenter802716.com
@@ -143055,7 +140311,6 @@ jpattt.com
 jpatxjwgnxc.ws
 jpaudet.com
 jpaul.duckdns.org
-jpaul2571.tumblr.com
 jpaulesfenninn.org
 jpaulsen.com
 jpaulsmith.com
@@ -143568,7 +140823,6 @@ jpcomic.com
 jpconcrete.com
 jpcontractorsinc.com
 jpconversejapan.com
-jpcoolbi.tumblr.com
 jpcorner.com
 jpcosplayer.com
 jpcottagemahabaleshwar.com
@@ -143770,7 +141024,6 @@ jpedra.com
 jpedu.googlevideo.com
 jpeducation.net
 jpee.tk
-jpee1.tumblr.com
 jpeebles.com
 jpeedesign.net
 jpeep.com
@@ -143837,7 +141090,6 @@ jpelb.googlevideo.com
 jpele.googlevideo.com
 jpelec.com
 jpelectricalsindia.com
-jpellis92.tumblr.com
 jpelp.googlevideo.com
 jpelr.googlevideo.com
 jpelu.googlevideo.com
@@ -144105,7 +141357,6 @@ jpg.sk
 jpg10.home.ro
 jpg3.com
 jpg360.com
-jpg444.tumblr.com
 jpg4free.com
 jpg6.com
 jpg7.cz.cc
@@ -144117,9 +141368,6 @@ jpgamateur.com
 jpganal.com
 jpgarage.com
 jpgastemerin.rs
-jpgay.tumblr.com
-jpgay79.tumblr.com
-jpgay84.tumblr.com
 jpgb.com
 jpgbabes.com
 jpgbc.googlevideo.com
@@ -144276,7 +141524,6 @@ jpgmuff.com
 jpgmw.googlevideo.com
 jpgmyself.com
 jpgnbewevclr.co.uk
-jpgnv.tumblr.com
 jpgol.bid
 jpgolimited.go2affise.com
 jpgonline.com
@@ -144469,7 +141716,6 @@ jphhj.googlevideo.com
 jphhn.googlevideo.com
 jphhu.googlevideo.com
 jphhx.googlevideo.com
-jphi.tumblr.com
 jphil.com
 jphilippgroup.com
 jphillipking.com
@@ -144689,7 +141935,6 @@ jpi.guennatheressa.com
 jpia.net
 jpiazza.com
 jpib.com
-jpic.gov.sy
 jpicd.googlevideo.com
 jpici.googlevideo.com
 jpick.us
@@ -144764,7 +142009,6 @@ jpiolet.cjt1.net
 jpipc.googlevideo.com
 jpipe.com
 jpipe.googlevideo.com
-jpipeman.tumblr.com
 jpiph.googlevideo.com
 jpiphone5case2013.com
 jpiphonecase2013.com
@@ -144958,7 +142202,6 @@ jpka.ru
 jpkameya.com
 jpkauff.robinettdarline.com
 jpkc.cztgi.cn
-jpkc.jnu.edu.cn
 jpkc.shedu.net
 jpkca.gdpu.edu.cn
 jpkdh.googlevideo.com
@@ -145042,7 +142285,6 @@ jpkzr.googlevideo.com
 jpkzu.googlevideo.com
 jpkzz.prize-o-rama.jiif.info
 jpl.oedgel.ru
-jpl236.tumblr.com
 jpla.net
 jplacements.com
 jplacosteshoesnew.com
@@ -145203,7 +142445,6 @@ jpm.phlort.ru
 jpm.wellsfargo-domain.comli.com
 jpm3.com
 jpm4e63knn.mobi
-jpm713x.tumblr.com
 jpma.org.pk
 jpmac.googlevideo.com
 jpmae.googlevideo.com
@@ -145444,7 +142685,6 @@ jpmwm.googlevideo.com
 jpmwp.googlevideo.com
 jpmwu.googlevideo.com
 jpmx.allsexpages.com
-jpmx13.tumblr.com
 jpmxb.googlevideo.com
 jpmxd.googlevideo.com
 jpmxg.googlevideo.com
@@ -145468,7 +142708,6 @@ jpn3.fukugan.com
 jpnappstore.ourhobby.com
 jpnar8q.pl
 jpnarkansas.gillilory.com
-jpnbbcumslut.tumblr.com
 jpnbdf.auto.drivealexus.com
 jpnbf.googlevideo.com
 jpnbi.googlevideo.com
@@ -145599,7 +142838,6 @@ jpnidol.blogspot.sk
 jpnidol.blogspot.sn
 jpnidol.blogspot.tw
 jpnidol.blogspot.ug
-jpnidol.tumblr.com
 jpnielsen.com
 jpnight.com
 jpnihon.com
@@ -145702,7 +142940,6 @@ jpnxy.googlevideo.com
 jpnxzshopdata.authorizeddns.org
 jpnyc.com
 jpo.dpagyb.getbigg.ru
-jpo101327.tumblr.com
 jpo38j.gs.govtax.org
 jpo48jb.pl
 jpoa.com
@@ -145813,13 +143050,10 @@ jporn.com
 jporn.net
 jpornaccess.com
 jporndownload.com
-jpornhut.tumblr.com
 jporninfo.blog100.fc2.com
 jporno.com
 jporno.net
 jporno.tv
-jporns.tumblr.com
-jpornsblog.tumblr.com
 jporntube.com
 jporobiancostore.com
 jporr.com
@@ -146130,7 +143364,6 @@ jpralphlauren.com
 jpralphlaurenshop.com
 jprarts.com
 jpras.net
-jprascon.tumblr.com
 jpravon.free.fr
 jprayban2013outlet.com
 jpraybancheap.com
@@ -146177,7 +143410,6 @@ jpri.com
 jpric.com
 jpric.googlevideo.com
 jpricaud.com
-jprichardsxxx.tumblr.com
 jprin.googlevideo.com
 jprinter18.us
 jprip.googlevideo.com
@@ -146214,7 +143446,6 @@ jprojekt.com
 jpromo.com
 jpromotion.com
 jpromotions.com
-jpron89.tumblr.com
 jprop.it
 jproperty.com
 jpropst.altervista.org
@@ -146254,7 +143485,6 @@ jprwd.googlevideo.com
 jprwg.googlevideo.com
 jprwm.googlevideo.com
 jprwx.googlevideo.com
-jprwyo72.tumblr.com
 jpryc.googlevideo.com
 jprye.googlevideo.com
 jpryh.googlevideo.com
@@ -146591,7 +143821,6 @@ jptgn.googlevideo.com
 jptgp.com
 jptgp.net
 jpthegame.com
-jptheprivate.tumblr.com
 jpthumbs.com
 jpti.com
 jptic.googlevideo.com
@@ -146933,7 +144162,6 @@ jpw-wargames.com
 jpw.pumbec.ru
 jpw001.com
 jpw7od7whb.mobi
-jpw8592.tumblr.com
 jpwagyu.com
 jpwalker.com
 jpward.com
@@ -146998,7 +144226,6 @@ jpwjk.googlevideo.com
 jpwjn.googlevideo.com
 jpwjq.googlevideo.com
 jpwjs.googlevideo.com
-jpwlms.tumblr.com
 jpwly.com
 jpwmd.googlevideo.com
 jpwmf.googlevideo.com
@@ -147861,7 +145088,6 @@ jqgen.googlevideo.com
 jqgeo.googlevideo.com
 jqgeq.googlevideo.com
 jqget.googlevideo.com
-jqgetnaked.tumblr.com
 jqgew.googlevideo.com
 jqgez.googlevideo.com
 jqghg.googlevideo.com
@@ -149024,7 +146250,6 @@ jqsrz.googlevideo.com
 jqssdg.com
 jqssq.com
 jqsto.googlevideo.com
-jqstrap.tumblr.com
 jqstu.googlevideo.com
 jqsua.googlevideo.com
 jqsud.googlevideo.com
@@ -149675,7 +146900,6 @@ jr-graphics.de
 jr-gym.or.jp
 jr-high.com
 jr-international.fr
-jr-jack.tumblr.com
 jr-lndia.com
 jr-motorsport.com
 jr-pass.fr
@@ -149697,7 +146921,6 @@ jr.viewbourse.com
 jr.ztgame.com
 jr12.net
 jr1234.com
-jr19697.tumblr.com
 jr1tileandconstruction.com
 jr2.com
 jr2012.com
@@ -149786,7 +147009,6 @@ jraqb.com
 jraqgmquhd.com
 jrarchaeologists.com
 jrasesores.com
-jrashley1.tumblr.com
 jrasllc.com
 jrass.com
 jrastars.ca
@@ -150182,8 +147404,6 @@ jrcxv.googlevideo.com
 jrcyardleynewscom.122.2o7.net
 jrcycle.com
 jrd5188.com
-jrd668s.tumblr.com
-jrd992.tumblr.com
 jrdaniels.com
 jrdans.com
 jrdas.com
@@ -150241,7 +147461,6 @@ jrdnh.googlevideo.com
 jrdnk.googlevideo.com
 jrdnm.googlevideo.com
 jrdnx.googlevideo.com
-jrdog2012.tumblr.com
 jrdogtags.com
 jrdone.com
 jrdonline.com
@@ -150487,7 +147706,6 @@ jrfks.googlevideo.com
 jrfkv.com
 jrfkv.googlevideo.com
 jrfky.googlevideo.com
-jrflexw.tumblr.com
 jrflinny.info
 jrflinnz.info
 jrflowers.com
@@ -150710,7 +147928,6 @@ jrhno.googlevideo.com
 jrhnr.googlevideo.com
 jrhnu.googlevideo.com
 jrhobbyhardware.com
-jrhodes1488.tumblr.com
 jrhoesteel.com
 jrhom.googlevideo.com
 jrhomebrewers.org
@@ -150774,7 +147991,6 @@ jrico.com
 jrida.googlevideo.com
 jridd.googlevideo.com
 jride.net
-jride69.tumblr.com
 jridermusic.com
 jridg.googlevideo.com
 jridj.googlevideo.com
@@ -151231,7 +148447,6 @@ jrmeo.googlevideo.com
 jrmer.googlevideo.com
 jrmercantileandinvestigations.com.au
 jrmerchandising.com
-jrmesi10.tumblr.com
 jrmetalworks.com
 jrmeu.googlevideo.com
 jrmex.googlevideo.com
@@ -151434,7 +148649,6 @@ jrnywater.com
 jrnyy.googlevideo.com
 jro-creative.com
 jro.com.pl
-jro1972.tumblr.com
 jro1ni1l1.com
 jro7e.com
 jroadchurch.com
@@ -151537,7 +148751,6 @@ jrost.com
 jrostrup.com
 jrosu.googlevideo.com
 jrosx.googlevideo.com
-jrosz1.tumblr.com
 jrotcdogtags.com
 jrotcfundraisers.com
 jrote.googlevideo.com
@@ -151648,7 +148861,6 @@ jrpoi.googlevideo.com
 jrpol.googlevideo.com
 jrpon.googlevideo.com
 jrpool.com
-jrpor.tumblr.com
 jrporn.com
 jrppfgr.info
 jrpqa.googlevideo.com
@@ -151968,7 +149180,6 @@ jrshrine.fsn.net
 jrsinc.com
 jrsintl.com
 jrsistemasinfo.com
-jrsj99.tumblr.com
 jrsjems.com
 jrsji.googlevideo.com
 jrsjl.googlevideo.com
@@ -152161,7 +149372,6 @@ jrtpy.googlevideo.com
 jrtpz.googlevideo.com
 jrtra.googlevideo.com
 jrtrac.com
-jrtracerboy.tumblr.com
 jrtrade.com
 jrtran.com
 jrtrans.com
@@ -152466,7 +149676,6 @@ jrwgmfbu.info
 jrwhb.googlevideo.com
 jrwhe.googlevideo.com
 jrwhh.googlevideo.com
-jrwhistler.tumblr.com
 jrwhitmore.brennbrook.com
 jrwhk.googlevideo.com
 jrwhm.googlevideo.com
@@ -152547,7 +149756,6 @@ jrxcr.googlevideo.com
 jrxcu.googlevideo.com
 jrxcx.googlevideo.com
 jrxdj.googlevideo.com
-jrxdn.tumblr.com
 jrxdy.com
 jrxfb.googlevideo.com
 jrxfh.googlevideo.com
@@ -152758,7 +149966,6 @@ jrzij.googlevideo.com
 jrzim.googlevideo.com
 jrzix.googlevideo.com
 jrzjy.win
-jrzknight.tumblr.com
 jrzktcmr.ru
 jrzlb.googlevideo.com
 jrzle.googlevideo.com
@@ -152830,7 +150037,6 @@ js-kit.com
 js-link.com
 js-minify.com
 js-museum.com
-js-netflix.com
 js-page.jp
 js-pd01-ab.revsci.net
 js-pd01.revsci.net
@@ -153381,7 +150587,6 @@ js205.dupinpu.com
 js2254.hfxcsl.cn
 js2254.njqunyi.com
 js2294.cnbole.net
-js2425.tumblr.com
 js2553.xjzyq.com
 js257.0937jyg.com
 js2672.xjzyq.com
@@ -153431,7 +150636,6 @@ js50.yxlady.com
 js503333.com
 js5162.yongkang6.com
 js5515.guangzizai.com
-js55443.tumblr.com
 js5550.com
 js6.clickzs.com
 js6.nend.net
@@ -153560,7 +150764,6 @@ jsago.googlevideo.com
 jsagoxkmwugkahihj.com
 jsagr.googlevideo.com
 jsagw.googlevideo.com
-jsahvc.edu.cn
 jsai.net
 jsaier.com
 jsailing.com
@@ -153599,7 +150802,6 @@ jsamy.googlevideo.com
 jsanboxer.cjt1.net
 jsanchezcontracting.com
 jsanchezlandscaping.com
-jsand44.tumblr.com
 jsandbox.net
 jsandboxer.cjt1.net
 jsands.com
@@ -153645,7 +150847,6 @@ jsassdsdsd.xyz
 jsasv.googlevideo.com
 jsasx.googlevideo.com
 jsauc.googlevideo.com
-jsauce63.tumblr.com
 jsauk.googlevideo.com
 jsaun.googlevideo.com
 jsauq.googlevideo.com
@@ -153655,7 +150856,6 @@ jsauw.googlevideo.com
 jsauy.googlevideo.com
 jsave.com
 jsawa.org.au
-jsawsomeblog.tumblr.com
 jsaxg.googlevideo.com
 jsaxj.googlevideo.com
 jsaxl.googlevideo.com
@@ -153720,7 +150920,6 @@ jsbiblecovers.com
 jsbibles.com
 jsbiblesoft.com
 jsbimaging.com
-jsbin-user-assets.s3.amazonaws.com
 jsbismyname.delindagenni.com
 jsbit.com
 jsbj.oedgel.ru
@@ -153754,11 +150953,9 @@ jsboatworks.com
 jsbodies.com
 jsbodor.donrichardson.tonatiuhadomicilio.jgalbo.jo
 jsbodor.donrichardson.tonatiuhadomicilio.jgalbo.jorijaney.com
-jsboifun.tumblr.com
 jsbolong.com
 jsbondgroup.com
 jsbookmarks.cjb.net
-jsboundgirls.tumblr.com
 jsbox.com
 jsboys.com
 jsbpb.googlevideo.com
@@ -153821,7 +151018,6 @@ jsc.adskeeper.co.uk
 jsc.dinclinx.com
 jsc.dt00.net
 jsc.dt07.net
-jsc.edu
 jsc.idealmedia.io
 jsc.lentainform.com
 jsc.madisonlogic.com
@@ -154014,7 +151210,6 @@ jscmu.googlevideo.com
 jscmx.googlevideo.com
 jscnews.com
 jscnmall.com
-jscock.tumblr.com
 jscode.jbzj.com
 jscode.v5ad.com
 jscode.xp3366.com
@@ -154056,9 +151251,7 @@ jscpm.googlevideo.com
 jscpp.googlevideo.com
 jscps.googlevideo.com
 jscpv.googlevideo.com
-jscrader.tumblr.com
 jscreen.com
-jscress88.tumblr.com
 jscresult-2016.com
 jscript.co.uk
 jscript.com
@@ -154085,7 +151278,6 @@ jscsy.googlevideo.com
 jsctqc.com
 jsctv.com
 jsctwjpuw.bid
-jscurious2014.tumblr.com
 jscva.googlevideo.com
 jscvd.googlevideo.com
 jscvg.googlevideo.com
@@ -154196,7 +151388,6 @@ jsdone.net
 jsdongsheng.com
 jsdongyang.com
 jsdoors.com
-jsdoughty.tumblr.com
 jsdp.com
 jsdpc.googlevideo.com
 jsdpi.googlevideo.com
@@ -154255,7 +151446,6 @@ jse65ng0o18.oowoapaycomonline.com
 jse7en.com
 jsealed.us
 jseaman.com
-jseasa.tumblr.com
 jseasilyaug.icu
 jseasy.com
 jsebastian.com
@@ -154369,7 +151559,6 @@ jseva.com
 jsevent.xyz
 jseventos.com
 jsever.com
-jseverely.tumblr.com
 jseverydayfashion.com
 jsevolution.com
 jsewc.googlevideo.com
@@ -154460,8 +151649,6 @@ jsexnetwork.com
 jsexnetwork.org
 jsexnetworkmovie.com
 jsexpo.com
-jsexxxxi.tumblr.com
-jsexyblkts.tumblr.com
 jseya.googlevideo.com
 jseyd.googlevideo.com
 jseyj.googlevideo.com
@@ -154503,7 +151690,6 @@ jsffy.googlevideo.com
 jsfga.googlevideo.com
 jsfgg.googlevideo.com
 jsfgw.googlevideo.com
-jsfhmd.tumblr.com
 jsfia.googlevideo.com
 jsfid.googlevideo.com
 jsfiddle.net
@@ -154636,7 +151822,6 @@ jsgik.googlevideo.com
 jsgim.googlevideo.com
 jsgip.googlevideo.com
 jsgirls.com
-jsgirlspissing.tumblr.com
 jsgiv.googlevideo.com
 jsgix.googlevideo.com
 jsglassworks.com
@@ -154785,7 +151970,6 @@ jshgv.googlevideo.com
 jshgx.googlevideo.com
 jshhzz.com
 jshields.com
-jshine969.tumblr.com
 jshively.com
 jshjc.googlevideo.com
 jshjd.com
@@ -154813,7 +151997,6 @@ jshmg.googlevideo.com
 jshmj.googlevideo.com
 jshml.googlevideo.com
 jshmo.googlevideo.com
-jshmo.tumblr.com
 jshmr.googlevideo.com
 jshob.googlevideo.com
 jshoe.googlevideo.com
@@ -154829,7 +152012,6 @@ jshomerepair.com
 jshomeservices.com
 jshongjian.com
 jshongtu.com
-jshooter87.tumblr.com
 jshop.co.uk
 jshop.googlevideo.com
 jshop.su
@@ -154863,7 +152045,6 @@ jshrn.googlevideo.com
 jshrq.googlevideo.com
 jshrv.googlevideo.com
 jshry.googlevideo.com
-jshsfm.tumblr.com
 jshst.com
 jshsurveying.com
 jshtdl.com
@@ -154979,7 +152160,6 @@ jsims.com
 jsims.googlevideo.com
 jsimv.googlevideo.com
 jsimx.googlevideo.com
-jsin74.tumblr.com
 jsinerjo.cn
 jsinfo.net
 jsinformationdesign.com
@@ -155012,7 +152192,6 @@ jsissue.site11.com
 jsist.com
 jsisu.googlevideo.com
 jsisw.googlevideo.com
-jsitec.edu.cn
 jsitek.com
 jsiuj.googlevideo.com
 jsium.googlevideo.com
@@ -155416,7 +152595,6 @@ jsltq.googlevideo.com
 jsltt.googlevideo.com
 jsltxjetmyyvtwlv.org
 jsltzb.trade
-jslutdawg.tumblr.com
 jslutong.com
 jslva.googlevideo.com
 jslvg.googlevideo.com
@@ -155608,13 +152786,11 @@ jsn.lentainform.com
 jsn.marketgid.com
 jsn.mgid.com
 jsn.st02.net
-jsn774.tumblr.com
 jsnaddongateway.org.uk
 jsnails.com
 jsnap.com
 jsnapshot.com
 jsnbsyhne31-lkabe54.biz
-jsnbtts.tumblr.com
 jsnca.googlevideo.com
 jsncd.googlevideo.com
 jsncg.googlevideo.com
@@ -156176,7 +153352,6 @@ jsrdr.googlevideo.com
 jsrdu.googlevideo.com
 jsrea.googlevideo.com
 jsreadywork.com
-jsrealcouple.tumblr.com
 jsrec.com
 jsrecord.com
 jsred.googlevideo.com
@@ -156362,7 +153537,6 @@ jssigns.com
 jssimple.com
 jssite.com
 jssitong.com
-jssj1.tumblr.com
 jssjb-sport.com
 jssjb.com
 jssjf.club
@@ -156565,8 +153739,6 @@ jstatic.top
 jstats.com
 jstattoo.net
 jstax.com
-jstb.edu
-jstbdsm.tumblr.com
 jstbj.googlevideo.com
 jstbl.googlevideo.com
 jstbx.googlevideo.com
@@ -156583,7 +153755,6 @@ jstcm.googlevideo.com
 jstconnector.com
 jstconnectors.com
 jstcp.googlevideo.com
-jstcruz.tumblr.com
 jstcx.googlevideo.com
 jstdgj.com
 jstdjq.com
@@ -156617,7 +153788,6 @@ jstha.googlevideo.com
 jsthai.com
 jsthc.googlevideo.com
 jsthd.googlevideo.com
-jsthentai.tumblr.com
 jsthf.googlevideo.com
 jsthg.googlevideo.com
 jsthi.kneeng.ru
@@ -156702,7 +153872,6 @@ jstsl.googlevideo.com
 jstso.googlevideo.com
 jstsr.googlevideo.com
 jsttajpjtpqiu.com
-jstthuggin.tumblr.com
 jsttj.googlevideo.com
 jsttm.googlevideo.com
 jsttp.googlevideo.com
@@ -156729,7 +153898,6 @@ jstvn.googlevideo.com
 jstvp.googlevideo.com
 jstvq.googlevideo.com
 jstvt.googlevideo.com
-jstwnt2cum.tumblr.com
 jstxadinnative.review
 jstxcom.com
 jstxf.googlevideo.com
@@ -156751,8 +153919,6 @@ jstzpcty.com
 jstzz8e4kgmh9ue.org
 jsu.az1.qualtrics.com
 jsu.dt07.net
-jsu.edu
-jsu.edu.cn
 jsu.jz5u.com
 jsu.mgid.com
 jsu.qualtrics.com
@@ -156793,7 +153959,6 @@ jsuhj.googlevideo.com
 jsuhl.googlevideo.com
 jsuho.googlevideo.com
 jsuirorjtdispumm.org
-jsuisfan.tumblr.com
 jsuit.com
 jsujjega.com
 jsukb.googlevideo.com
@@ -156811,7 +153976,6 @@ jsumitglobaledu.org
 jsummerford.com
 jsummers.com
 jsumpter.com
-jsums.edu
 jsunc.googlevideo.com
 jsunf.googlevideo.com
 jsuni.com
@@ -156826,10 +153990,8 @@ jsunparalleledaug.icu
 jsunt.googlevideo.com
 jsunw.googlevideo.com
 jsuny.googlevideo.com
-jsuperdupertwo.tumblr.com
 jsupg.googlevideo.com
 jsupj.googlevideo.com
-jsupreme69.tumblr.com
 jsupress.com
 jsupt.com
 jsuqa.googlevideo.com
@@ -156849,7 +154011,6 @@ jsurzw.ept.kenandkarenhoofard.com
 jsus.com
 jsus.net
 jsusb.googlevideo.com
-jsusbestsexg.tumblr.com
 jsuse.googlevideo.com
 jsusm.googlevideo.com
 jsusp.googlevideo.com
@@ -156862,7 +154023,6 @@ jsutanotherdayin.info
 jsutialwer.com
 jsutils.net
 jsutoknowturle.com
-jsutphenedu.tumblr.com
 jsutqiowelr.com
 jsuvc.googlevideo.com
 jsuvk.googlevideo.com
@@ -157042,7 +154202,6 @@ jswiv.googlevideo.com
 jswiw.googlevideo.com
 jswiy.googlevideo.com
 jswiz.com
-jswjcw.tumblr.com
 jswjfhumpudlhljnib.com
 jswjyb.com
 jswkv.com
@@ -157454,21 +154613,16 @@ jt2008.com
 jt2iebu.net
 jt2nvuic.mobi
 jt3.net
-jt3381.tumblr.com
 jt3e8vydhq.centde.com
 jt42iuxd6k.mobi
-jt607.tumblr.com
 jt66.com
 jt6r.ooxoarosebeauty.com
 jt6zt46sk8.asia
 jt72j8nb.net
-jt7800.tumblr.com
 jt7w8mht7h.newaidpurchase.ru
 jt8eu1.etc.edmontonbrandpartnerevents.com
 jt8h.com
 jt91s4w50y.newaidpurchase.ru
-jt97212.tumblr.com
-jt9d.tumblr.com
 jt9p7.x.incapdns.net
 jt_miller.zdesignlounge.newsgarcinialtors.eu
 jta-group.com
@@ -157476,7 +154630,6 @@ jta-tennis.or.jp
 jtaam.com
 jtaam.net
 jtab.com
-jtablue.tumblr.com
 jtabserver.org
 jtabusschedule.info
 jtacmedics.ru
@@ -157615,7 +154768,6 @@ jtbnl.googlevideo.com
 jtbnr.googlevideo.com
 jtbnu.googlevideo.com
 jtbnw.googlevideo.com
-jtbone.tumblr.com
 jtbook.com
 jtbook.com.cn
 jtbpb.googlevideo.com
@@ -157843,7 +154995,6 @@ jtdkw.googlevideo.com
 jtdle.googlevideo.com
 jtdls.googlevideo.com
 jtdlx.googlevideo.com
-jtdm2014.tumblr.com
 jtdmkv.loan
 jtdnm.googlevideo.com
 jtdnp.googlevideo.com
@@ -157972,7 +155123,6 @@ jtelp.googlevideo.com
 jtelu.googlevideo.com
 jtelx.googlevideo.com
 jtemail.com
-jtemplarstuff.tumblr.com
 jtengineering.net
 jtenn.googlevideo.com
 jtenovuo.com
@@ -158028,7 +155178,6 @@ jtezw.googlevideo.com
 jtf-group.com
 jtf.net
 jtf.org
-jtf4u.tumblr.com
 jtfa.jp
 jtfab.googlevideo.com
 jtfae.googlevideo.com
@@ -158139,7 +155288,6 @@ jtfxi.googlevideo.com
 jtfxt.googlevideo.com
 jtfxw.googlevideo.com
 jtfyjrdqyjovktcl.com
-jtfyke.tumblr.com
 jtfymedic.ru
 jtg-group.com
 jtg.com
@@ -158268,7 +155416,6 @@ jthgj.googlevideo.com
 jthgm.googlevideo.com
 jthgp.googlevideo.com
 jthgs.googlevideo.com
-jthinking.tumblr.com
 jthjc.googlevideo.com
 jthjf.googlevideo.com
 jthji.googlevideo.com
@@ -158539,7 +155686,6 @@ jtjyo.googlevideo.com
 jtjyr.googlevideo.com
 jtjyu.googlevideo.com
 jtjyw.googlevideo.com
-jtk77.tumblr.com
 jtkassociates.com
 jtkbb.googlevideo.com
 jtkbm.googlevideo.com
@@ -158710,7 +155856,6 @@ jtltk.googlevideo.com
 jtltn.googlevideo.com
 jtltq.googlevideo.com
 jtltt.googlevideo.com
-jtluvdick.tumblr.com
 jtlvd.googlevideo.com
 jtlvg.googlevideo.com
 jtlvi.googlevideo.com
@@ -158801,7 +155946,6 @@ jtmodern.com
 jtmoe.googlevideo.com
 jtmoh.googlevideo.com
 jtmoj.googlevideo.com
-jtmone.tumblr.com
 jtmop.googlevideo.com
 jtmorse.com
 jtmos.googlevideo.com
@@ -158912,7 +156056,6 @@ jtnoh.googlevideo.com
 jtnoi.googlevideo.com
 jtnok.googlevideo.com
 jtnon.googlevideo.com
-jtnoobie69.tumblr.com
 jtnoq.googlevideo.com
 jtnot.googlevideo.com
 jtnq.com
@@ -158994,7 +156137,6 @@ jtols.googlevideo.com
 jtolu.googlevideo.com
 jtolx.googlevideo.com
 jtomko2.ehealthnewsrebi.ru
-jtommyboy1969.tumblr.com
 jtomo.com
 jtoms.com
 jtomv.googlevideo.com
@@ -159012,14 +156154,12 @@ jtop.virtualave.net
 jtopbestekasino.com
 jtopia.com
 jtoplistekasino.com
-jtoppness.tumblr.com
 jtoptical.com
 jtopweltkasino.com
 jtori.googlevideo.com
 jtorl.googlevideo.com
 jtoro.googlevideo.com
 jtorrents.com
-jtorry85.tumblr.com
 jtoru.com
 jtoru.googlevideo.com
 jtorw.googlevideo.com
@@ -159061,7 +156201,6 @@ jtoyt.phlort.ru
 jtoyyiuzu.newtradebid.ru
 jtp.com.my
 jtp1.com
-jtp80.tumblr.com
 jtpainting.com
 jtpaper.com
 jtpaws.com
@@ -159263,15 +156402,12 @@ jtqyh.googlevideo.com
 jtqys.googlevideo.com
 jtqyu.googlevideo.com
 jtr.tu1.ru
-jtr1755.tumblr.com
-jtr55408.tumblr.com
 jtrac.com
 jtrading.com
 jtrakk.com
 jtranch.com
 jtraow.com
 jtrautocosmetics.com
-jtravarez.tumblr.com
 jtravel.com.au
 jtravispatterson.com
 jtrax.com
@@ -159306,7 +156442,6 @@ jtrick.com
 jtrim.us
 jtrip.co.jp
 jtrip.us
-jtrip11.tumblr.com
 jtrjbfd.net
 jtrjc.googlevideo.com
 jtrjv.googlevideo.com
@@ -159374,7 +156509,6 @@ jts-racing.co.uk
 jts-seattle.com
 jts.net.au
 jts4percent.com
-jtsa.edu
 jtsahdnyntffy.co.uk
 jtsauthority.com
 jtsautomotive.com
@@ -159465,7 +156599,6 @@ jtssw.com
 jtssw.googlevideo.com
 jtsteiny.com
 jtstockroom.com
-jtstuff.tumblr.com
 jtsuperbowl.com
 jtsupervaluemall.com
 jtsv.com
@@ -159708,7 +156841,6 @@ jtuzx.googlevideo.com
 jtv.co.kr
 jtv.co.uk
 jtvaecu.com
-jtvandog.tumblr.com
 jtvardis.com
 jtvat.googlevideo.com
 jtvbot.com
@@ -159794,7 +156926,6 @@ jtvxh.googlevideo.com
 jtvxs.googlevideo.com
 jtvxu.googlevideo.com
 jtvzb.googlevideo.com
-jtvzombie.tumblr.com
 jtvzp.googlevideo.com
 jtvzs.googlevideo.com
 jtvzx.googlevideo.com
@@ -159824,7 +156955,6 @@ jtwdr.googlevideo.com
 jtwdu.googlevideo.com
 jtwdw.googlevideo.com
 jtwebb.com
-jtwentyseven.tumblr.com
 jtwfanfgh.com
 jtwfg.bid
 jtwgb.googlevideo.com
@@ -159838,7 +156968,6 @@ jtwgv.googlevideo.com
 jtwgx.googlevideo.com
 jtwic.googlevideo.com
 jtwig.us
-jtwiis.tumblr.com
 jtwinik.com
 jtwit.googlevideo.com
 jtwiv.googlevideo.com
@@ -160070,7 +157199,6 @@ jtysh.googlevideo.com
 jtysj.googlevideo.com
 jtyskj.com
 jtysm.googlevideo.com
-jtyson82.tumblr.com
 jtytyn.com
 jtyuh.googlevideo.com
 jtyukghmjfthjutykt.com
@@ -160213,8 +157341,6 @@ ju.atpanel.com
 ju.bgecsqqs.in
 ju.chiejgravuremodels.net
 ju.ci
-ju.edu
-ju.edu.jo
 ju.fqjsjj.com
 ju.haenudolarblue.com
 ju.iif.fastsize.ru
@@ -160241,7 +157367,6 @@ ju39.com
 ju3laue3ial.yy3a8lshy.us
 ju45ga.eas.earnmoneywithken.com
 ju45vp.com
-ju68.tumblr.com
 ju6chah.bid
 ju6jb.voluumtrk.com
 ju6rfnr.work
@@ -160251,7 +157376,6 @@ ju7tvh.koll.pershoreairporttransfers.co.uk
 ju86ac6xk23zn.biz
 ju87.com
 ju8hbb.tem.ejtm.com
-ju9104.tumblr.com
 jua-web.org
 juaa.com
 juaaa.com
@@ -160305,7 +157429,6 @@ juak.oedgel.ru
 juakc.googlevideo.com
 juakk.googlevideo.com
 juakn.googlevideo.com
-juako22.tumblr.com
 juakq.googlevideo.com
 juaks.googlevideo.com
 juakuaaba.kmufguu.addinches.ru
@@ -160419,7 +157542,6 @@ juan-cribb.us
 juan-debernardi.com
 juan-fuentes.com
 juan-jacoby.us
-juan-king.tumblr.com
 juan-montoya.de
 juan-santiago.com
 juan-schmidt.in
@@ -160427,11 +157549,8 @@ juan-talarico.us
 juan-z.com
 juan-zhamen.com
 juan.com.es
-juan202020.tumblr.com
-juan4milfs.tumblr.com
 juan4you.com
 juan65.com
-juan99g.tumblr.com
 juana-alvord.us
 juana-barr.us
 juana-barreiro.us
@@ -160491,7 +157610,6 @@ juanajo.com
 juanaldamazacatecas.com
 juanalfaro.marjgeorgianne.com
 juanalfonsobaptista.com
-juanalpalo.tumblr.com
 juanalzate.com
 juanamaps.com
 juanamigo.com
@@ -160621,8 +157739,6 @@ juanfra.com
 juanfreire.net
 juanfrias.com
 juanfurlan.com.ar
-juanfynedai.tumblr.com
-juangalicia.tumblr.com
 juangallo.com
 juangaravaglia.com.ar
 juangarrido.com
@@ -160664,7 +157780,6 @@ juanitairizarry.com
 juanitairizarry.net
 juanitajames.com
 juanitakelly.com
-juanitakink.tumblr.com
 juanitalee.com
 juanitalondonostyle.com
 juanitamartinez.com
@@ -160710,7 +157825,6 @@ juanjuarez.com
 juankaan.com
 juankaprof.com
 juanker.com
-juankerr247.tumblr.com
 juankhan.com
 juanki.com
 juankong.com
@@ -160720,10 +157834,8 @@ juankuan.com
 juankuo.com
 juanl.googlevideo.com
 juanlamas.com
-juanlangdong.tumblr.com
 juanlee.com
 juanleon.com
-juanleona1.tumblr.com
 juanlespins.com
 juanlespinshotel.com
 juanlespinshotels.com
@@ -160765,7 +157877,6 @@ juanmascia.com
 juanmatos.com
 juanmbgil.cristisou.kim.chrisdonkersley.loletarae.
 juanmbgil.cristisou.kim.chrisdonkersley.loletarae.com
-juanmcqueen.tumblr.com
 juanmedina.net
 juanmendoza.com
 juanmiguel.arrakis.es
@@ -160793,7 +157904,6 @@ juanosorio.com
 juanosullivans.com
 juanoylosinternos.cl
 juanpablo.co
-juanpablo1114.tumblr.com
 juanpablodipace.net
 juanpabloelgrande.com
 juanpabloflores.com
@@ -160817,10 +157927,8 @@ juanpei.com
 juanperalta.com
 juanperdomo.com
 juanpernia.com
-juanpernia69.tumblr.com
 juanpescador.net
 juanphotography.com
-juanpi2.tumblr.com
 juanpina.squarespace.com
 juanpino.com
 juanplascencia.com
@@ -160857,7 +157965,6 @@ juanscott.com
 juansctec.net
 juansdaus.com
 juanserrano.com
-juansex07.tumblr.com
 juansie.com
 juansierra.net
 juansies.com
@@ -160872,9 +157979,7 @@ juanspainting.com
 juanspencer.com
 juanspicks.com
 juanspoolservice.com
-juanswere.tumblr.com
 juant.googlevideo.com
-juantally.tumblr.com
 juantanamo.com
 juantaobao.com
 juantaylor.com
@@ -160903,7 +158008,6 @@ juanw.googlevideo.com
 juanway.com
 juanwells.com
 juanxxiii.e12.ve
-juanxxx.tumblr.com
 juanyanahi.com
 juanyoga.com
 juanyong.com
@@ -161372,7 +158476,6 @@ jubzq.googlevideo.com
 jubzs.googlevideo.com
 jubzv.googlevideo.com
 jubzzpgykfyn.com
-juc.edu
 juc.us
 juc8.ru
 jucahobakoputul521.ml
@@ -161447,9 +158550,7 @@ jucilrekelupay.com
 jucin.googlevideo.com
 juciq.googlevideo.com
 jucit.googlevideo.com
-jucityxxx.tumblr.com
 juciycoture.com
-juciyr.tumblr.com
 jucj.com
 jucju.com
 juck.com
@@ -161637,7 +158738,6 @@ judark.canalblog.com
 judarmstadt.de
 judas-pig.com
 judas.net
-judas173.tumblr.com
 judasbaum.com
 judascradle.com
 judasfoyer.com
@@ -161648,7 +158748,6 @@ judasonline.com
 judaspig.com
 judasporn.info
 judaspriesttickets.com
-judasteen-deactivated20130727.tumblr.com
 judat.googlevideo.com
 judaw.googlevideo.com
 judaweb.net
@@ -161705,7 +158804,6 @@ judea.com
 judea.ru
 judeaandsamaria.com
 judeainsworth.com
-judeano.tumblr.com
 judeanpeoplesfront.com
 judeansofchristchurch.com
 judeao.ws
@@ -161714,7 +158812,6 @@ judebaptiste.com
 judebenjamin.com
 judebowsguitar.win
 judebroussard.com
-judebugggg.tumblr.com
 judecarroll.com
 judecat.com
 judecharles.com
@@ -161869,7 +158966,6 @@ judgedirectobtain.info
 judgedonovan.com
 judgedoubt-sign.com
 judgedread.net
-judgedteenblogger.tumblr.com
 judgee.com
 judgeen.us
 judgeevans.com
@@ -161997,7 +159093,6 @@ judgesingleton.com
 judgeslegalprescriptionpad.com
 judgesnod.com
 judgesolomon.com
-judgespixie.tumblr.com
 judgesprescriptionpad.com
 judgestion.com
 judget.info
@@ -162019,7 +159114,6 @@ judgezachary.com
 judgf.googlevideo.com
 judgh.googlevideo.com
 judgify.com
-judging-eye.tumblr.com
 judgingbarbecue.com
 judgingbbq.com
 judgingchristians.com
@@ -162112,9 +159206,7 @@ judicialactivism.net
 judicialbonds.com
 judicialcampaign.com
 judicialcase.com
-judicialcollege.vic.edu.au
 judicialcommunicator.com
-judicialconference.gov
 judicialcounts.com
 judicialcp.com
 judicialcrisis.com
@@ -162207,7 +159299,6 @@ judith-concannon.us
 judith-corso.us
 judith-dasilva.us
 judith-escort.com
-judith-fox-hdstar.tumblr.com
 judith-fox.com
 judith-friedrich.us.org
 judith-gatti.org
@@ -162521,14 +159612,12 @@ judo.narew.org
 judo.nessieharmonia.com
 judo.on.ca
 judo.or.jp
-judo.org.ohio-state.edu
 judo.org.tohoku.ac.jp
 judo.salon.com
 judo.soc.usyd.edu.au
 judo.sorinieres.free.fr
 judo.sports.or.kr
 judo.tscwellingsbuettel.de
-judo.union.rpi.edu
 judo29.free.fr
 judo2judo.com
 judo4kids.at
@@ -162712,7 +159801,6 @@ judrw.googlevideo.com
 judse.com
 judsier.us
 judsmovies.com
-judson.edu
 judsonbaker.com
 judsonbaptist.com
 judsonbaptistassociation.com
@@ -162734,7 +159822,6 @@ judsonroadchurch.com
 judsonrockets.com
 judsonthebodyguard.com
 judsontmiller.com
-judsonu.edu
 judsonuniv.com
 judsonwest.com
 judstop.com
@@ -163086,7 +160173,6 @@ judytyler.com
 judyupchurchrealestate.com
 judyupchurchrealty.com
 judywaters.com
-judywebslut.tumblr.com
 judywestlake.com
 judyweyand.com
 judywhiz.com
@@ -163219,7 +160305,6 @@ juegodepc.com
 juegodepelea.com
 juegodepoker.com
 juegodepokergratis.com
-juegodeporno.tumblr.com
 juegodesanandres.com
 juegodescarga.com
 juegodesexo.com
@@ -163578,7 +160663,6 @@ juegosdeminions.net
 juegosdemoda.net
 juegosdemodelos.com
 juegosdemonkeygohappy.com
-juegosdemonster.com
 juegosdemonsterhigh.net
 juegosdemoto.net
 juegosdemotocros.com
@@ -163827,7 +160911,6 @@ juegosholo.net
 juegoshoo.com
 juegoshot.com
 juegoshq.com
-juegoshumedos.tumblr.com
 juegosifone.com
 juegosinc.com
 juegosinfantilesgratis.com
@@ -164092,7 +161175,6 @@ juelsmindebillardklub.dk
 juelsmindeputandtake.dk
 juelsmyth.com
 juelspinehaven.com
-juelzsantanabandana.tumblr.com
 juelzventura.com
 juemaisue.com
 juemanhing.com
@@ -164205,7 +161287,6 @@ juexw.googlevideo.com
 juexz.googlevideo.com
 juey.com
 juey.net
-jueycreamdrop.tumblr.com
 jueyu.com
 jueyuancailiao.com
 jueyuandianzu.com
@@ -164307,7 +161388,6 @@ juftifanam.com
 jufuc.googlevideo.com
 jufuf.googlevideo.com
 jufuh.googlevideo.com
-jufuk77.tumblr.com
 jufulami.blog.com
 jufulipfrocrelip.jefeqretasij.com
 jufus.googlevideo.com
@@ -164325,7 +161405,6 @@ jufxz.googlevideo.com
 jufy.net
 jufz.com
 jug-and-bottle.freeserve.co.uk
-jug-fucking-gifs.tumblr.com
 jug-s.com
 jug-ticket.com
 jug.gl
@@ -164587,11 +161666,8 @@ jugfuckers.org.uk
 jugfuckerstits.org
 jugg-fuckers.enjoylust.com
 juggadventures.com
-juggalonuts1.tumblr.com
 juggaloringtones.com
 juggalosauce.hatchethosting.com
-juggaloskullfuck-deactivated201.tumblr.com
-juggalotown.tumblr.com
 juggalove.com
 jugganote.com
 juggas.com
@@ -164612,9 +161688,7 @@ juggerbug.com
 juggerhood.de
 juggernart.com
 juggernautgaming.net
-juggernautoffury.tumblr.com
 juggernautproductions.com
-juggernautthor.tumblr.com
 juggernuatsproxy.tk
 juggers.com
 juggex.com
@@ -164688,8 +161762,6 @@ juggparty.com
 juggpass.com
 juggrealm.com
 juggroup.com
-juggs-curvy.tumblr.com
-juggs-show.tumblr.com
 juggs.cc
 juggs.com
 juggs.net
@@ -164716,13 +161788,11 @@ juggsindex.com
 juggsjizz.com
 juggsjoy.com
 juggsland.com
-juggslove.tumblr.com
 juggsmag.com
 juggsmagazine.com
 juggsmov.com
 juggsmovs.com
 juggsnbuns.com
-juggsoftea.tumblr.com
 juggsreviewed.com
 juggsvids.com
 juggsworld.com
@@ -164736,7 +161806,6 @@ juggy-babes.com
 juggy-girls.com
 juggybabes.org
 juggygirls.com
-juggyjuggs.tumblr.com
 juggymama.com
 juggymilfs.com
 juggys.com
@@ -164883,8 +161952,6 @@ jugride.com
 jugriinewle.com
 jugring.loan
 jugrunners.com
-jugs-and-pussy.tumblr.com
-jugs-judy.tumblr.com
 jugs.co.jp
 jugs.com
 jugs.com.au
@@ -164910,7 +161977,6 @@ jugsk.googlevideo.com
 jugskoxrhlxxul.co.uk
 jugsn.googlevideo.com
 jugsnotdrugs.com
-jugsntugs.tumblr.com
 jugsocial.com
 jugsoft.com
 jugsonline.com
@@ -165009,7 +162075,6 @@ jugzaxes.com
 juh-shiuaway.com
 juh.in
 juha-valovicjh.com
-juha007.tumblr.com
 juhacjacjckclqf.pw
 juhae.com
 juhainah.com
@@ -165206,7 +162271,6 @@ juice-discount.com
 juice-from.com
 juice-head.com
 juice-listen.com
-juice-man69.tumblr.com
 juice-ology.com
 juice-press.com
 juice-pump.com
@@ -165268,7 +162332,6 @@ juicebuggy.com
 juicebums.com
 juicebutt.com
 juicebuzz.com
-juicebxaddict.tumblr.com
 juicebythecase.com
 juicecaps.com
 juicecar.com
@@ -165303,8 +162366,6 @@ juicedcannabis.com
 juiceddesign.com
 juicedgold.com
 juicedh2o.com
-juicedhentai.tumblr.com
-juicedick.tumblr.com
 juicedieting.com
 juicedigital.social
 juicedispenser.net
@@ -165394,9 +162455,7 @@ juicelle.com
 juicelocal.com
 juicelocker.com
 juiceloose.net
-juiceloosley.tumblr.com
 juicelove.com
-juicelover02.tumblr.com
 juicelovers.com
 juicelow.info
 juicemagazine.com
@@ -165465,7 +162524,6 @@ juicepussyorbit.com
 juiceqube.net
 juicer-sectionizer-parts.com
 juicer101.com
-juicer25.tumblr.com
 juicerage.com
 juicerater.com
 juicerating.com
@@ -165476,7 +162534,6 @@ juicerbreville.com
 juicercentral.com
 juicerchoice.com
 juicercompany.com
-juicerdeluxe.tumblr.com
 juicereboot.com
 juicerforsale.com
 juicerfriendly.com
@@ -165521,7 +162578,6 @@ juicesquare.com
 juicestart.com
 juicesthatw0rksusa.com
 juicestl.com
-juicestream.tumblr.com
 juicestyle.com
 juicesubscription.com
 juicesubscriptions.com
@@ -165537,7 +162593,6 @@ juicethatworks.com
 juicethehero.com
 juicetiq.com
 juicetits.com
-juicetitsnass.tumblr.com
 juicetool.com
 juicetravel.com
 juicetrend.com
@@ -165571,7 +162626,6 @@ juicingalt.com
 juicingbible.com
 juicingbooks.com
 juicingcannabisrecipes.com
-juicingcocks.tumblr.com
 juicingcures.com
 juicingdetoxdiet.com
 juicingdream.com
@@ -165606,24 +162660,18 @@ juict.com
 juicu.googlevideo.com
 juicus.info
 juicx.googlevideo.com
-juicy--kitty.tumblr.com
 juicy-adult-gallery.com
 juicy-anal-sex-pics.com
 juicy-apps.com
-juicy-asian-babes.tumblr.com
-juicy-asian-babez.tumblr.com
 juicy-asses.com
 juicy-black-booty.com
 juicy-blondes.com
 juicy-boobs.biz
 juicy-boobs.com
-juicy-cherry-blog.tumblr.com
 juicy-cherry.com
-juicy-chris.tumblr.com
 juicy-clips.com
 juicy-clitorz.com
 juicy-cock.com
-juicy-cock.tumblr.com
 juicy-couture-outlet-sale.com
 juicy-couture-outlet-store.com
 juicy-couture-outletonline.com
@@ -165633,11 +162681,9 @@ juicy-cunts.com
 juicy-fetish.net
 juicy-free-porn-pics.com
 juicy-girl.com
-juicy-girls-toes.tumblr.com
 juicy-girls.biz
 juicy-girls.net
 juicy-hentai.com
-juicy-hot-milf.tumblr.com
 juicy-hotties.com
 juicy-jesika-pic.blogspot.ae
 juicy-jesika-pic.blogspot.al
@@ -165780,19 +162826,13 @@ juicy-mandy.blogspot.sn
 juicy-mandy.blogspot.tw
 juicy-mandy.blogspot.ug
 juicy-matures.com
-juicy-milf-pics.tumblr.com
-juicy-milf-sex.tumblr.com
 juicy-milf.com
-juicy-moments.tumblr.com
 juicy-news.blogspot.us.intellitxt.com
 juicy-nipples.com
 juicy-playground.com
-juicy-porn-pics.tumblr.com
 juicy-porn.com
 juicy-porn.net
 juicy-pornstars.com
-juicy-preggo-sex.tumblr.com
-juicy-preggo.tumblr.com
 juicy-pubg.com
 juicy-pussies.com
 juicy-pussy-clips.com
@@ -165803,14 +162843,11 @@ juicy-pussy.info
 juicy-pussy.net
 juicy-q.com
 juicy-scents.com
-juicy-self-pix.tumblr.com
 juicy-sex-story.com
-juicy-sexy-ebony.tumblr.com
 juicy-slits.com
 juicy-sluts.com
 juicy-stars.com
 juicy-sweet-pussy.com
-juicy-swinger-girls.tumblr.com
 juicy-teen-sex.com
 juicy-teens.blogspot.ae
 juicy-teens.blogspot.al
@@ -165888,8 +162925,6 @@ juicy-tube.com
 juicy-vagina.com
 juicy-videos.com
 juicy-wetpussy.com
-juicy-women-feet.tumblr.com
-juicy-x-cum.tumblr.com
 juicy-xxx.com
 juicy.hidden.camera.free.fr
 juicy.net
@@ -165899,7 +162934,6 @@ juicy3dporn.com
 juicy3dsex.com
 juicy48.com
 juicy4u.com
-juicy7993.tumblr.com
 juicyaccess.com
 juicyads.bz
 juicyads.com
@@ -165921,7 +162955,6 @@ juicyartphotography.com
 juicyarts.com
 juicyasia.com
 juicyasiangirls.com
-juicyasianlover.tumblr.com
 juicyasianporn.com
 juicyasianpussy.com
 juicyasians.com
@@ -165932,7 +162965,6 @@ juicybabe.com
 juicybabes.net
 juicybabez.com
 juicybacklinks.com
-juicybaldpussies.tumblr.com
 juicybands.com
 juicybar.com
 juicybeans.com
@@ -165944,10 +162976,8 @@ juicyberries.com
 juicybid.com
 juicybigass.com
 juicybigbutt.com
-juicybigcocks.tumblr.com
 juicybigtits.com
 juicybikini.com
-juicyblackasses.tumblr.com
 juicyblackcock.com
 juicyblackgirls.com
 juicyblackpussy.com
@@ -165959,19 +162989,16 @@ juicyblowjob.com
 juicyblowjobs.com
 juicybodies.com
 juicybody.com
-juicybondagegirls.tumblr.com
 juicyboobs.com
 juicybooties.com
 juicybouquet.com
 juicybouquets.com
 juicyboutique.com
-juicyboy46.tumblr.com
 juicyboyfriend.com
 juicyboys.biz
 juicyboys.com
 juicyboys.net
 juicyboysclub.com
-juicyboysnetwork.tumblr.com
 juicyboystube.com
 juicybreasts.com
 juicybrilliance.com
@@ -166000,7 +163027,6 @@ juicycerebellum.com
 juicychat.co.uk
 juicychat.com
 juicycherries.com
-juicycherryandchocorocket.tumblr.com
 juicychicken.com
 juicychicks.com
 juicychina.com
@@ -166039,7 +163065,6 @@ juicycouturesale-uk.com
 juicycoutureuniverse.com
 juicycrush.com
 juicycubicle.com
-juicycumlover.tumblr.com
 juicycums.com
 juicycumshot.com
 juicycumshots.com
@@ -166050,8 +163075,6 @@ juicycunts.com
 juicycunts.net
 juicycuntsz.com
 juicycurves.com
-juicycurvyculonas.tumblr.com
-juicydenny.tumblr.com
 juicydevils.com
 juicydevils.gr
 juicydiet.com
@@ -166068,12 +163091,10 @@ juicyebonies.com
 juicyebony.com
 juicyemo.com
 juicyemptiness.com
-juicyeroticmoments.tumblr.com
 juicyescort.com
 juicyface.com
 juicyfat.com
 juicyfatass.com
-juicyfatsexybbws.tumblr.com
 juicyfeeds.com
 juicyfile.ru
 juicyfiles.net
@@ -166087,9 +163108,7 @@ juicyfreedom.com
 juicyfruit.bluechristmas.com
 juicyfruit.startspot.nl
 juicyfuck.com
-juicyfuckingwatermelons.tumblr.com
 juicyfullness.com
-juicyfuta.tumblr.com
 juicygalleries.com
 juicygallery.com
 juicygals.com
@@ -166111,7 +163130,6 @@ juicygirlfriends.com
 juicygirll.com
 juicygirls-las-vegas.ru
 juicygirls.net
-juicygoddes.tumblr.com
 juicygoo.com
 juicygood.com
 juicygoodness.com
@@ -166135,7 +163153,6 @@ juicyhost.com
 juicyhot.com
 juicyhotbabes.com
 juicyhotporn.com
-juicyhugeboobs.tumblr.com
 juicyice.com
 juicyimage.com
 juicyindian.com
@@ -166223,7 +163240,6 @@ juicyjen4phone.blogspot.ug
 juicyjerky.com
 juicyjerseygirls.com
 juicyjesika.com
-juicyjessicv.tumblr.com
 juicyjewels.net
 juicyjill.com
 juicyjo-escort.com
@@ -166276,18 +163292,15 @@ juicylatinapussy.com
 juicylatinass.com
 juicylatins.com
 juicylbabes.com
-juicylean.tumblr.com
 juicylegs.com
 juicylesbian.com
 juicylesbians.com
-juicylicky.tumblr.com
 juicylife.ru
 juicyline.com
 juicylingo.com
 juicylink.com
 juicylinks.com
 juicylips.com
-juicylips72.tumblr.com
 juicylist.com
 juicylittlefatgirl.com
 juicylittlefatgrl.com
@@ -166318,14 +163331,12 @@ juicymeat.net
 juicymelons.com
 juicymiles.com
 juicymilky.com
-juicyminxxx.tumblr.com
 juicymob.com
 juicymodel.com
 juicymodels.com
 juicymommy.com
 juicymoms.deluxepass.com
 juicymoms.net
-juicymonster.com
 juicymoo.com
 juicymoon.com
 juicymovie.com
@@ -166350,28 +163361,22 @@ juicyoo.us
 juicyorgasms.com
 juicyorient.com
 juicypanties.com
-juicypanties.tumblr.com
 juicypants.com
 juicypantyhose.com
 juicypasswords.com
 juicypeach.com
-juicypeacherotica.tumblr.com
 juicypeaches.co.uk
 juicypearl.com
 juicypen.com
-juicyphat.tumblr.com
 juicyphotos.com
 juicypic.com
 juicypictures.com
 juicypinkbox.com
-juicypinkbox.tumblr.com
 juicypinkpussy.com
-juicypiss.tumblr.com
 juicypix.net
 juicyplayground.com
 juicyporn.com
 juicyporn.net
-juicypornandsex.tumblr.com
 juicypornhost.com
 juicypornmovies.com
 juicyporno.com
@@ -166390,15 +163395,10 @@ juicypussy.com
 juicypussy.in
 juicypussy.net
 juicypussy.xxx
-juicypussy4bbc.tumblr.com
-juicypussyboiz.tumblr.com
 juicypussyclips.com
 juicypussyclub.com
 juicypussyexplorer.com
-juicypussyfireall.tumblr.com
-juicypussyhornylesbi.tumblr.com
 juicypussypix.com
-juicypussytube.tumblr.com
 juicypusy.com
 juicyq.com
 juicyqueef.com
@@ -166409,7 +163409,6 @@ juicyrec.com
 juicyrecords.com
 juicyrentals.com
 juicyriot.com
-juicyripepussy.tumblr.com
 juicyrumors.com
 juicyrumps.com
 juicys84inchass.com
@@ -166426,12 +163425,10 @@ juicyscents.com
 juicyschoolgirls.com
 juicyscoop.com
 juicyscottsdale.com
-juicyselfshotgirls.tumblr.com
 juicyset.com
 juicysex.com
 juicysex.mobi
 juicysex.nu
-juicysexdaily.tumblr.com
 juicysexlinks.com
 juicysexorgy.com
 juicysexpics.com
@@ -166446,8 +163443,6 @@ juicysgalleries.com
 juicysgianthamburgers.net
 juicyshacks.com
 juicyshakers.com
-juicyshemale.tumblr.com
-juicyshemalecocks.tumblr.com
 juicyshemales.com
 juicyshirt.com
 juicyshoes.com
@@ -166482,7 +163477,6 @@ juicytea.com
 juicyteen.com
 juicyteenass.com
 juicyteenasses.com
-juicyteenbabes.tumblr.com
 juicyteenboys.tv
 juicyteenfuck.com
 juicyteenie.com
@@ -166491,7 +163485,6 @@ juicyteenpics.com
 juicyteenporn.com
 juicyteenpussy.com
 juicyteenpussy.net
-juicyteenpussy.tumblr.com
 juicyteens.com
 juicyteenslits.com
 juicyteenspics.com
@@ -166616,16 +163609,13 @@ juicywin.pl
 juicywines.com
 juicywoman.com
 juicywords.com
-juicyx-net.tumblr.com
 juicyx.com
 juicyxvideo.com
 juicyxvideos.com
 juicyxxxholes.com
 juicyxxxporn.com
 juicyxxxtoons.com
-juicyy-men.tumblr.com
 juicyy.com
-juicyygirl3.tumblr.com
 juicyyoungpussy.com
 juicyyoungpussy.net
 juicyyummy.com
@@ -166667,7 +163657,6 @@ juikx.googlevideo.com
 juilhea.blog.com
 juiliard.com
 juilletaout.com
-juilliard.edu
 juilrue.blog.com
 juima.org
 juims.googlevideo.com
@@ -166696,7 +163685,6 @@ juir.000webhostapp.com
 juir.com
 juir.com.mx
 juirevtere.hotpricea.su
-juisasses.tumblr.com
 juise.com
 juisee.com
 juisi.com
@@ -166762,7 +163750,6 @@ jujcp.googlevideo.com
 jujcu.googlevideo.com
 jujcx.googlevideo.com
 jujdkdk.myjino.ru
-jujeamic.tumblr.com
 jujeblob.ru
 jujeh.com
 jujejo.com
@@ -166872,7 +163859,6 @@ jujtp.googlevideo.com
 jujts.googlevideo.com
 jujtu.googlevideo.com
 juju-homestyle.de
-juju03000.tumblr.com
 juju800.com
 juju9.com
 jujuads.com
@@ -166916,7 +163902,6 @@ jujujahs.net
 jujujam.com
 jujujjlolol.blogspot.com
 jujujoint.com
-jujujuicy.tumblr.com
 jujujuj.com
 jujujuj.net
 jujukats.com
@@ -166994,7 +163979,6 @@ jujzh9va.com
 juk-soft.ru
 juka-linthline.ch
 juka.com
-jukadiie.tumblr.com
 jukadio.de
 jukado.com
 jukadousa.com
@@ -167048,7 +164032,6 @@ jukeboxcasino.com
 jukeboxcountry.com
 jukeboxdance.com
 jukeboxdivas.com
-jukeboxemcsa.tumblr.com
 jukeboxen.com
 jukeboxesforsale.org
 jukeboxexperten.dk
@@ -167338,7 +164321,6 @@ jule6.dk
 julebank.com
 julebudaxue.com
 julebuffet.com
-julecapulet.tumblr.com
 juleco.com
 julecoin.com
 julecoins.com
@@ -167362,11 +164344,9 @@ julekalender2001.leithoff.dk
 julekhadash.com
 juleklip.com
 julekrybbe.com
-julelefetichiste.tumblr.com
 juleloan.com
 juleloans.com
 julenisse.com
-julenrike.tumblr.com
 juleonline.in
 julep.btttag.com
 julep.net
@@ -167376,12 +164356,10 @@ juleporno.dk
 julerabatt.com
 juleradio.com
 jules-holzspielzeug.de
-jules-jordan.tumblr.com
 jules-julia.com
 jules-model.co.uk
 jules-online.com
 jules-valles-antiques.com
-jules7009.tumblr.com
 julesandco.com
 julesapparels.co.ke
 julesartwear.com
@@ -167404,7 +164382,6 @@ julesenchantinggifts.com
 julesenterprises.com
 julesetcleopatre.centerblog.net
 julesetjulie.centerblog.net
-julesexy.tumblr.com
 julesferry.com
 julesflute.com
 julesgalloway.com
@@ -167496,14 +164473,11 @@ juli-ashton-pussy-ass.searchmole.co.uk
 julia--from-crimson-teens-black-lingerine.blogomer
 julia--from-crimson-teens-black-lingerine.blogomer.com
 julia-2000.tmfweb.nl
-julia-8888.tumblr.com
 julia-ahart.us
 julia-alldredge.us
 julia-amatrice-libertine.net
 julia-amatrice.com
 julia-andres.biz
-julia-ann-hdpornvideos.tumblr.com
-julia-ann-hdsex.tumblr.com
 julia-ann.com
 julia-balbuena.in
 julia-belknap.biz
@@ -167835,7 +164809,6 @@ julia777.cn
 julia825.xanga.com
 julia87.de
 julia911.com
-julia990129.tumblr.com
 juliaa-escorte.site.voila.fr
 juliaa.com
 juliaa.info
@@ -167859,7 +164832,6 @@ juliaannblog.net
 juliaannlive.com
 juliaannlove.com
 juliaannonline.com
-juliaannpornstar.tumblr.com
 juliaannx.blogspot.ca
 juliaannx.blogspot.ch
 juliaannx.blogspot.co.id
@@ -167937,7 +164909,6 @@ juliacool.com
 juliacox.com
 juliacreek.com
 juliacroce.com
-juliacrossdressing.tumblr.com
 juliacrown.net
 juliadams.com
 juliadang.com
@@ -167966,7 +164937,6 @@ juliaexposed.com
 juliafan.com
 juliafaria.com
 juliafarr.com
-juliafilthymilf.tumblr.com
 juliaflower.com
 juliaflowers.com
 juliaforti.com.br
@@ -167989,13 +164959,10 @@ juliaharman.com
 juliahawkins.com
 juliahayes.net
 juliahazina.com
-juliahdonnacd.tumblr.com
 juliahernandez.com
 juliahoppe.com
 juliahorn.com
-juliahoutx.tumblr.com
 juliahowell.com
-juliahubbard.tumblr.com
 juliahunter.com
 juliairwin.com
 juliajaanna.se
@@ -168082,7 +165049,6 @@ juliana-escort.com
 juliana-freda.in
 juliana-gardea.us
 juliana-ghent.us
-juliana-grandi-p720p.tumblr.com
 juliana-greenhalgh.us
 juliana-haddad.us
 juliana-hardeman.me
@@ -168287,7 +165253,6 @@ julianicole.com
 julianimports.com
 julianinterior.com
 julianiny.com
-julianisback.tumblr.com
 julianjaffe.com
 julianjaramillo.com
 julianjarcher.com
@@ -168395,7 +165360,6 @@ julianneonline.com
 juliannepowers.com
 juliannerowe.com
 juliannetaylor.com
-juliannetv.tumblr.com
 juliannisitalian.com
 juliannkuchocki.com
 juliannmore.com
@@ -168423,7 +165387,6 @@ julianpowell.com
 julianrestrepro.com
 julianrios.com
 julianrios.net
-julianrioscockworship.tumblr.com
 julianrobinson.com
 julianrochlitzer.de
 julianrockmemorial.org
@@ -168431,7 +165394,6 @@ julianrodriguez.net
 julianrosero.com
 julianrouas.com
 julianruiz.com
-julians-house-of-cock.tumblr.com
 juliansanchez.com
 juliansautocl.com
 juliansblog.com
@@ -168470,7 +165432,6 @@ juliaorlova.com
 juliaormond.com
 juliaowens.com
 juliapage.dr.ag
-juliapage.tumblr.com
 juliaparkertwos.com
 juliaparton.com
 juliapartonxxx.com
@@ -168573,7 +165534,6 @@ juliasworldofgrace.com
 juliasxxx.com
 juliasxxx.de
 juliasykes.net
-juliataylorme.tumblr.com
 juliateenmodel.com
 juliatgp.net
 juliathorne.com
@@ -168632,7 +165592,6 @@ julie-amatrice.com
 julie-and-christian.com
 julie-andy.fsnet.co.uk
 julie-ann.us
-julie-annelovescock.tumblr.com
 julie-anns-dolls-houses.co.uk
 julie-baptiste.com
 julie-battle.us
@@ -168692,14 +165651,12 @@ julie-sexe-gratuit.com
 julie-sexy-girl.hostarea.org
 julie-shumpert.us
 julie-skyhigh.com
-julie-skyhigh.tumblr.com
 julie-smalling.us
 julie-sms.com
 julie-soumise.over-blog.com
 julie-sous-x.jepose.net
 julie-sowell.us
 julie-steven.com
-julie-strain-naw.tumblr.com
 julie-tannehill.us
 julie-wang.com
 julie-whisenhunt.us
@@ -168791,13 +165748,11 @@ julie1.com
 julie17.fr.st
 julie18.free.fr
 julie1978ke.weebly.com
-julie5584.tumblr.com
 julie68.pagesperso-orange.fr
 julie82.free.fr
 julie82.ifrance.com
 julie83trav.canalblog.com
 julie90.com
-julie958.tumblr.com
 julie95c.com
 julie999.free.fr
 juliea.cafe24.com
@@ -168825,7 +165780,6 @@ julieannerickson.net
 julieanngillis.com
 julieannolson.com
 julieannwalker.net
-julieasiangirl.tumblr.com
 julieatlasmuz.com
 juliebaek.com
 juliebaez.com
@@ -168961,7 +165915,6 @@ julieconnlaw.com
 julieconnolly.net
 juliecoquine.canalblog.com
 juliecoquine.skynetblogs.be
-juliecoquinette.tumblr.com
 juliecote.com
 juliecotton.com
 juliecovington.com
@@ -168985,7 +165938,6 @@ juliedeparis.com
 juliedevitt.com
 juliedial.com
 juliedibens.com
-juliedizzy.tumblr.com
 juliedore.com
 juliedoucet.com
 juliedrazen.com
@@ -168995,7 +165947,6 @@ juliedumoissands.com
 julieedstrom.com
 julieemerycoaching.com
 julieenglish.com
-julieestiva.tumblr.com
 julieetkevin.com
 julieevans.com
 julief.bloggarcinialone.eu
@@ -169006,7 +165957,6 @@ julieferwerda.com
 juliefletcher.com
 juliefreeporn.com
 juliefreesex.com
-juliefromtherocks.tumblr.com
 julieg.com
 juliegallagher.com
 juliegarland.com
@@ -169052,7 +166002,6 @@ julieinyourkitchen.com
 juliejahnwhiffen.com
 juliejanice.us
 juliejennings.com
-juliejohnson777.tumblr.com
 juliejohnsonphoto.com
 juliejoneshomes.com
 juliejourdan.com
@@ -169072,13 +166021,10 @@ julielacombe.com
 julielagadec.com
 julieland.com
 julielansley.com
-julielapierre.tumblr.com
-julielapierre79.tumblr.com
 julielarousse.canalblog.com
 julielemieux.com
 julieleroux.com
 julielien.com
-julielikesbig.tumblr.com
 julielin.com
 julielinden.com
 julielindsay.com
@@ -169092,8 +166038,6 @@ julielondon.com
 julielopezshoes.com
 julielouxphotography.com
 julielovell.com
-julielovep.tumblr.com
-julieluvcock.tumblr.com
 juliemackenzie.co.uk
 juliemadison.com
 juliemae.com
@@ -169131,7 +166075,6 @@ juliemorgan.typepad.com
 juliemortimer.com
 juliemusic.com
 julien-boulier.net
-julien-stephen.tumblr.com
 julien.beausseron.free.fr
 julien.com
 julien.com.ar
@@ -169149,7 +166092,6 @@ julienblanc.com
 juliencaille.com
 julienchambon.com
 julienchris.com
-juliencockandass.tumblr.com
 juliencolombier.com
 juliencomblat.com
 juliencros.com
@@ -169173,8 +166115,6 @@ julienjanvier.com
 julienjeanne.com
 julienjoubert.com
 julienjulien.com
-julienki.tumblr.com
-julienlasalope.tumblr.com
 julienleclaire.com
 julienlefebur.servemp3.com
 julienleparoux.com
@@ -169210,7 +166150,6 @@ julienrolland.com
 juliensarradet.com
 juliensboys.com
 julienset.com
-juliensoreltron.tumblr.com
 julienspectacle.com
 juliensprod.ifrance.com
 julientellier.com
@@ -169248,7 +166187,6 @@ julieportercott.co.uk
 juliepost.com
 juliepowers.com
 juliepropp.com
-juliequebec.tumblr.com
 juliequilts.com
 juliequilts.net
 julieraconte.canalblog.com
@@ -169303,13 +166241,11 @@ julieschool.com
 julieschott.com
 julieschubert.com
 julieschwartz.com
-juliesclit.tumblr.com
 juliesclothing.com
 juliescycles.com
 juliesdeals.com
 juliesdesignhouse.com
 juliesdiary.com
-juliesdirtylezsecret.tumblr.com
 julieseatsandtreats.com
 juliesellslasvegas.com
 juliesembroidery.com
@@ -169332,7 +166268,6 @@ julieshort.com
 julieshow.com
 juliesiglerbaum.com
 juliesimone.com
-juliesimonesworld.tumblr.com
 juliesimons.com
 juliesimprinting.com
 juliesimpsondesign.com
@@ -169341,7 +166276,6 @@ juliesjewelrydesigns.com
 juliesjewels.com
 juliesjungle.com
 juliesjunque.com
-julieskyhigh28.tumblr.com
 juliesmotel.com
 juliesms.com
 juliesmusic.com
@@ -169366,9 +166300,6 @@ juliesulzen.com
 juliesvintage.com
 julieswalk.com
 juliesxxx.com
-juliet-berry.tumblr.com
-juliet-dixon.tumblr.com
-juliet-patterson.tumblr.com
 juliet.pl
 juliet11.interfree.it
 julieta-hot.blogspot.ae
@@ -169453,7 +166384,6 @@ julietandchristian2017.com
 julietandersonxxx.com
 julietandjuliet.com
 julietaramirez.com
-julietarty.tumblr.com
 julietasmith.com
 julietate.com
 julietawney.com
@@ -169499,7 +166429,6 @@ julietonelli.com
 julietongerealtor.com
 julietraves.ca
 julietromeo.com
-julietrt.tumblr.com
 julietscollectibles.com
 julietscottage.com
 julietsessions.com
@@ -169525,11 +166454,7 @@ juliettaroze.com
 juliettaylor.com
 juliette-bergmann.com
 juliette-christiana.com
-juliette-daniels.tumblr.com
 juliette-escort.com
-juliette-george.tumblr.com
-juliette-gibson.tumblr.com
-juliette-lewis-ryk.tumblr.com
 juliette-transvestite.co.uk
 juliette.allan.pqknu.cablegram.steedhammondpaul.com
 juliette.ro
@@ -169537,11 +166462,9 @@ juliette18.fr.st
 juliette18.free.fr
 juliette18ans.free.fr
 juliettearmand.pl
-juliettebalcony.tumblr.com
 juliettebaptistchurch.com
 juliettebergmann.com
 juliettebetonte.com
-juliettebryan.tumblr.com
 juliettecaptured.com
 juliettecash.com
 juliettedeneuve.com
@@ -169558,7 +166481,6 @@ juliettelibertine.fr.nf
 juliettemartin.com
 juliettemayer.com
 juliettemonsite.free.fr
-julietteparrish.tumblr.com
 juliettepasser.com
 julietterhodes.com
 juliettes.vitaminb.de
@@ -169570,11 +166492,7 @@ juliettesunflower.com
 julietteswift.com
 juliettezahn.com
 julietthompson.com
-juliettodd.tumblr.com
 julietucker.com
-julietuncensored.tumblr.com
-julietunderwood.tumblr.com
-julietwasalesbian.tumblr.com
 julietxxx.com
 julietyates.com
 julietyt.beget.tech
@@ -169615,12 +166533,10 @@ juliewiles.com
 juliewilhelm.com
 juliewilliamson.com
 juliewolfedesign.com
-juliewoodall4.tumblr.com
 juliewoon.com
 juliewren.com
 juliewyliemusic.com
 juliex.over-blog.com
-juliexdress.tumblr.com
 juliexxx.com
 juliexxx.free.fr
 juliexxx.iquebec.com
@@ -169661,12 +166577,9 @@ julinha.serveblog.net
 julinmoto.be
 julio-cortazar.com
 julio-leon.com
-julio-not-cesar.tumblr.com
 julio.us
 julio.xarold.com
-julio1989.tumblr.com
 julio2018.duckdns.org
-julio22cruz.tumblr.com
 julioalarcon.cl
 julioalbertomartinez.com
 julioaleman.com
@@ -169714,7 +166627,6 @@ juliojonesjerseys.us
 juliolemos.com
 julioleon.com
 juliolima.com
-juliologanus.tumblr.com
 julioluque.com
 juliomarquez.com
 juliomedina.com
@@ -169752,10 +166664,8 @@ juliovitoria.com
 julioweb.com
 juliox.blogviajar.com
 julioxxx.com
-julioyesyes.tumblr.com
 juliper.free.fr
 juliq.googlevideo.com
-julirossiputinha.tumblr.com
 julirussell.com
 julis-berlin.de
 julis-bremen.de
@@ -169767,7 +166677,6 @@ julis-sb.de
 julis-sh.de
 julis.googlevideo.com
 julisa.com
-julisanches97.tumblr.com
 julisha.com
 julishan.com
 julissa-abdo.us
@@ -169830,7 +166739,6 @@ juliusdoom.com
 juliusevola.0catch.com
 juliusex.ru
 juliusfisher.com
-juliusgeoge20.tumblr.com
 juliusgroup.com
 juliushonnor.co.uk
 juliusj.com
@@ -169963,7 +166871,6 @@ julla.flirtmoi.com
 jullane.com
 jullesetjulles.com
 julli.googlevideo.com
-jullian500.tumblr.com
 julliannesvids.com
 julliard.fr
 julll.googlevideo.com
@@ -169973,7 +166880,6 @@ jullr.googlevideo.com
 jullt.googlevideo.com
 jullundurhotel.com
 jullw.googlevideo.com
-jully-ladyboy.tumblr.com
 jullye.com
 jullye.ifrance.com
 jullyee.free.fr
@@ -170037,7 +166943,6 @@ julsweb.com
 jult.com
 julta.com
 jultak.com
-jultnew.tumblr.com
 jultomte.com
 jultoretabletspills.com
 jultra.stream
@@ -170071,7 +166976,6 @@ julwx.googlevideo.com
 julxkik.com
 julxx.googlevideo.com
 julxyaf.cn
-july-19th-club.tumblr.com
 july-4th.com
 july-chaines.com
 july-coupons.com
@@ -170156,7 +167060,6 @@ julyackerman.com
 julyamaus.de.vu
 julyanelima.com
 julyanstone.com
-julyanxavier.tumblr.com
 julyapartments.com
 julybazed.pw
 julybelles.com
@@ -170224,7 +167127,6 @@ julyviviana.com
 julyx.free.fr
 julyz.com
 julze.com
-julzgracia.tumblr.com
 jum-bremen.de
 jum.net
 jum.ru
@@ -170378,7 +167280,6 @@ jumbodirectory.com
 jumbodisplay.com
 jumbodokkum-medewerkers.nl
 jumbodomains.com
-jumbodont4getg.tumblr.com
 jumbodoorhangers.com
 jumboe.com
 jumboedusupplies.com
@@ -170703,7 +167604,6 @@ jummawaup.com
 jummb.googlevideo.com
 jumme.com
 jummorjump.id
-jummper-fan.tumblr.com
 jummu.com
 jummu.googlevideo.com
 jummy.tmfweb.nl
@@ -170728,7 +167628,6 @@ jump-explorer.arcpool.com
 jump-in-jack.it
 jump-into-the-bible.com
 jump-jam.de.tt
-jump-on-my-cock.tumblr.com
 jump-rope.com
 jump-time.net
 jump-trampolinmagazin.de
@@ -170977,7 +167876,6 @@ jumper.crimea.ua
 jumper.dietwelhcg.at
 jumper.nl
 jumper.ro
-jumper247.tumblr.com
 jumpera.com
 jumperbounce.com
 jumperclassic.com
@@ -171061,7 +167959,6 @@ jumphighgame.com
 jumphit.com
 jumphobbies.com
 jumphouserental.com
-jumpie21.tumblr.com
 jumpier.com
 jumpiest.us
 jumpify.com
@@ -171160,7 +168057,6 @@ jumpinjackjohnson.com
 jumpinjammerz.com
 jumpinjammies.com
 jumpinjanets.com
-jumpinjehozaphats.tumblr.com
 jumpinjesuschrist.com
 jumpinjiggities.com
 jumpinjiggity.com
@@ -171268,7 +168164,6 @@ jumpoffusa.com
 jumpoffusa.net
 jumpol.net
 jumpomania.com
-jumpondadick.tumblr.com
 jumpondeala.com
 jumpondeald.com
 jumpondeals.net
@@ -171278,9 +168173,7 @@ jumpondealz.com
 jumponline.com
 jumponline.info
 jumponmybandwagon.com
-jumponmydick.tumblr.com
 jumponnet.com
-jumponsex.tumblr.com
 jumponthat.com
 jumponus.com
 jumpopia.com
@@ -171598,7 +168491,6 @@ jumup.googlevideo.com
 jumuu.googlevideo.com
 jumuw0ddb0rihi.juyoreoweyoyi.com
 jumuziffc5fvimiy.kocezereokoq.info
-jumwa.tumblr.com
 jumwe.googlevideo.com
 jumwg.googlevideo.com
 jumwj.googlevideo.com
@@ -171637,7 +168529,6 @@ jun30.com
 jun3okane.com
 jun4u.com
 jun6.com
-jun6335.tumblr.com
 junabo.com
 junad.googlevideo.com
 junagadhmonthly.com
@@ -171674,7 +168565,6 @@ junbitracker.com
 junbl.googlevideo.com
 junbo.googlevideo.com
 junbock.info
-junbon21.tumblr.com
 junbr.googlevideo.com
 junbt.googlevideo.com
 junbun.com
@@ -171694,7 +168584,6 @@ junclutabud.xyz
 juncoffee.jp
 juncompany.com
 juncoop.com
-juncospuertorro.tumblr.com
 juncotech.com
 juncratmiro1984.posterous.com
 junctavalenta.com
@@ -171710,9 +168599,7 @@ junctionchristianacademy.com
 junctionchurch.com
 junctionchurch.org.za
 junctionchurchleicester.com
-junctioncity-ks.gov
 junctioncitychurchofgod.com
-junctioncityoregon.gov
 junctioncityrv.com
 junctioncommons.com
 junctioncondos.com
@@ -171866,7 +168753,6 @@ june-iser.us
 june-jubilee.com
 june-lakes.us
 june-latta.us
-june-le.tumblr.com
 june-lee.com
 june-manzano.us
 june-scala.us
@@ -171968,7 +168854,6 @@ junebin.com
 junebirthday.com
 junebisantzevans.com
 juneblossom.com
-juneboy687.tumblr.com
 junebride-movie.com
 junebridesmusic.com
 junebrowndolls.com
@@ -172009,7 +168894,6 @@ junediabetesnotice.us
 junedomain.com
 junedsgn.com
 junedu.com
-junedzl66.tumblr.com
 juneebb.com
 juneeighth.com
 juneemerson.com
@@ -172112,9 +168996,7 @@ juneskipatrol.com
 junesky.myblogtoolbar.com
 junesmail.com
 junesnowpaw.com
-junesnowpaw.tumblr.com
 junesocial.com
-junesolivier.tumblr.com
 junesommerlivev.com
 junesommerlivey.com
 junesoul.com
@@ -172165,7 +169047,6 @@ junfubgjdyp.cn
 junfull.com
 jung-ang.co.kr
 jung-do.de
-jung-fleischig-piss-devot-animal.tumblr.com
 jung-grossmechanik.de
 jung-it.com
 jung-kontakte.net.tf
@@ -172452,7 +169333,6 @@ jungjyim96.000webhostapp.com
 jungjyim96.000webhostapp.com
 jungjyim96.000webhostapp.com
 jungk.googlevideo.com
-jungkookiemon.tumblr.com
 jungkylock.tk
 jungladelocio.com
 junglanet.com
@@ -172460,7 +169340,6 @@ junglaonline.com
 junglasexo.com
 junglaurbana.com
 jungle-babies.com
-jungle-bunnies.tumblr.com
 jungle-cats.by.ru
 jungle-erotica.70h.com
 jungle-eyewear.com
@@ -172568,10 +169447,8 @@ jungleerotica.com
 jungleexpedition.com
 jungleeyes.com
 junglefan.com
-junglefever-xxx.tumblr.com
 junglefever.pokeadot.com
 junglefever.ws
-junglefevermona.tumblr.com
 junglefeverporn.com
 junglefevers.com
 junglefeverxxx.com
@@ -172687,7 +169564,6 @@ jungleproxy.com
 junglepublications.com
 junglepup.com
 junglepussy.com
-junglepussygushy.tumblr.com
 junglequeen.com
 jungler.com
 jungler.net
@@ -172704,7 +169580,6 @@ jungleriverlodge.com
 junglerose.com
 jungleroses.com
 junglerot.net
-junglerott.tumblr.com
 junglerummy.com
 junglerunner.com
 jungleschool.com
@@ -172932,7 +169807,6 @@ juniamachado.com.br
 junianal.net
 juniarye.com
 juniata.de
-juniata.edu
 juniatachristian.com
 junib.us
 junibox.net
@@ -172967,7 +169841,6 @@ juninhos.com.br
 juniocsilva.sites.uol.com.br
 junion.info
 junior-ae.com
-junior-batman.tumblr.com
 junior-bboy.com
 junior-cup.de
 junior-cup.pl
@@ -172990,9 +169863,6 @@ junior.hqtoplist.com
 junior.verbiergolf.com
 junior14.ru
 junior2.stores.yahoo.net
-junior8288.tumblr.com
-junior861.tumblr.com
-junior9teen7sex.tumblr.com
 juniora.de
 junioracademies.com
 junioractionclub.net
@@ -173001,7 +169871,6 @@ juniorad.co.za
 junioradvertising.com
 junioradvisor.com
 junioraerobics.com
-juniorafterdark.tumblr.com
 junioraguilar.com
 junioraid.com
 juniorama.com
@@ -173133,7 +170002,6 @@ juniorfirst.com
 juniorfives.com
 juniorfootball.net
 juniorfootball.org
-juniorforestranger.gov
 juniorfoto.com
 juniorfreitas.com
 juniorfsegn.com
@@ -173228,10 +170096,8 @@ juniormuscle.com
 juniormvp.com
 juniornews.com
 juniorninjascout.com
-juniorno.tumblr.com
 juniornunes.com
 juniorolympic.com
-junioromar74.tumblr.com
 juniorone.com
 junioroops.name
 juniorpaganinix.com
@@ -173280,7 +170146,6 @@ juniorsframing.com
 juniorsgames.com
 juniorsharvard.com
 juniorshelver.com
-juniorshemales.tumblr.com
 juniorshooting.com
 juniorshopping.com
 juniorshots.com
@@ -173416,8 +170281,6 @@ juniperssg.com
 junipersslvpn.com
 juniperstreetbiblechurch.com
 juniperstudios.com
-juniperswift.tumblr.com
-juniperswitch.tumblr.com
 junipertrail.com
 junipertrain.com
 junipertree.biz
@@ -173436,11 +170299,8 @@ junis.com
 junisa.com
 junita.com
 junited.com
-junitzz.tumblr.com
 juniusedwards.com
-juniusf.tumblr.com
 juniustbugg.com
-juniv.edu
 juniversity.com
 juniversity.net
 junivi659d7pokoyi.jipapoyureufe.com
@@ -173473,7 +170333,6 @@ junk-car.info
 junk-dealer.info
 junk-gypsy.info
 junk-hauling.info
-junk-in-yo-trunk.tumblr.com
 junk-magazine.com
 junk-my-junk.com
 junk-plaza.com
@@ -173694,7 +170553,6 @@ junkmac.com
 junkmail-d.openx.net
 junkmail-d3.openxenterprise.com
 junkmail.co.za
-junkmail27.tumblr.com
 junkmailcars.com
 junkmaild.openx.net
 junkmaildomain.com
@@ -173704,7 +170562,6 @@ junkmailsucks.com
 junkmamashop.com
 junkmamastore.com
 junkmamma.com
-junkman0128.tumblr.com
 junkmanagement.com
 junkmanstl.com
 junkmap.com
@@ -173722,7 +170579,6 @@ junkmomma.com
 junkmoney.net
 junkmotorcycle.com
 junkmover.com
-junkmtb.tumblr.com
 junkmunibonds.com
 junkmunkey.com
 junkmunkeys.com
@@ -173918,7 +170774,6 @@ junkvirus.xyz
 junkwar.com
 junkwaverunner.com
 junkwear.com
-junkwithmyjunk.tumblr.com
 junkwizard.net
 junkwoman.com
 junky-girls-hardcore-sex-pictures.com
@@ -173943,7 +170798,6 @@ junkyarddiva.com
 junkyarddog.com
 junkyarddogmusic.com
 junkyarddogs.org
-junkyarddogxxx.tumblr.com
 junkyarddrones.com
 junkyardforcars.com
 junkyardgames.com
@@ -174000,7 +170854,6 @@ junlgee.com
 junlid.com
 junlizhu.com
 junllian.net
-junlone.tumblr.com
 junlong2011.com
 junlongwenshi.com
 junlper.net
@@ -174033,7 +170886,6 @@ junniormonteiro.com.br
 junniorrivas.com.ve
 junniper.mcdir.ru
 junnishimura.com
-junnyslut.tumblr.com
 juno-arts.com
 juno-net.de
 juno.co.uk
@@ -174070,7 +170922,6 @@ junoemail.supportno.com
 junoevents.com
 junof.googlevideo.com
 junofashion.com
-junofeet.tumblr.com
 junoffc5fgiri.kocezereokoq.info
 junofire.net
 junofoundation.com
@@ -174145,7 +170996,6 @@ junoy.googlevideo.com
 junpark.net
 junpc.googlevideo.com
 junpe.com
-junpeis-butt.tumblr.com
 junpeishiina.com
 junpf.googlevideo.com
 junph.googlevideo.com
@@ -174281,7 +171131,6 @@ junveka.chez.com
 junvie.com
 junwai.com
 junwanggroup.com
-junwjav.tumblr.com
 junwkfyb.bid
 junwon.com
 junwrld133.com
@@ -174425,7 +171274,6 @@ juoxz.googlevideo.com
 juoyynafgp.bid
 jupaizeuph.ru
 jupaman.com
-jupaman.tumblr.com
 jupaqagini.info
 juparanagranite.com
 jupav.kneeng.ru
@@ -174486,7 +171334,6 @@ jupitas.com
 jupiter-beach-resort.com
 jupiter-dawn.com
 jupiter-juno-shop.com
-jupiter-pussy.tumblr.com
 jupiter-qual.altares.fr
 jupiter-tech.xyz
 jupiter-technologies.com
@@ -174546,7 +171393,6 @@ jupitercomputers.com
 jupitercopy.com
 jupitercreditcard.com
 jupiterdata.com
-jupiterdatruth.tumblr.com
 jupiterdaylight8.com
 jupiterdeluxe.com
 jupiterdevelopment.com
@@ -174566,7 +171412,6 @@ jupiterfight.com
 jupiterfin.com
 jupiterfinan.com
 jupiterfirstchurch.com
-jupiterfl.gov
 jupiterflmagazine.com
 jupiterfloridahousevalues.com
 jupiterflowermarket.com
@@ -174634,7 +171479,6 @@ jupitermed.net
 jupitermedia.com
 jupitermind.com
 jupitermoney.com
-jupitermoon97.tumblr.com
 jupitermoss.com
 jupitermotors.com.au
 jupitermouse.com
@@ -174656,7 +171500,6 @@ jupiterproduction.com
 jupiterpump.com
 jupiterray.com
 jupiterraystudio.com
-jupiterrboobs.tumblr.com
 jupiterrealestatesold.com
 jupiterrealtor.com
 jupiterrestaurant.com
@@ -175243,7 +172086,6 @@ jurispp.com
 jurisservice.com
 jurissicht.com
 jurissimo.com
-jurist.law.pitt.edu
 jurist.net
 jurist.org
 jurist.support
@@ -175373,7 +172215,6 @@ jurohiffc5floxoxo.kocezereokoq.info
 juroku.com
 juron.com
 jurong.firstcom.com.sg
-jurong3901.tumblr.com
 jurongda.com
 jurongfc.com.sg
 jurongpoint.com.sg
@@ -175411,7 +172252,6 @@ jurrasiccoast.com
 jurrasicfarms.com
 jurrassicfarms.com
 jurreia.us
-jurrell29.tumblr.com
 jurreyntema.com
 jurrien.com
 jurro.com
@@ -175556,7 +172396,6 @@ jus.com.sg
 jus0wil.pp.ua
 jus1.com
 jus2chat.com
-jus2getanut.tumblr.com
 jus2u.com
 jus4fun.on.ca
 jus4funusa.com
@@ -175567,13 +172406,11 @@ jusa.org
 jusa.us
 jusaas.com
 jusab.com
-jusabigassfreak.tumblr.com
 jusaburo.com
 jusac.com
 jusahh.notlong.com
 jusalay.uuojw.maxgrowth.ru
 jusamazin.com
-jusanotherbloke.tumblr.com
 jusantos.com
 jusapakot.servetown.com
 jusapp.com.br
@@ -175642,7 +172479,6 @@ jusdp.googlevideo.com
 jusds.googlevideo.com
 juse-vape.com
 juseach.us
-juseatthedamncake.tumblr.com
 juseatvu.blog.com
 jused.com
 jusedao.com
@@ -175654,7 +172490,6 @@ jusen88.com
 jusento.us
 juseqfrtrsovo.jinereerukanoz.com
 juserizim.cn
-juserneim.tumblr.com
 jusese.online
 jusesttes.com
 jusetrom.ru
@@ -175665,15 +172500,12 @@ jusex.com
 jusez.com
 jusez.info
 jusfc.googlevideo.com
-jusfc.gov
 jusff.googlevideo.com
 jusfh.googlevideo.com
 jusfk.googlevideo.com
 jusfn.googlevideo.com
-jusforporn.tumblr.com
 jusfq.googlevideo.com
 jusfriends.com
-jusfriendsatl.tumblr.com
 jusfrtysjbveoqfam.com
 jusfs.googlevideo.com
 jusfuture.com
@@ -175754,7 +172586,6 @@ jusmaw.com
 jusmead.com
 jusmed.com
 jusmedia.com
-jusmelookin.tumblr.com
 jusmine.com
 jusminis.com
 jusmop.com
@@ -175772,7 +172603,6 @@ jusnox.com
 jusny.googlevideo.com
 jusnytt.no
 juso.2waky.com
-juso1.tumblr.com
 jusobsolete.com
 jusoc.googlevideo.com
 jusof.googlevideo.com
@@ -175807,7 +172637,6 @@ jusql.googlevideo.com
 jusqo.googlevideo.com
 jusqr.googlevideo.com
 jusqt.googlevideo.com
-jusqualagarde.tumblr.com
 jusquauboutdesongles.com
 jusquauboutdumonde.com
 jusqw.googlevideo.com
@@ -175820,12 +172649,10 @@ jusrlkubhjnr.com
 juss.pl
 jussaljeu.com
 jussanguinis.com
-jussaperv.tumblr.com
 jussara.org
 jussaraferreira.com.br
 jussaravoss.com
 jussayin.com
-jussdicks.tumblr.com
 jussef-sprachreisen.de
 jussenya.com
 jussiape.com
@@ -175835,7 +172662,6 @@ jussiparviainen.com
 jussirjoe.com
 jussittoft.ru
 jussives.us
-jusslikebruddas.tumblr.com
 jusspa.com
 jussportalen.no
 jusspy.ru
@@ -175846,12 +172672,6 @@ jussulin.com.my
 jussy.ch
 jussyjus.com
 jussymodeleclub.ch
-just--4--porn.tumblr.com
-just--another--lesbian.tumblr.com
-just--another--porn--blog.tumblr.com
-just--boobies.tumblr.com
-just--fuckmealready.tumblr.com
-just--sexy.tumblr.com
 just-2-meet.com
 just-2-see.blogspot.ae
 just-2-see.blogspot.al
@@ -175920,19 +172740,14 @@ just-2-see.blogspot.sk
 just-2-see.blogspot.sn
 just-2-see.blogspot.tw
 just-2-see.blogspot.ug
-just-2-sexy.tumblr.com
 just-4-adults.com
 just-4-adults.com.au
 just-4-fun.at
 just-4-fun.com
 just-4-girls.co.uk
 just-4-women.com
-just-5sos-smut-only.tumblr.com
 just-6.de
 just-a-bj.com
-just-a-broadway-phangirl.tumblr.com
-just-a-bunch-of-girls.tumblr.com
-just-a-creepin69.tumblr.com
 just-a-cute-girl.blogspot.ae
 just-a-cute-girl.blogspot.al
 just-a-cute-girl.blogspot.am
@@ -176001,70 +172816,25 @@ just-a-cute-girl.blogspot.sn
 just-a-cute-girl.blogspot.tw
 just-a-cute-girl.blogspot.ug
 just-a-downloader.su
-just-a-faggot.tumblr.com
-just-a-frustrated-demisexual.tumblr.com
 just-a-fuck.com
 just-a-fuck.net
-just-a-fucktoy.tumblr.com
-just-a-gay-blog.tumblr.com
 just-a-gay-blog.xyz
-just-a-gay-kid.tumblr.com
-just-a-kinky-guy.tumblr.com
-just-a-lilgay.tumblr.com
-just-a-little-lez.tumblr.com
-just-a-man-and-his-porn.tumblr.com
-just-a-oridnary-girl.tumblr.com
-just-a-penis-with-a-dream.tumblr.com
-just-a-place-to-fuck.tumblr.com
 just-a-porn.com
-just-a-rasta-girl.tumblr.com
-just-a-sexy-pic-blog.tumblr.com
-just-a-shitty-life.tumblr.com
-just-a-shy-and-depressed-lesbian.tumblr.com
-just-a-swinger-couple.tumblr.com
-just-a-tiny-gay-scout.tumblr.com
 just-a-truckin.com
-just-a-twink-again.tumblr.com
-just-a-useless-lesbian.tumblr.com
-just-a-very-anxious-gay-dude.tumblr.com
-just-a-young-heart.tumblr.com
 just-abhi.com
 just-ad.info
 just-adult-links.com
 just-adults.com
 just-allen.com
-just-alot-twisted.tumblr.com
 just-amateur-nude-girls.com
-just-amateur-videos.tumblr.com
-just-amateur-xxx.tumblr.com
 just-amateurs.freehostpage.com
 just-america.co.uk
-just-an-aussie-porn-blog.tumblr.com
-just-an-average-dude.tumblr.com
-just-an-average-girl-here.tumblr.com
-just-an-unknown-dirty-person.tumblr.com
 just-anal-sex-sites.com
 just-anal-sex.com
 just-anal.com
 just-anchor.com
 just-anchor.com?
-just-ano-ther-porn-blog.tumblr.com
-just-another-alt-girl.tumblr.com
-just-another-antisocial-teen.tumblr.com
-just-another-depressed-girl00.tumblr.com
-just-another-fucking-porn-blog64.tumblr.com
-just-another-gay-teen.tumblr.com
-just-another-gay69.tumblr.com
-just-another-hentaiblog.tumblr.com
-just-another-horny-teen-blog.tumblr.com
-just-another-lesbian.tumblr.com
-just-another-lgbt-blog.tumblr.com
-just-another-rp-blog.tumblr.com
-just-another-secret-sex-blog.tumblr.com
-just-another-slut-enabler.tumblr.com
-just-another-stray.tumblr.com
 just-another.org
-just-another135-round2.tumblr.com
 just-arab.com
 just-asian-sex.com
 just-asian-teens.inhit.com
@@ -176076,7 +172846,6 @@ just-autos.com
 just-baby.com
 just-bag-it.com
 just-bare-breasts.com
-just-bdsm.tumblr.com
 just-be-reasonable.bayern
 just-be-reasonable.berlin
 just-be-reasonable.com
@@ -176085,8 +172854,6 @@ just-be-reasonable.koeln
 just-be-reasonable.online
 just-be-reasonable.site
 just-be-reasonable.website
-just-be-the-girl-deactivated201.tumblr.com
-just-be-the-girl.tumblr.com
 just-bead-it.com
 just-beats.ru
 just-beautifully.com
@@ -176096,7 +172863,6 @@ just-being-chad.com
 just-bets.com
 just-beurette.com
 just-big-boobs.com
-just-big-boobs.tumblr.com
 just-big-breasts.net
 just-big-dicks.com
 just-big-tits.com
@@ -176104,19 +172870,16 @@ just-bikini-babes.com
 just-binoculars.com
 just-black-pussy.com
 just-blow-jobs.com
-just-blowjobs-fan.tumblr.com
 just-blowjobs.com
 just-body.com
 just-bondage.com
 just-bookies.com
 just-boys.com
 just-browse.info
-just-bruce.tumblr.com
 just-brunettes.cjbb.net
 just-bukkake.com
 just-bullshit.com
 just-cake-toppers.com
-just-call-me-mrs-captain.tumblr.com
 just-camping-links.com
 just-cams.com
 just-candles.net
@@ -176135,26 +172898,18 @@ just-christian-posters.com
 just-church.com
 just-click.us
 just-clothing.com
-just-come-out-and-play.tumblr.com
 just-condoms.co.uk
-just-coxxx.tumblr.com
 just-cream-pie.com
-just-cum-already.tumblr.com
 just-cum-shots.com
-just-cum.tumblr.com
 just-cumshot-facials.com
 just-cumshots.com
 just-cunt.com
 just-cunts.com
-just-curved-cocks.tumblr.com
 just-cut.com
-just-cutegirls.tumblr.com
-just-daddy-and-princess.tumblr.com
 just-date.de
 just-dates.com
 just-dating.net
 just-dial-voip.com
-just-dicking-around.tumblr.com
 just-digital-club.com
 just-digitalclub.com
 just-dns.com
@@ -176163,24 +172918,17 @@ just-dokamienia.pl
 just-download.com
 just-downloads.ru
 just-drinks.com
-just-drunk-girls.tumblr.com
 just-ducky.com
 just-easy-travel.com
-just-eat-her-ass.tumblr.com
 just-eat.dk
-just-ebony.tumblr.com
 just-eighteen.com
 just-eliquid.co.uk
 just-energy.irish
-just-erotic-babes-here-xxx.tumblr.com
-just-erotic-models-photos-xxx.tumblr.com
-just-erotic-schoolgirls-here-xxx.tumblr.com
 just-erotic-sex-stories.com
 just-erotic-stories.com
 just-erotic.com
 just-facials.net
 just-fat-women.com
-just-favs.tumblr.com
 just-fetish.com
 just-find.net
 just-fisting-movies.com
@@ -176189,13 +172937,10 @@ just-food.com
 just-for-anytho.com
 just-for-ewe.com
 just-for-free.com
-just-for-fun-florida.tumblr.com
 just-for-games.oxatis.com
-just-for-herr.tumblr.com
 just-for-kids.com
 just-for-me.ru
 just-for-men-gay-xxx-images.com
-just-for-my-horniness.tumblr.com
 just-for-sex.com
 just-for-style.omur71.ru
 just-for-sun.com
@@ -176226,54 +172971,32 @@ just-free-sex.org
 just-free-stuff.com
 just-free-teens.com
 just-free-xxx.com
-just-fuck-all-day.tumblr.com
-just-fuck-me-already-0.tumblr.com
-just-fuck-me-hard-more-hard.tumblr.com
-just-fuck-me-please85.tumblr.com
-just-fuck-me-roughly.tumblr.com
-just-fuck-men.tumblr.com
 just-fuck.com
-just-fucking-comics.tumblr.com
 just-fucking.com
 just-fucking.de
-just-fuckme-daddy.tumblr.com
 just-furniture.com
-just-futa-things.tumblr.com
 just-gaetane.xooit.com
 just-gamers.com
 just-gamers.net
-just-gay-german.tumblr.com
 just-gay-movies.com
 just-gay-sex.com
-just-gay-sex.tumblr.com
-just-gay-sexxx.tumblr.com
 just-gay-teens.com
 just-gay.com
 just-gays.com
-just-get-passed-today.tumblr.com
 just-get.com
-just-girls-in-yoga-pants.tumblr.com
-just-girls-pissing.tumblr.com
 just-girls.com
 just-girls.info
 just-girls.net
 just-google.me
-just-gorgeous-girls.tumblr.com
 just-halaal.com
 just-handjob-movies.com
-just-hard-sex.tumblr.com
 just-hardcore-sex.com
 just-hardcore.com
 just-have-sex.com
-just-helpless-teen.tumblr.com
-just-hentai.tumblr.com
-just-her-pet.tumblr.com
 just-her.com
 just-herbs.com
 just-hitz.org
 just-homes.com
-just-hot-models-here-xxx.tumblr.com
-just-hot-videos.tumblr.com
 just-hotels.com
 just-hour.biz
 just-house.com
@@ -176283,18 +173006,15 @@ just-in-thyme.com
 just-in-time-training.net
 just-in-time.com
 just-internet.support
-just-invincible.tumblr.com
 just-is.com
 just-it.tk
 just-jade.com
 just-jamie.com
 just-jenna.com
 just-jessica.com
-just-jill-off.tumblr.com
 just-jo.com
 just-jordyn.com
 just-junk.com
-just-keep-fucking-breathing.tumblr.com
 just-keepers.com
 just-keys.com
 just-kia.de
@@ -176368,36 +173088,24 @@ just-latinas.blogspot.sn
 just-latinas.blogspot.tw
 just-latinas.blogspot.ug
 just-leanit.tk
-just-legal-teen-girls.tumblr.com
 just-legal-teens.com
-just-legal-teens.tumblr.com
 just-legal.net
 just-lend.com
-just-lesbian-babes.tumblr.com
-just-lesbian-orgy.tumblr.com
-just-lesbian-pics.tumblr.com
 just-lesbians.com
 just-lesbians.net
-just-lick-my-butthole.tumblr.com
-just-licking-and-sucking.tumblr.com
 just-like-that.com
-just-liking-women.tumblr.com
 just-links.ru
 just-listedhomes.com
 just-listedlocations.com
 just-live-sex.com
-just-liveandlove.tumblr.com
 just-lookin.com
 just-lookit.com
 just-lose.com
-just-love-tits.tumblr.com
 just-lust.com
 just-luxury.com
 just-makes-sense.com
 just-masturbate.cjbb.net
-just-mature-women.tumblr.com
 just-mature.com
-just-me-sassy.tumblr.com
 just-meet.com
 just-men.com
 just-michael.com
@@ -176405,9 +173113,6 @@ just-mobile-phones.net
 just-mobileonline.com
 just-mount-it.com
 just-move.com
-just-my-erotic-thoughts.tumblr.com
-just-my-lonely-soul.tumblr.com
-just-my-toy.tumblr.com
 just-myshop.com
 just-nails.com
 just-naked-celeb-movies.com
@@ -176417,10 +173122,8 @@ just-naked-celebs-movies.com
 just-naked-celebs-pics.com
 just-naked-men.com
 just-naked-women.com
-just-natural-naked-babes.tumblr.com
 just-natural.de
 just-nel.com
-just-not-safe-for-work.tumblr.com
 just-nothing.com
 just-nude-black-girls.com
 just-nude-black-men.com
@@ -176444,13 +173147,10 @@ just-options.com
 just-oral-sex.com
 just-organics.com
 just-orgy.com
-just-our-sex.tumblr.com
 just-over18.com
 just-owned.de
-just-pansexual-things.tumblr.com
 just-payroll.com
 just-peachy.co.uk
-just-peeing-hotties.tumblr.com
 just-perfectprotection.in
 just-pharma.net
 just-photo-links.com
@@ -176594,7 +173294,6 @@ just-plain-sex.blogspot.sk
 just-plain-sex.blogspot.sn
 just-plain-sex.blogspot.tw
 just-plain-sex.blogspot.ug
-just-porn-it.tumblr.com
 just-porn-movies.com
 just-porn-pics.com
 just-porn-stars.com
@@ -176605,18 +173304,13 @@ just-porno-xxx.com
 just-porno.com
 just-porno.net
 just-pornos.com
-just-pornvideos.tumblr.com
 just-pot.com
 just-property.com
-just-puffy-nipples.tumblr.com
 just-pure-porn.com
-just-pussys.tumblr.com
-just-put-it-in-and-love-it.tumblr.com
 just-que.com
 just-queue.com
 just-raw-hentai.com
 just-raw-sex.com
-just-real-peoplehavingfun.tumblr.com
 just-recipes.net
 just-reels.com
 just-relax.com
@@ -176624,7 +173318,6 @@ just-rent.net
 just-rice.com
 just-right.net
 just-ripe.com
-just-rose.tumblr.com
 just-run.com
 just-sailing.de
 just-salads.com
@@ -176642,40 +173335,25 @@ just-sex.com
 just-sex.de
 just-sex.info
 just-sexporn.com
-just-sexy-beautiful-boobs.tumblr.com
-just-sexy-chicks.tumblr.com
-just-sexy-mifs.tumblr.com
-just-sexy-women.tumblr.com
 just-share.com
 just-shemale-porn.com
 just-shemales-videos.com
 just-shemales.com
 just-shop.com
-just-shower-thoughts.tumblr.com
 just-shred.com
 just-shred.com
 just-shred.com
 just-sing.com
 just-sluts.com
-just-some-bearded-guy.tumblr.com
-just-some-gay-porn.tumblr.com
 just-some-pornos.net
-just-someboy.tumblr.com
 just-sports.com
-just-stay-here-tonight.tumblr.com
-just-strip-naked.tumblr.com
 just-style.com
-just-suck-it-good85.tumblr.com
 just-suck-it-up.com
-just-swallow-me-woman.tumblr.com
 just-t.com
-just-teachme-girl.tumblr.com
-just-teasing-2.tumblr.com
 just-teen.com
 just-teens.com
 just-teens.net
 just-tenerife.com
-just-that-hot.tumblr.com
 just-the-best.net
 just-the-best.tv
 just-the-fat-challenge.com
@@ -176683,14 +173361,10 @@ just-the-fat-movement.com
 just-the-fat.com
 just-the-place.com
 just-the-place.net
-just-the-tip25.tumblr.com
 just-the-way-it-is.com
-just-thesex.tumblr.com
 just-think.com
 just-thongs.com
 just-tiaras.com
-just-tits-and-clits-no-dicks.tumblr.com
-just-tits-and-titfucking.tumblr.com
 just-tits-galore.com
 just-toboy.ga
 just-toboy.gq
@@ -176705,31 +173379,21 @@ just-tow.co.uk
 just-traffic.com
 just-transsexuals.com
 just-travel.ro
-just-trying-to-be-sexy.tumblr.com
 just-tube.com
-just-turn-me-0n.tumblr.com
-just-turned-18teen.tumblr.com
 just-turned18.net
-just-twink-sex.tumblr.com
 just-unc.com
 just-up.com
 just-updateservice.net
-just-upskirt.tumblr.com
 just-upskirts.com
 just-vids.com
 just-want.com
 just-watches.nl
 just-win.com
 just-xxx-free-pictures.com
-just-xxx-milfs.tumblr.com
-just-xxx-slut-here.tumblr.com
 just-xxx-videos.com
 just-xxx.com
 just-yoga.com
-just-you-wait-for-it.tumblr.com
 just-young-pussy.com
-just-your-average-hentai-fan.tumblr.com
-just-your-average-slut.tumblr.com
 just-yuri.skyrock.com
 just.a.newbie.red
 just.as
@@ -176826,7 +173490,6 @@ just26.justhost.com
 just2bad.com
 just2cents.com
 just2dollars.com
-just2hot.tumblr.com
 just2match.com
 just2meet.com
 just2min.com
@@ -176846,8 +173509,6 @@ just404.com
 just4adult.com
 just4adults.com
 just4adults.net
-just4apple.com
-just4asianwomen.tumblr.com
 just4autos.com
 just4autos.net
 just4baby.co.uk
@@ -176862,12 +173523,10 @@ just4care.com
 just4cats.com.au
 just4churches.com
 just4clicks.com
-just4cock.tumblr.com
 just4cominghome.com
 just4contractors.com
 just4dance.fw.hu
 just4demo.biz
-just4dicks.tumblr.com
 just4dogsgrooming.com
 just4enjoy.com
 just4fans.com
@@ -176876,14 +173535,10 @@ just4fun-handball.de
 just4fun-magazin.de
 just4fun-recreation.com
 just4fun.net
-just4fun421.tumblr.com
-just4fun92.tumblr.com
 just4funpak.com
 just4gamers.com
 just4gaycouples.com
-just4gayfun.tumblr.com
 just4gifts.com
-just4girlsblog.tumblr.com
 just4guyshealth.com
 just4hair.com
 just4healthy.com
@@ -176892,12 +173547,10 @@ just4info.com
 just4it.com
 just4jeep.com
 just4joy.com
-just4k.tumblr.com
 just4kidschildcare.com
 just4kidstutoring.com.au
 just4kidzrockerz.com
 just4kitchens.com
-just4kix25.tumblr.com
 just4ladies.com
 just4lesb.free.fr
 just4letters.tech
@@ -176905,7 +173558,6 @@ just4love.net
 just4love.org
 just4man.com
 just4massage.com
-just4max.tumblr.com
 just4me.ch
 just4medics.com
 just4men.com
@@ -176915,14 +173567,12 @@ just4mums.com
 just4mycity.com
 just4pharma.com
 just4phone.com
-just4plae.tumblr.com
 just4players.com
 just4pooches.com
 just4poor.com
 just4porn.com
 just4porno.com
 just4powerstrokes.com
-just4puffyboobs.tumblr.com
 just4pussy.com
 just4sale.com
 just4search.net
@@ -176930,7 +173580,6 @@ just4sex.ch
 just4sex.com
 just4sex.free.fr
 just4sex4u.com
-just4sexxlove.tumblr.com
 just4single.com
 just4singleparents.com
 just4studs.com
@@ -176967,22 +173616,18 @@ just599.com
 just5min.com
 just5minutes.com
 just5pounds.com
-just5sossmut.tumblr.com
 just6.com
 just69.com
-just69aguy.tumblr.com
 just6scan.info
 just710.com
 just74.justhost.com
 just81.com
 just83.justhost.com
 just88.com
-just8pussy.tumblr.com
 just8teen.com
 just8teen.net
 just8teens.com
 just9teen.com
-justa-simplelittlewhore.tumblr.com
 justabarn.com
 justabbey.blogspot.ae
 justabbey.blogspot.al
@@ -177052,15 +173697,10 @@ justabbey.blogspot.sn
 justabbey.blogspot.tw
 justabbey.blogspot.ug
 justabible.com
-justabiguy.tumblr.com
-justabisexualguy.tumblr.com
 justabitebakery.com
-justabitgay716.tumblr.com
-justabitofwank-deactivated20130.tumblr.com
 justabitoquarterhorses.ca
 justablefriends.org
 justablip.com
-justaboutfemale.tumblr.com
 justaboutfish.net
 justaboutit.com
 justaboutland.com
@@ -177079,20 +173719,16 @@ justabovebroke.com
 justabovegroundpools.com
 justaboy.com
 justabroad.com
-justabunchofdicks.tumblr.com
-justabunchofsmut.tumblr.com
 justaburger.com
 justabuy.com
 justacappella.com
 justacar.com
 justacase.com
-justacasualfangirl.tumblr.com
 justacausa.com.br
 justaccepted.com
 justaccommodation.com
 justaccount.com
 justaccounting.co.nz
-justacearothings.tumblr.com
 justachair.com
 justachat.com
 justache.com
@@ -177102,24 +173738,17 @@ justachristian.com
 justachristiandad.com
 justacker.com
 justacne.com
-justacocksucker.tumblr.com
-justacountryboy2010.tumblr.com
-justacountrygirlthing.tumblr.com
 justacouplebucks.com
-justacoupleoffemmes.tumblr.com
 justacreage.com
 justacreditcard.com
 justactalready.com
 justacthard.com
 justacting.com
 justactnow.com
-justacumslut97.tumblr.com
-justacumslutbimboc.tumblr.com
 justacup.net
 justad.mobi
 justad.net
 justadad.com
-justadaddyblog.tumblr.com
 justadam.com
 justadapt.us
 justadapters.com
@@ -177156,19 +173785,13 @@ justaddzero.com
 justadealaday.com
 justadesign.com
 justadi.com
-justadick.tumblr.com
-justadirtybirdy.tumblr.com
-justadirtyboy.tumblr.com
-justadirtyhippieslut.tumblr.com
 justadmission.com
 justadollop.com
-justadominantguy.tumblr.com
 justadoodle.com
 justadopt.com
 justadorable.com
 justadore.com
 justadornable.com
-justadoseofyaoi.tumblr.com
 justadrink.com
 justads.de
 justadult.info
@@ -177251,19 +173874,11 @@ justadventures.com
 justadvert.com
 justadvertisement.com
 justafact.com
-justafag.tumblr.com
-justafagformaster.tumblr.com
 justafake.com
-justafangirllove.tumblr.com
-justafanofbeauty.tumblr.com
-justafantasy35.tumblr.com
 justafee.com
-justafetishqueen.tumblr.com
 justafewhours.com
 justafewleft.com
-justafewsluttypokemon.tumblr.com
 justafewthings.com
-justafinnishgirl.tumblr.com
 justaflightaway.com
 justafool.com
 justaforeigner.com
@@ -177273,37 +173888,17 @@ justafrica.com
 justafrica.com.au
 justafricanart.com
 justafter18.com
-justafuckingpanoply.tumblr.com
-justafuckingsackofmeatandbones.tumblr.com
-justafuckingt-shirt.tumblr.com
-justafucktoyforhermaster.tumblr.com
 justafund.com
-justafungirl.tumblr.com
-justafurfag2.tumblr.com
 justagain-fitness.com
 justagamestudio.com
-justagaybelieber.tumblr.com
-justagayboyinnewb.tumblr.com
-justagaydude.tumblr.com
-justagaygan.tumblr.com
-justagayguy69.tumblr.com
-justagayhipster.tumblr.com
-justagaymarriedcouple-deactivat.tumblr.com
-justagaymarriedcouple.tumblr.com
-justagaywinemom.tumblr.com
 justagazebo.com
 justage.com
-justagermandom.tumblr.com
 justagig.com
 justagirl.t35.com
 justagirlandher40.com
 justagirlandherblog.com
 justagirlblog.com
-justagirlhavingfun69.tumblr.com
-justagirlindargv.tumblr.com
 justagirlintheworld.com
-justagirllookingforherplace.tumblr.com
-justagirlnamedkayla.tumblr.com
 justagirlsthoughts.blogspot.ae
 justagirlsthoughts.blogspot.al
 justagirlsthoughts.blogspot.am
@@ -177372,33 +173967,16 @@ justagirlsthoughts.blogspot.sn
 justagirlsthoughts.blogspot.tw
 justagirlsthoughts.blogspot.ug
 justaglimpse.com
-justagreekguy.tumblr.com
 justagurl.com
-justaguy169.tumblr.com
 justaguyandabible.com
-justaguyco.tumblr.com
 justaguyfitness.com
-justaguyshentaiblog.tumblr.com
-justaguyxxx.tumblr.com
-justaguyy21.tumblr.com
 justagypsy.com
 justahabit.com
 justahand.com
-justahentaisolesfetishmothafucka.tumblr.com
 justahitiannoni.com
 justahobby.com
-justaholetouseandabuse.tumblr.com
 justahookup.com
-justahornyfratguy.tumblr.com
-justahornygirl69.tumblr.com
-justahornynerd.tumblr.com
-justahornyteen.tumblr.com
-justahornyteenager.tumblr.com
-justahornyvirgingirl.tumblr.com
 justahost.com
-justahothornygirl.tumblr.com
-justahotwifefantasy.tumblr.com
-justahouknox.tumblr.com
 justahouse.com
 justailley.pro
 justaimlinks.com
@@ -177412,7 +173990,6 @@ justajoe.com
 justake.com
 justakeaways.com
 justakid.info
-justakidwhotriedtoohard.tumblr.com
 justakinkyguy.blogspot.ae
 justakinkyguy.blogspot.al
 justakinkyguy.blogspot.am
@@ -177480,22 +174057,13 @@ justakinkyguy.blogspot.sk
 justakinkyguy.blogspot.sn
 justakinkyguy.blogspot.tw
 justakinkyguy.blogspot.ug
-justakinkylittle.tumblr.com
 justakitchen.com
-justakittenandhersir.tumblr.com
 justakruzzzin.com
-justakunt.tumblr.com
 justalab.com
 justalarmmyhome.com
 justalarmmyhouse.com
-justalesbiandream.tumblr.com
-justalil7.tumblr.com
-justalilfrisky.tumblr.com
-justalilpornblog.tumblr.com
 justalisha.com
 justalist.com
-justalittlebit-daddy.tumblr.com
-justalittlebitcheeky.tumblr.com
 justalittlebitdifferent.co.uk
 justalittlebitnaughty.blogspot.ae
 justalittlebitnaughty.blogspot.al
@@ -177564,9 +174132,7 @@ justalittlebitnaughty.blogspot.sk
 justalittlebitnaughty.blogspot.sn
 justalittlebitnaughty.blogspot.tw
 justalittlebitnaughty.blogspot.ug
-justalittledisneygirl.tumblr.com
 justalittlefavor.com
-justalittlefuckedupinside.tumblr.com
 justalittleguy.blogspot.ae
 justalittleguy.blogspot.al
 justalittleguy.blogspot.am
@@ -177634,12 +174200,9 @@ justalittleguy.blogspot.sk
 justalittleguy.blogspot.sn
 justalittleguy.blogspot.tw
 justalittleguy.blogspot.ug
-justalittleholey.tumblr.com
 justalittlemayo.com
-justalittlenasty88.tumblr.com
 justalittlenaughty.com
 justalittleoffthetop.com
-justalittleperv.tumblr.com
 justalittlepinch.com
 justalittlesomething.mysite.wanadoo-members.co.uk
 justall.net
@@ -177647,8 +174210,6 @@ justallergies.com
 justallergy.com
 justalmaty.kz
 justalmostdone.com
-justaloadofsmut.tumblr.com
-justalonelybisexual.tumblr.com
 justalonlygayhole.blogspot.ae
 justalonlygayhole.blogspot.al
 justalonlygayhole.blogspot.am
@@ -177730,19 +174291,12 @@ justamateur.tv
 justamateurboys.com
 justamateurfacials.com
 justamateurgirls.com
-justamateurgirlz.tumblr.com
 justamateurpics.com
 justamateurporn.com
 justamateurs.com
 justamateurs.net
-justamateurs4.tumblr.com
 justamateursex.com
-justamateursex.tumblr.com
 justamateurteens.com
-justamazingass.tumblr.com
-justamazingboobs.tumblr.com
-justamazingdicks.tumblr.com
-justamazingporn.tumblr.com
 justament.de
 justameretreefarm.com
 justamericanmadegoods.com
@@ -177761,10 +174315,6 @@ justamouthfull.com
 justamps.com
 justamsterdam.com
 justamurphything.com
-justamy1978.tumblr.com
-justan0ther--sexblog.tumblr.com
-justan0therdick.tumblr.com
-justan0therfuckinperv.tumblr.com
 justanal.blogspot.ae
 justanal.blogspot.al
 justanal.blogspot.am
@@ -177834,10 +174384,8 @@ justanal.blogspot.tw
 justanal.blogspot.ug
 justanal.com
 justanal.us.tt
-justanallamericanboy.tumblr.com
 justanalmovies.com
 justanalsex.com
-justanalsex10.tumblr.com
 justanalyst.com
 justancestors.co.uk
 justandfrank.com
@@ -177845,7 +174393,6 @@ justandjust.com
 justandprofound.de
 justandrew.com
 justandroid.tk
-justandyxxx.tumblr.com
 justangel.com
 justangie.freeuk.com
 justanglers.com
@@ -177855,57 +174402,18 @@ justanidea.net
 justaniggatrynahelp.com
 justanimals.com
 justanime.com
-justanobjectforyou.tumblr.com
 justanoldhippy.com
-justanordinarygayreblogger.tumblr.com
 justanordinarygirl.com
-justanormalben.tumblr.com
-justanoth3rgay.tumblr.com
-justanother-teenslut.tumblr.com
 justanother.de
-justanother1ofthosegirls.tumblr.com
-justanotherabdl.tumblr.com
-justanotheranalfucktoy.tumblr.com
-justanotherbabylesbian.tumblr.com
-justanotherbisexualboy.tumblr.com
-justanotherbiteensexblog.tumblr.com
-justanotherblogxxxx.tumblr.com
-justanotherboobblog.tumblr.com
-justanotherboredwife.tumblr.com
-justanotherbreeder.tumblr.com
 justanotherbrokenwife.com
 justanotherchristian.com
-justanothercock55.tumblr.com
-justanothercockwhore.tumblr.com
-justanothercouplefucking.tumblr.com
-justanothercunttofuck.tumblr.com
 justanothercut.com
-justanotherdickintheworld.tumblr.com
 justanotherdomain.com
-justanotherdumbcunt.tumblr.com
 justanotheremail.com
 justanotherforcedomain.xyz
-justanotherfuckedupkid.tumblr.com
 justanotherfuckin.com
-justanotherfuckinggaypornblog.tumblr.com
-justanotherfuckinghipster.tumblr.com
-justanotherfuckinpoet.tumblr.com
-justanotherfur.tumblr.com
-justanothergayboi.tumblr.com
-justanothergayfurryblog-deactiv.tumblr.com
-justanothergaypornblog.tumblr.com
-justanothergayporno.tumblr.com
-justanothergayrainbow.tumblr.com
-justanothergaysexblog.tumblr.com
-justanothergaysupervillain.tumblr.com
-justanothergirlbreathing.tumblr.com
 justanothergreenstore.com
-justanotherh0rnygirl.tumblr.com
-justanotherhornyblackgirl.tumblr.com
-justanotherhornylesbian.tumblr.com
 justanotheritcompany.com
-justanotherkinkyteen.tumblr.com
-justanotherlesbianblogger.tumblr.com
 justanotherlist.com
 justanotherme-clips.blogspot.ae
 justanotherme-clips.blogspot.al
@@ -177978,33 +174486,16 @@ justanothermom.com
 justanothermommyblog.com
 justanothermusicblog.com
 justanothernigger.com
-justanothernsfwadultblog.tumblr.com
-justanotheroldguy.tumblr.com
-justanotherpatsgirl.tumblr.com
-justanotherpervert2.tumblr.com
-justanotherperverttttt.tumblr.com
-justanotherpornblogx.tumblr.com
 justanotherpornsite.info
-justanotherpr0nsite.tumblr.com
-justanotherrandomblogasdf.tumblr.com
 justanotherrant.com
 justanotherreason.com
-justanotherrph.tumblr.com
-justanotherrpmeme.tumblr.com
-justanothersadlesbian.tumblr.com
 justanotherscene.net
 justanotherseason.com
-justanothersexualattraction.tumblr.com
-justanothersexualblog.tumblr.com
 justanothersillydomain.org
-justanothersissy.tumblr.com
 justanothersportsshow.com
-justanothersubbytrap.tumblr.com
-justanothertart.tumblr.com
 justanotherteenblog.com
 justanothertest.com
 justanothertoy.com
-justanotheruncutcock.tumblr.com
 justanotherwebhosting.com
 justanotherwhore.com
 justanotherwordpressblog.com
@@ -178015,13 +174506,10 @@ justanyporn.com
 justap.com
 justapainintheback.com
 justapart.com
-justaphxguy.tumblr.com
 justapic.com
 justapieceofpaper.com
-justapig.tumblr.com
 justapinch-com-d.openx.net
 justapinch.com
-justapinchofdirtygirl.tumblr.com
 justapizza.com
 justaplayer.com
 justapleasure.com
@@ -178041,11 +174529,9 @@ justaptgifts.com
 justaquicknote.com
 justaquid.com
 justarab.tv
-justarawfreak.tumblr.com
 justarcade.com
 justarchitectit.com
 justardes.pro
-justareallyniceguy.tumblr.com
 justares.com
 justarmothks.eu
 justarrived.com
@@ -178062,7 +174548,6 @@ justascene.com
 justasdelish.com
 justaseed.com
 justaseroh.tk
-justasexaddictt.tumblr.com
 justashed.com
 justashley.com
 justashoe.com
@@ -178070,7 +174555,6 @@ justasiam.com
 justasiamcowboychurch.com
 justasiamwithnoplea.ml
 justasian.com
-justasianbutts.tumblr.com
 justasiangirls.com
 justasianhardcore.com
 justasianporn.com
@@ -178082,13 +174566,9 @@ justasianteens.com
 justasianteens12.com
 justasiantens.com
 justasiantube.com
-justasillygay.tumblr.com
-justasillylilgirl.tumblr.com
 justasimpleonlinenerd.com
 justasingle.click
-justasissycumdump.tumblr.com
 justask.com.au
-justask16.tumblr.com
 justask3.com
 justask3.net
 justask420.com
@@ -178128,14 +174608,10 @@ justaskty.com
 justaskus.com
 justaskus.net
 justaskwiki.com
-justaskyourgayfriends.tumblr.com
 justaskyourselfwhy.com
 justaslice.com
 justaslob.com
-justaslut.tumblr.com
-justasmalltownslut.tumblr.com
 justasmayaguez.com
-justasmolwolfgirl.tumblr.com
 justasnip.com
 justasoap.co.uk
 justaspen.com
@@ -178149,13 +174625,9 @@ justassmovies.com
 justassume.com
 justastep.com
 justastronomy.com
-justasweetbisexual.tumblr.com
 justaswell.com
 justaswinging.com
 justaswingset.com
-justatadbitfucked.tumblr.com
-justateenagergay.tumblr.com
-justateenguy98.tumblr.com
 justatenner.co.uk
 justaterminal.com
 justatheif.com
@@ -178165,7 +174637,6 @@ justathought.ie
 justathoughtbycherie.com
 justatick.com
 justatidbit.com
-justatopdaddy.tumblr.com
 justatouch.com
 justatouchofdesign.com
 justatrademark.com
@@ -178182,19 +174653,15 @@ justautomobile.com
 justautos.com
 justautoswapmeet.com
 justaverage.com
-justavian.tumblr.com
 justaviationjobs.com
 justavisual.net
 justavoid.net
 justawayfromhome.tripod.com
 justaweb.com
-justaweebitofclothing.tumblr.com
-justaweirdgirlintorandomfandoms.tumblr.com
 justawesomename.top
 justawesomenews.com
 justawifeandmom.com
 justawoman.com
-justawoowoothings.tumblr.com
 justaxles.com
 justb.googlevideo.com
 justbabe.net
@@ -178234,7 +174701,6 @@ justbankroll.com
 justbar.com
 justbarcelonajobs.com
 justbare.com
-justbareback.tumblr.com
 justbarelylegal.com
 justbargins.cn
 justbase.com
@@ -178251,7 +174717,6 @@ justbbqsauce.com
 justbbqtools.com
 justbbs.com
 justbbwcams.com
-justbbwcams.tumblr.com
 justbbwplanet.com
 justbbwsex.com
 justbbwsite.com
@@ -178260,12 +174725,10 @@ justbdsm.net
 justbdsm.tv
 justbdsmart.com
 justbe-nice.com
-justbe08.tumblr.com
 justbeachin.com
 justbeachtowels.com
 justbeading.com
 justbeads.com
-justbealesbian.tumblr.com
 justbeamit.net
 justbeanarchitect.com
 justbearsandstuff.com
@@ -178274,13 +174737,11 @@ justbeatmysummons.com
 justbeatmyticket.com
 justbeautifulpeople.com
 justbeautifulwomen.com
-justbeautifulxxx.tumblr.com
 justbeautycare.com
 justbeblunt.com
 justbecausebakery.com
 justbecausebears.com
 justbecausecards.com
-justbecausefun.tumblr.com
 justbecauseimrich.com
 justbeclaus.tripod.com
 justbeconservative.com
@@ -178301,7 +174762,6 @@ justbefree.net
 justbefree.pw
 justbefriends.de
 justbegay.de
-justbegaycock.tumblr.com
 justbehappy.com
 justbehave.com
 justbehind.com
@@ -178428,14 +174888,12 @@ justbetween.blogspot.sk
 justbetween.blogspot.sn
 justbetween.blogspot.tw
 justbetween.blogspot.ug
-justbetweenfamily.tumblr.com
 justbetweenus.org
 justbewe.com
 justbewealthy.com
 justbewise.net
 justbeyou.net
 justbeyouday.com
-justbeyourself-enjoylife.tumblr.com
 justbeyourself.net
 justbeyourselfie.com
 justbface.com
@@ -178499,7 +174957,6 @@ justblack.tv
 justblackberry.com
 justblackboys.com
 justblackchaps.slashcity.org
-justblackdicks.tumblr.com
 justblackgays.com
 justblacks.com
 justblacksuits.com
@@ -178522,14 +174979,9 @@ justblondes.com
 justblondes.net
 justblondeshemales.com
 justblowingsmoke.com
-justblowjobgifs.tumblr.com
-justblowjobgifs007.tumblr.com
 justblowjobs.com
-justblowjobs.tumblr.com
-justblowjobspics.tumblr.com
 justblowme.com
 justblown.com
-justblowyourdreams.tumblr.com
 justblueberries.com
 justbluff.com
 justboat.net
@@ -178540,13 +174992,10 @@ justbodyguardjobs.com
 justboil.com
 justboingit.com
 justbondage.com
-justbondage.tumblr.com
-justbondageswe.tumblr.com
 justbongs.com
 justbonus.net
 justboobies.com
 justboobs.com
-justboobsandsuch.tumblr.com
 justboobstgp.com
 justbookahotel.com
 justbookavacation.com
@@ -178570,7 +175019,6 @@ justbosnia.com
 justbot.com
 justbottles.com
 justbottoms.com
-justbottomscumming.tumblr.com
 justboughtajeep.com
 justboughtit.com
 justbounce.ca
@@ -178701,7 +175149,6 @@ justbuildmyhome.com
 justbuildmyhouse.com
 justbuildmyshed.com
 justbukkake.com
-justbukkake.tumblr.com
 justbulbs.com
 justbulgaria.com
 justbullion.com
@@ -178715,14 +175162,11 @@ justbusinesses.com
 justbusinessjobs.com
 justbust.com
 justbusty.com
-justbusty.tumblr.com
 justbustygirls.com
-justbustygirls.tumblr.com
 justbustymilf.com
 justbustyporn.com
 justbustyshemales.com
 justbutter.com
-justbuttholes.tumblr.com
 justbuttons.com
 justbuy.net
 justbuyer.com
@@ -178759,22 +175203,18 @@ justcallkelly.com
 justcallkennedy.com
 justcalllahcb.info
 justcalllauren.com
-justcallme-papi.tumblr.com
 justcallme.com
 justcallmedoctor.com
 justcallmedoctor.net
 justcallmelady.com
 justcallmelucky.com
 justcallmeo.com
-justcallmepops.tumblr.com
-justcallmetitsmcgee.tumblr.com
 justcallrichard.com
 justcallski.com
 justcalltimeout.com
 justcalltom.com
 justcallyall.com
 justcallyall.net
-justcalmyourvagina.tumblr.com
 justcam.net
 justcamaro.com
 justcambridgelistings.com
@@ -178782,7 +175222,6 @@ justcameback.com
 justcamels.com
 justcameltoes.com
 justcameos.com
-justcamgirls.tumblr.com
 justcamming.com
 justcamousa.com
 justcamps.com
@@ -178800,7 +175239,6 @@ justcannabinoids.com
 justcannabisclinic.com
 justcannabishealthin.us
 justcanoe.com
-justcantgetenoughsex.tumblr.com
 justcanvas.ca
 justcap.com
 justcapit.com
@@ -178830,7 +175268,6 @@ justcashierjobs.com
 justcashinc.com
 justcashuk.com
 justcassandra.com
-justcasuallygay.tumblr.com
 justcatching.com
 justcatholic.com
 justcatholic.net
@@ -178928,7 +175365,6 @@ justciders.com
 justcigar.com
 justcincinnatijobs.com
 justcinema.com
-justcisgaythings.tumblr.com
 justcivilengineerjobs.com
 justcj.info
 justclaimit3.com
@@ -179008,12 +175444,8 @@ justcloudit.com
 justclubs.ca
 justcoachjp.com
 justcoachyourself.com
-justcock.tumblr.com
 justcockpictures.com
-justcocks-cum.tumblr.com
 justcocks.com
-justcocks.tumblr.com
-justcocks2.tumblr.com
 justcocktail.com
 justcoder.com
 justcoeds.com
@@ -179080,12 +175512,10 @@ justcountrr.org
 justcountrycrafts.com
 justcoupons.com
 justcouponscodes.com
-justcowgirls.tumblr.com
 justcrap.com
 justcrave.com
 justcraziness.com
 justcrazyenough.com
-justcrazysstuff.tumblr.com
 justcream.com
 justcreaming.com
 justcreampie.co.uk
@@ -179113,25 +175543,19 @@ justcube.com
 justcufflinks.co.uk
 justcum.com
 justcum.cx
-justcuminside.tumblr.com
 justcums.com
 justcumshots.com
 justcumshots.net
 justcunts.com
 justcurious.com
 justcurious.net
-justcuriouscurvy.tumblr.com
 justcurls.com
 justcurry.com
-justcurvygirls.tumblr.com
 justcustombikes.com
 justcustoms.com
 justcutdownmytree.com
 justcuteasians.com
-justcuteasians.tumblr.com
-justcutegays.tumblr.com
 justcutegirls.com
-justcutemen.tumblr.com
 justcutesanimal.com
 justcuteteens.com
 justcutgrass.com
@@ -179141,11 +175565,8 @@ justcutmytree.com
 justcutslandscaping.com
 justcutyourgrass.com
 justcutyourlawn.com
-justcx.tumblr.com
 justczechrepublic.com
 justdabbing.com
-justdaddyandhisgirl.tumblr.com
-justdaddyslittleprincess.tumblr.com
 justdailymag.com
 justdailymail.com
 justdale.com
@@ -179171,7 +175592,6 @@ justdates.com
 justdatesservice.com
 justdating.online
 justday.com
-justdaycum.tumblr.com
 justdaydream.com
 justdd.com
 justdear.com
@@ -179226,11 +175646,7 @@ justdialpay.com
 justdials.net
 justdialsupport.xyz
 justdialuk.com
-justdickandass.tumblr.com
-justdickin.tumblr.com
 justdickpics.com
-justdicks.tumblr.com
-justdicksandpussies.tumblr.com
 justdickvids.com
 justdied.com
 justdiehood.fishdns.com
@@ -179244,7 +175660,6 @@ justdigs.com
 justdiplomaframes.com
 justdirection.com
 justdirekt.com
-justdirti.tumblr.com
 justdirtymovies.com
 justdirtysex.com
 justdiscovered.com
@@ -179394,7 +175809,6 @@ justeasyseo.com
 justeat.in
 justeatfriends.com
 justeatidea.com
-justeatitbitch.tumblr.com
 justeatmenow.com
 justeatraw.com
 justeatreal.com
@@ -179476,9 +175890,6 @@ justebonysex.info
 justebonysluts.com
 justebox.com
 justecarbone.com
-justecchi.tumblr.com
-justeddie89.tumblr.com
-justedesbellesfilles.tumblr.com
 justedgar.com
 justedigital.in
 justedinburgh.com
@@ -179639,12 +176050,9 @@ justelitesex.blogspot.ug
 justell.com
 justellie.com
 justeloans.com
-justelwynn.tumblr.com
 justemail.net
 justemails.net
 justemajeur.free.fr
-justemanuel.tumblr.com
-justemanuell.tumblr.com
 justembroideryblanks.com
 justemilieu.com
 justemogfs.com
@@ -179710,13 +176118,11 @@ justenglishng.com
 justeninc.com
 justenjoy.dk
 justenjoy.net
-justenjoy23.tumblr.com
 justenjoying.com
 justenjoylife.com
 justenmarketing.com
 justeno.ru
 justenoughmarketing.co.uk
-justenoughnaked.tumblr.com
 justenoughtobedangerous.com
 justentered.com
 justenterprises.com
@@ -179741,7 +176147,6 @@ justerinn.com
 justerlaw.com
 justerm.com
 justernentertainment.com
-justerotic.tumblr.com
 justerotik.de
 justers-fetisworld.elf24.de
 justerspeakers.com
@@ -179752,7 +176157,6 @@ justesex.com
 justesex.hostforx.com
 justesexe.com
 justesexy.eu
-justessandbii.tumblr.com
 justest.com
 justestate.com
 justestates.com
@@ -179801,7 +176205,6 @@ justfairtrade.com
 justfame.com
 justfancydress.co.uk
 justfancythat.com
-justfandomwritings.tumblr.com
 justfantasies.com
 justfares.com
 justfarmersmarkets.com
@@ -179840,13 +176243,11 @@ justfightvideos.com
 justfigurin.com
 justfiji.com
 justfilecabinets.com
-justfillingthegap.tumblr.com
 justfilm.com
 justfilmed.fr
 justfilmeseseriados.com
 justfilmjobs.com
 justfilters.com
-justfilthgayuk.tumblr.com
 justfilthy.com
 justfinance.com
 justfinancial.com
@@ -179873,8 +176274,6 @@ justfishingjobs.com
 justfishingtackle.com
 justfishontario.com
 justfit.com
-justfitbabes-deactivated2015090.tumblr.com
-justfitgirls.tumblr.com
 justfitlads.blogspot.ae
 justfitlads.blogspot.al
 justfitlads.blogspot.am
@@ -180039,7 +176438,6 @@ justforextrades.com
 justforfans.com
 justforfans.net
 justforfuck.com
-justforfucking.tumblr.com
 justforfun-escort.at
 justforfun.at
 justforfun.biz
@@ -180047,8 +176445,6 @@ justforfun.co.uk
 justforfuncattery.de
 justforfundancing.com
 justforfunflags.com
-justforfunlove143.tumblr.com
-justforfunmo.tumblr.com
 justforfunonly.com
 justforfunparty.com
 justforfunpickle.com
@@ -180087,18 +176483,14 @@ justforlocals.com
 justforlols.com
 justforlolz.com
 justformales.com
-justformeandthewife.tumblr.com
 justformebooksmiles.com
 justformeday.com
 justformesewing.com
-justformissandsir.tumblr.com
 justformoms.com
 justformothers.com
-justformycheri.tumblr.com
 justformyconvenience.mycitytoolbar.com
 justformyday.com
 justformyparty.com
-justformysecret.tumblr.com
 justfornerds.com
 justfornurses.co.uk
 justforpatels.com
@@ -180110,7 +176502,6 @@ justforpleasurenc.com
 justforpoints.com
 justforponies.com
 justforpoor.com
-justforpornbrah.tumblr.com
 justforpros.com
 justforpugs.com
 justforpun.com
@@ -180143,7 +176534,6 @@ justfortherecord.com
 justfortheshot.com
 justforthesnazzy.com
 justforthetaste.com
-justfortinyfirmbuttlovers.tumblr.com
 justfortodaydeal.com
 justfortoddlers.com
 justfortonight.com
@@ -180157,7 +176547,6 @@ justfortweens.com
 justforu2c.com
 justforunow.com
 justforus04.skyblog.com
-justforusstuff.tumblr.com
 justforwe.com
 justforwicks.com
 justforwife.com
@@ -180166,7 +176555,6 @@ justforwomenfitness.com
 justforwriters.com
 justforyou.be
 justforyou0987.pw
-justforyouandmeus.tumblr.com
 justforyoubaskets.com
 justforyoublog.com
 justforyoubridal.co.uk
@@ -180176,7 +176564,6 @@ justforyouflorist.com
 justforyoumybab.com
 justforyounails.com
 justforyourhealts.com
-justforyourpleasureandmine.tumblr.com
 justforyoursecurity.com
 justforyoushop.com
 justforyoustyle.info
@@ -180310,11 +176697,9 @@ justfry.com
 justfta.com
 justftv.com
 justftvgirl.com
-justfucked-love.tumblr.com
 justfucker.com
 justfucket.com
 justfuckgirls.com
-justfuckhard.tumblr.com
 justfuckher.be
 justfuckher.com
 justfuckher.nl
@@ -180323,37 +176708,23 @@ justfucking.de
 justfuckingandsucking.com
 justfuckingcallme.com
 justfuckingcallme.net
-justfuckinggoodsex.tumblr.com
 justfuckinggreat.com
 justfuckinghardcore.com
 justfuckinghorny.com
-justfuckinghotgaysex.tumblr.com
 justfuckingmachines.com
-justfuckingmeandmusic.tumblr.com
 justfuckingporn.com
-justfuckingpornnow.tumblr.com
 justfuckingsex.com
-justfuckingteaseme.tumblr.com
 justfuckingteens.com
 justfuckingwithyou.com
-justfuckinhorny.tumblr.com
-justfuckinwithyourminds.tumblr.com
 justfuckit.free.fr
-justfuckit141.tumblr.com
-justfuckit666.tumblr.com
 justfucklinks.com
 justfuckme.com
 justfuckmebaby.com
-justfuckmebro.tumblr.com
 justfuckmehard.com
-justfuckmehardplease.tumblr.com
-justfuckmeupplease.tumblr.com
 justfuckpics.com
 justfuckseries.com
-justfuckthatshit.tumblr.com
 justfucktube.com
 justfuckus.com
-justfuckwme.tumblr.com
 justfuel.com
 justfuky.com
 justfun.net
@@ -180365,8 +176736,6 @@ justfunnypictures.com
 justfunnyvideos.be
 justfunphotography.com
 justfunpinatas.com
-justfunsex.tumblr.com
-justfunsexus.tumblr.com
 justfunultimate.com
 justfuuty23.org
 justfxcopy.com
@@ -180400,30 +176769,15 @@ justgay.ru
 justgay.skyblog.com
 justgay.tv
 justgay.ws
-justgay0.tumblr.com
-justgay2013.tumblr.com
-justgayassporn.tumblr.com
-justgayballbusting.tumblr.com
-justgaybigthingsplease.tumblr.com
 justgayblackcock.com
-justgayblowjobs.tumblr.com
 justgayboy.com
 justgayboys.com
-justgayboys.tumblr.com
-justgaycelebfakes.tumblr.com
 justgaychat.com
 justgaycock.com
-justgaygifs.tumblr.com
 justgayhardcore.com
 justgayhardcore.info
-justgayjoshing.tumblr.com
-justgaylovethings.tumblr.com
-justgayluv.tumblr.com
 justgaymarried.com
-justgayme69.tumblr.com
-justgaymenfrotting.tumblr.com
 justgaymovies.com
-justgaypics.tumblr.com
 justgayporn.blogspot.ae
 justgayporn.blogspot.al
 justgayporn.blogspot.am
@@ -180491,17 +176845,9 @@ justgayporn.blogspot.sk
 justgayporn.blogspot.sn
 justgayporn.blogspot.tw
 justgayporn.blogspot.ug
-justgayporn4you.tumblr.com
-justgaypornilove.tumblr.com
-justgaypornvideo.tumblr.com
-justgaypornvideos.tumblr.com
 justgaysex.com
-justgaysexsstuff.tumblr.com
-justgayshit4u.tumblr.com
 justgaytube.com
 justgayvideos.com
-justgayvideos.tumblr.com
-justgayvidz.tumblr.com
 justgazebos.com
 justgear.com
 justgee.com
@@ -180523,10 +176869,8 @@ justgetflux.net
 justgetfree.com
 justgethappy.com
 justgethecheck.com
-justgetinmybelly.tumblr.com
 justgetitfaster.com
 justgetloan.com
-justgetme-wet.tumblr.com
 justgetmedivorced.com
 justgetmeict.com
 justgetmeleads.com
@@ -180539,9 +176883,7 @@ justgetone.com
 justgetsealed.com
 justgetspecial.net
 justgetthecheck.com
-justgettinbi.tumblr.com
 justgiah.com
-justgiantholes.tumblr.com
 justgifted.com
 justgiftscompany.com
 justgiga.com
@@ -180561,14 +176903,7 @@ justgirls.informe.com
 justgirls.nl
 justgirls.org
 justgirls2girls.co.uk
-justgirls2love.tumblr.com
 justgirlsex.com
-justgirlsfuckinggirls.tumblr.com
-justgirlsgirlsgirls.tumblr.com
-justgirlslovingmassivecocks.tumblr.com
-justgirlsmainly.tumblr.com
-justgirlsnopiercingsnotatoos.tumblr.com
-justgirlspeeing.tumblr.com
 justgirlspics.blogspot.ae
 justgirlspics.blogspot.al
 justgirlspics.blogspot.am
@@ -180637,13 +176972,9 @@ justgirlspics.blogspot.sn
 justgirlspics.blogspot.tw
 justgirlspics.blogspot.ug
 justgirlythings.co
-justgirlythingsr.tumblr.com
-justgirlythingssposts.tumblr.com
-justgirlywishes.tumblr.com
 justgis.com
 justgisjobs.com
 justgivein.com
-justgivemeadick.tumblr.com
 justgivemefeet.com
 justgivemefivedollars.com
 justgivemetruth.com
@@ -180659,7 +176990,6 @@ justglobes.co.uk
 justglue.com
 justgo.info
 justgobuyit.com
-justgoddesses.tumblr.com
 justgodothisstuffweekend.com
 justgodutch.com
 justgofast.com
@@ -180677,7 +177007,6 @@ justgonegay.com
 justgonongmo.com
 justgonow.com
 justgoo.com
-justgoodatit.tumblr.com
 justgoodbeer.com
 justgoodbiz.com
 justgoodbooks.co.uk
@@ -180687,7 +177016,6 @@ justgoodcoffee.com
 justgooddagwoods.com
 justgoodenough.com
 justgoodfoodblog.com
-justgoodhardfucking.tumblr.com
 justgoodhealth.com
 justgoodhosts.com
 justgoodknives.com
@@ -180707,7 +177035,6 @@ justgoto.com
 justgotour.com
 justgotrade.com
 justgotsmarter.com
-justgotsum.tumblr.com
 justgottahaveit.com
 justgottavent.com
 justgotthenews.com
@@ -180745,7 +177072,6 @@ justgreatholidays.com
 justgreathotels.com
 justgreatnudes.com
 justgreatporn.com
-justgreatporn.tumblr.com
 justgreatpussy.com
 justgreatsex.com
 justgreatshirts.com
@@ -180795,7 +177121,6 @@ justhairinc.com
 justhairjobs.com
 justhairproducts.com
 justhairy.com
-justhairybushandcocks.tumblr.com
 justhairygfs.com
 justhairygirls.com
 justhairyguys.blogspot.ae
@@ -180865,7 +177190,6 @@ justhairyguys.blogspot.sk
 justhairyguys.blogspot.sn
 justhairyguys.blogspot.tw
 justhairyguys.blogspot.ug
-justhairymen.tumblr.com
 justhairyporn.com
 justhairypussy.com
 justham.com
@@ -180918,14 +177242,8 @@ justhenot.ru
 justhentai.com
 justhentaisex.com
 justherb.com
-justherboobs.tumblr.com
 justherbs.net
 justhere.qa
-justhere2bsexy.tumblr.com
-justherefordirtypics.tumblr.com
-justhereforfun0027.tumblr.com
-justhereforlegsnmantitz-deactiv.tumblr.com
-justhereforlegsnmantitz.tumblr.com
 justherscence.ru
 justhewayouare.com
 justhhookup.com
@@ -180936,14 +177254,12 @@ justhideme.com
 justhidethis.info
 justhifi.com
 justhighheels.com
-justhiitit.tumblr.com
 justhike.com
 justhill.com
 justhillthings.com
 justhink.com
 justhip.com
 justhiphop.com
-justhislittlewhore.tumblr.com
 justhitchcovers.com
 justhitplay.com
 justhnk.com
@@ -180976,9 +177292,7 @@ justhookup.org
 justhookupreview.com
 justhookupscam.com
 justhorny.com
-justhorny73.tumblr.com
 justhornybabes.com
-justhornyme.tumblr.com
 justhornysluts.com
 justhornyteens.com
 justhoroscopes.com
@@ -180994,25 +177308,14 @@ justhostcouponcodes.com
 justhoster.com
 justhostreviews.com
 justhot.com
-justhotasianguys.tumblr.com
 justhotbabes.com
 justhotbabes.net
-justhotbisex.tumblr.com
 justhotchicks.com
 justhotelmanagementjobs.com
-justhotgals.tumblr.com
 justhotgames.com
-justhotgaymen.tumblr.com
 justhotgirls.com
-justhotgirlsfromrussia.tumblr.com
-justhotlads.tumblr.com
 justhotmilf.nl
-justhotnakedwomen.tumblr.com
-justhotncool.tumblr.com
 justhotpics.com
-justhotsexpics.tumblr.com
-justhotsexygirlongirl.tumblr.com
-justhotthings.tumblr.com
 justhotties.blogspot.ae
 justhotties.blogspot.al
 justhotties.blogspot.am
@@ -181082,7 +177385,6 @@ justhotties.blogspot.tw
 justhotties.blogspot.ug
 justhotties.com
 justhotties.net
-justhottiesandwetpussys.tumblr.com
 justhouse.com
 justhousings.com
 justhousinz.com
@@ -181092,7 +177394,6 @@ justhrpractices.net
 justhsllc.net
 justhubs.com
 justhug.com
-justhuge.tumblr.com
 justhumanproblems.com
 justhumbs.com
 justhumour.com
@@ -181107,13 +177408,10 @@ justhydrologyjobs.com
 justhyextac18.club
 justhymns.com
 justibiza.com
-justibrahim.tumblr.com
 justice-agenda.com
 justice-in-education.com
 justice-in-education.net
 justice-law-center.com
-justice.gov
-justice.gov.ge
 justice.linkpc.net
 justice.pungs.ru
 justice247.com
@@ -181132,7 +177430,6 @@ justiceagenda.com
 justicealliance.com
 justiceandbeauty.com
 justiceandi.com
-justiceandthejuice.tumblr.com
 justiceandwhite.com
 justiceatlast.com
 justiceatpeabody.com
@@ -181402,12 +177699,10 @@ justimaginefinance.com.au
 justimaginenow.com
 justimaginetravel.com
 justimagineworldwide.com.au
-justimagineyourperfectlife.tumblr.com
 justimagingit.com
 justimajin.co.za
 justimg.net
 justimo.com
-justin-bieberporn.tumblr.com
 justin-boston.us
 justin-campbell.com
 justin-canada.com
@@ -181415,7 +177710,6 @@ justin-cook.com
 justin-crumb.us
 justin-de-provence.com
 justin-fulbright.in
-justin-harass.tumblr.com
 justin-l-o-v-e.org
 justin-landa.in
 justin-login.online
@@ -181447,7 +177741,6 @@ justin48.000webhostapp.com
 justin5.cn
 justin5.wwwtek.com
 justin8.wwwtek.com
-justin8c.tumblr.com
 justina-carothers.us.org
 justina-dominique.us
 justina-eugene.biz
@@ -181528,9 +177821,6 @@ justinbieb.com
 justinbieber-news.com
 justinbieber.reviewbuckz.com
 justinbieberbelieve.com
-justinbieberbooty.tumblr.com
-justinbieberfakes-gay.tumblr.com
-justinbieberfakesnude.tumblr.com
 justinbieberfanclub.com
 justinbieberfans.com
 justinbieberinstagramm.com
@@ -181541,7 +177831,6 @@ justinbieberlyrics.com
 justinbiebermusic.com
 justinbieberpage.com
 justinbieberrecords.com
-justinbiebersdirtyimagines.tumblr.com
 justinbiebersexy.com
 justinbiebershoesforsale.com
 justinbiebersongs.com
@@ -181553,15 +177842,12 @@ justinbit.com
 justinblais.com
 justinblanton.com
 justinblockchain.com
-justinblonde.tumblr.com
-justinblucock.tumblr.com
 justinblum.com
 justinboeckman.com
 justinbooks.com
 justinboot.com
 justinboots.com
 justinbowen.net
-justinboys.tumblr.com
 justinbradleyforsc.com
 justinbradleysc.com
 justinbrasher.com
@@ -181607,7 +177893,6 @@ justincredibledeals.com
 justincuba.com
 justincurrie.net
 justincworden.com
-justindaddyafbieber.tumblr.com
 justindavidcarter.com
 justindavidcarter.net
 justindavies.com.au
@@ -181619,7 +177904,6 @@ justindevinney.com
 justindexcards.com
 justindi.com
 justindianapolisjobs.com
-justindiangay.tumblr.com
 justindiercks.com
 justindocument.com
 justindodrill.com
@@ -181760,7 +178044,6 @@ justinejones.com
 justinejones.net
 justinejones.org
 justinejuliette.com
-justinekneelsforever.tumblr.com
 justinelowe.com
 justinelowes.com
 justinemadara.com
@@ -181916,16 +178199,12 @@ justinesissycaptions.blogspot.tw
 justinesissycaptions.blogspot.ug
 justinesmembers.com
 justinesoubrette.ifrance.com
-justinesoumise.tumblr.com
 justinestardux.free.fr
 justinesxxxbedroom.com
 justinetoutenue.fr.st
-justinets.tumblr.com
 justinex.com
-justinexposed.tumblr.com
 justineyoung.com
 justinfallin.com
-justinfamilytime.tumblr.com
 justinfargas.com
 justinfarley.com
 justinfever.com
@@ -181985,7 +178264,6 @@ justinhepler.com
 justinherald.com
 justinherwig.linkpc.net
 justinhoilman.com
-justinholland69.tumblr.com
 justinhome.com
 justinhophotography.com
 justinhost.in
@@ -182014,7 +178292,6 @@ justinkeating.com
 justinkees.com
 justinkeith.com
 justinkellerphotography.com
-justinkellyxxx.tumblr.com
 justinkford.com
 justinkford.net
 justinkinsman.karilynnsela.com
@@ -182037,10 +178314,8 @@ justinliu.co
 justinlives.com
 justinlives.net
 justinlogan.typepad.com
-justinlovehard.tumblr.com
 justinloveis.net
 justinlovejewelry.com
-justinlovewithit.tumblr.com
 justinlsmith.com
 justinmadowling.com
 justinmangrich.com
@@ -182048,7 +178323,6 @@ justinmark.com
 justinmarking.com
 justinmazin.com
 justinmb.com
-justinmcc2.tumblr.com
 justinmccracken.com
 justinmedia.com
 justinmellen.com
@@ -182093,7 +178367,6 @@ justinnew7.com
 justinnew8.com
 justinnew9.com
 justinnews.com
-justinnezich.tumblr.com
 justinngocphan.staciebobette.com
 justinnkay.ru
 justinnoah.com
@@ -182102,7 +178375,6 @@ justinnye.com
 justinoh.com
 justinohara.com
 justinorodriguez.com
-justinowenxxx.tumblr.com
 justinpa.com
 justinpage.com
 justinpak.com
@@ -182132,7 +178404,6 @@ justinround.com
 justinrue.com
 justinrummel.com
 justinrunyan.com
-justinrutt.tumblr.com
 justinsaia.com
 justinsalon.com
 justinsamms.com
@@ -182158,13 +178429,11 @@ justinshearer.com
 justinsheehan.com
 justinsher.com
 justinsibley.com
-justinsideous.tumblr.com
 justinsider.com
 justinslayer.com
 justinslayerporn.com
 justinsmail.com
 justinsmith.net
-justinsmokesdank.tumblr.com
 justinsmusic.com
 justinsocial.com
 justinsoloads.com
@@ -182179,7 +178448,6 @@ justinspencer.net
 justinspray.com
 justinspurrell.com
 justinsrant.com
-justinsrayne.tumblr.com
 justinsstore.com
 justinstallafence.com
 justinstallmyfence.com
@@ -182227,13 +178495,11 @@ justintimberlake.com
 justintimberlake2009.cn
 justintimberlakeconcerts.com
 justintimberlakestream.com
-justintimbertits.tumblr.com
 justintimecoaching.com
 justintimedealfinder.com
 justintimeelectronics.com
 justintimegraphics.com
 justintimemusic.com
-justintimenasty41ce.tumblr.com
 justintimepainting.com
 justintimepractice.com
 justintimeservice.com
@@ -182264,7 +178530,6 @@ justinwagner2012.com
 justinwaite.com
 justinwald.com
 justinwallace.biz
-justinwantsataco.tumblr.com
 justinwb.com
 justinweather.com
 justinweatherford.com
@@ -182349,9 +178614,6 @@ justjenna.com
 justjennajameson.com
 justjenny.com
 justjensen.com
-justjerkbuds.tumblr.com
-justjerkoff.tumblr.com
-justjerkoffxxx.tumblr.com
 justjerks.com
 justjess.com.au
 justjessica.com
@@ -182380,7 +178642,6 @@ justjolie.net
 justjordan.com
 justjordans.com
 justjoseph.sabraallina.com
-justjosh99.tumblr.com
 justjoshua.com
 justjourneys.com
 justjoy.co.uk
@@ -182412,14 +178673,11 @@ justkayla.com
 justkebab.com
 justkebap.com
 justkeepingitchristian.com
-justkeepingitreal2013.tumblr.com
 justkeepit.com
 justkeepitreal.com
 justkeeponlivin.com
 justkeeponliving.com
 justkeeprunning.nl
-justkeepshipping.tumblr.com
-justkeepshippingg.tumblr.com
 justkeepsmiling.net
 justkeepswimminginc.com
 justkefalonia.co.uk
@@ -182459,7 +178717,6 @@ justkilowarestamps.com
 justkink.com
 justkinky.com
 justkino.com
-justkirayukimura.tumblr.com
 justkirkland.com
 justkis.com
 justkiss.net
@@ -182476,7 +178733,6 @@ justkiwis.com
 justklick.net
 justknickers.com
 justknives101.com
-justknockyouup.tumblr.com
 justknot.com
 justknots.com
 justknowjoe.com
@@ -182535,13 +178791,11 @@ justlaxstuff.com
 justlayit.com
 justlazy.com
 justleaf.net
-justlearninghow2masturbate.tumblr.com
 justlearnsomething.com
 justleaseit.com
 justleather.com
 justleavemealone.com
 justlee.com
-justleedone.tumblr.com
 justlegal.com
 justlegal.tv
 justlegal18.com
@@ -182560,17 +178814,12 @@ justlesbianmovies.com
 justlesbianpussy.com
 justlesbians.com
 justlesbiansex.com
-justlesbiansluts.tumblr.com
 justlesbos.com
 justletitbe.com
-justletitouthunz.tumblr.com
 justletmepaint.com
 justletmeplay.com
-justletmesmellyou.tumblr.com
-justletmesuckyou.tumblr.com
 justletmesurf.com
 justletters.com
-justlettingyoucome.tumblr.com
 justlevel.com
 justlgbtq.com
 justlibby.com
@@ -182580,7 +178829,6 @@ justlibraryjobs.com
 justlick.com
 justlifi.com
 justlighters.net
-justlightfun.tumblr.com
 justlike.info
 justlike.net
 justlikeacigarette.com
@@ -182613,7 +178861,6 @@ justlikenew.net
 justlikeoldtimes.com
 justlikerehearsal.com
 justlikesew.net
-justlikesex.tumblr.com
 justlikespike.com
 justlikethecolor.com
 justliketoday.com
@@ -182865,13 +179112,7 @@ justlook.net
 justlookapp.com
 justlookatthat.com
 justlookgood.com
-justlookin575.tumblr.com
-justlooking2005.tumblr.com
-justlookingaround2484.tumblr.com
-justlookingaround39.tumblr.com
-justlookingaroundxxx.tumblr.com
 justlookingforlinks.com
-justlookingformyway.tumblr.com
 justlookinggood.com
 justlookinglove.com
 justloot.ru
@@ -182886,24 +179127,16 @@ justlouisvuittonoutlet.com
 justlounge.net
 justlove.pt
 justlove.ru
-justloveandsex.tumblr.com
-justlovecock97.tumblr.com
 justlovecoupons.com
 justlovecreations.com
 justlovedaily.com
-justlovefitwomen.tumblr.com
-justloveforamateurs.tumblr.com
-justlovegirlswithdicks.tumblr.com
-justloveitxx.tumblr.com
 justloveliving.com
 justlovely.com
 justloveministry.com
-justloveprettyteengirls.tumblr.com
 justlovers.com
 justlovesporn.com
 justlovetattoos.com
 justloveus.com
-justlovtoplay.tumblr.com
 justlowerbloodsugar.us
 justloyalty.com
 justlucas.com
@@ -182911,11 +179144,8 @@ justluckycasino.com
 justluke.com
 justlulu.com
 justlunch.net
-justluscioustits.tumblr.com
 justlush.com
 justlust.com
-justluvthechocolatefactory.tumblr.com
-justluvthoseboobies.tumblr.com
 justluxcole.com
 justluxe.com
 justluxuryhomes.com
@@ -182943,9 +179173,6 @@ justmakeit.com
 justmakeitsexy.com
 justmakeitstop.com
 justmakeitup.com
-justmakemescream.tumblr.com
-justmakemewet.tumblr.com
-justmakemexscream.tumblr.com
 justmakemoney.com
 justmakemoneyonline.com
 justmakemoneytoday.com
@@ -182959,15 +179186,12 @@ justmakethisdreamshappen.xyz
 justmakethismiracleshappen.xyz
 justmakethissithappen.xyz
 justmakethisthingshappen.xyz
-justmakeusmile.tumblr.com
 justmaking.com
 justmakingaliving.com
 justmakingmoney.com
 justmalediscounts.com
 justmales.com
-justmalesex.tumblr.com
 justmallorca.com
-justmambo.tumblr.com
 justman2man.com
 justmanager48h.com
 justmann.com
@@ -182998,7 +179222,6 @@ justmart.com
 justmassagetherapyjobs.com
 justmaster.com
 justmasturbate.com
-justmasturbateyourself.tumblr.com
 justmatchit.com
 justmatchmaking.com
 justmate.com
@@ -183025,20 +179248,9 @@ justmaza.com
 justmcagirls.com.sapo.pt
 justme.ie
 justme.over-blog.net
-justme085.tumblr.com
-justme10114.tumblr.com
-justme1069.tumblr.com
-justme2402.tumblr.com
-justme28901.tumblr.com
 justme2ztr.com
-justme7680.tumblr.com
 justmealone.ddns.net
-justmeanddad.tumblr.com
-justmeandmydick21-deactivated20.tumblr.com
-justmeandmydick21.tumblr.com
-justmeandmygaylife.tumblr.com
 justmeandmyshadow.com
-justmeandsomegayporngifs.tumblr.com
 justmeanenough.com
 justmeboutique.com
 justmedia.net
@@ -183047,7 +179259,6 @@ justmedic.ru
 justmedicaltranscriptionjobs.com
 justmedium.com
 justmeetme.com
-justmefucking.tumblr.com
 justmelanie.com
 justmelons.com
 justmeltsbellyfatdrink.us
@@ -183055,8 +179266,6 @@ justmem.com
 justmemorabilia.com
 justmemphisjobs.com
 justmen.com
-justmen4men.tumblr.com
-justmenandcocks.tumblr.com
 justmenopause.com
 justmensmags.com
 justmenstuff.blogspot.ae
@@ -183132,13 +179341,11 @@ justmessingwithyou.com
 justmetal.com
 justmetart.com
 justmeter.net
-justmetheswitch.tumblr.com
 justmetyou.com
 justmexicocityjobs.com
 justmfgit.com
 justmg.com
 justmi4.co.in
-justmiakhalifa.tumblr.com
 justmiamicondos.com
 justmiamilistings.com
 justmichaelportis.com
@@ -183149,7 +179356,6 @@ justmilf.com
 justmilfgfs.com
 justmilfgirlfriends.com
 justmilfporn.com
-justmilfs-blog.tumblr.com
 justmilftube.com
 justmilkit.com
 justmillennial.com
@@ -183179,7 +179385,6 @@ justmodern.com
 justmodit.com
 justmods.com
 justmohabbat.com
-justmois1973.tumblr.com
 justmolding.com
 justmolly.com
 justmommies.com
@@ -183191,14 +179396,11 @@ justmonkeydothat.com
 justmontessorijobs.com
 justmore-porn.com
 justmore.net
-justmoregayyum.tumblr.com
 justmoregolf.com
 justmorehealth.com
 justmoreincome.com
 justmoreporn.com
 justmoresex.com
-justmoresexstuff.tumblr.com
-justmorexxx.tumblr.com
 justmorgan.com
 justmorocco.com
 justmortgagesplus.com
@@ -183238,7 +179440,6 @@ justmultiples.com
 justmunching.com
 justmurals.com
 justmusclemen.com
-justmusclemen.tumblr.com
 justmuseumjobs.com
 justmusic.fm
 justmusicals.com
@@ -183248,8 +179449,6 @@ justmusings.com
 justmusky.com
 justmy.net
 justmy02.com
-justmyamateurgirlass.tumblr.com
-justmyboobs.tumblr.com
 justmychurch.com
 justmycity.com
 justmycloud.com
@@ -183257,10 +179456,7 @@ justmyelectrician.com
 justmyexterminator.com
 justmyfit.com
 justmygals.com
-justmygaydream.tumblr.com
 justmyhandyman.com
-justmyharddick.tumblr.com
-justmyhornydesires.tumblr.com
 justmyhvac.com
 justmyidea.com
 justmyirrigation.com
@@ -183276,7 +179472,6 @@ justmymaid.com
 justmymail.com
 justmymason.com
 justmymovies.com
-justmynaughtyslutself.tumblr.com
 justmypa.co.uk
 justmypaver.com
 justmypaving.com
@@ -183284,30 +179479,21 @@ justmypestcontrol.com
 justmyplumber.com
 justmyporn.com
 justmyprice.com
-justmyrandomprofile.tumblr.com
-justmysecretdesires.tumblr.com
-justmyself123.tumblr.com
 justmyshop.122.2o7.net
 justmysize.com
 justmysize.net
 justmysizemall.com
 justmysprinklers.com
-justmystateofmind.tumblr.com
 justmytakeout.com
-justmyturnons.tumblr.com
 justmywall.com
 justn-tyme.com
 justnahrin.com
 justnailed.com
 justnails.co.uk
-justnakdguys.tumblr.com
 justnaked.com
 justnakedgirls.com
-justnakedguy.tumblr.com
 justnakedguys.com
 justnakedmen.com
-justnakedness.tumblr.com
-justnakedpeople.tumblr.com
 justnakedteens.com
 justnamebrands.com
 justnameit.citymax.com
@@ -183324,7 +179510,6 @@ justnatural.it
 justnaturalsex.com
 justnaturalstuff.co.uk
 justnaturalwater.com
-justnaughtyanderoticgifs.tumblr.com
 justnaughtygirlfriends.com
 justnavigators.com
 justnd2001.no-ip.biz
@@ -183335,10 +179520,8 @@ justnecessities.com
 justnecurd.com
 justneed.info
 justneedamillion.com
-justneedtocum.tumblr.com
 justneedtotalk.com
 justneighbor.com
-justnerdgirlproblems.tumblr.com
 justnerdthings.com
 justnerverenewinfo.us
 justness.net
@@ -183364,7 +179547,6 @@ justniceboobs.com
 justnicolesheridan.com
 justnightlyroutineis.us
 justnikes.com
-justnippleclamps.tumblr.com
 justnips.com
 justnnbieber.com
 justnopoint.com
@@ -183376,7 +179558,6 @@ justnotebook.com
 justnotes21.com
 justnotice.com
 justnotify.com
-justnotyouraverageblog.tumblr.com
 justnous.com
 justnowit.com
 justnowmade.com
@@ -183393,9 +179574,7 @@ justnudecelebs.com
 justnudegals.com
 justnudegays.com
 justnudegirls.com
-justnudegirlsgirlsgirls.tumblr.com
 justnudeguys.com
-justnudeguys.tumblr.com
 justnudemen.com
 justnudepics.com
 justnudes.com
@@ -183458,16 +179637,13 @@ justolives.com
 justom.com
 justomaha.com
 justomar.com
-justomfg.tumblr.com
 juston.top
 justoncampus.com
 justoncedesigns.com
 justoncemore.com
 justone.net
-justonebabygirl.tumblr.com
 justonebeer.com
 justonebite.com
-justoneblackguy.tumblr.com
 justonebuck.com
 justonecallaway.com
 justonecan.com
@@ -183491,11 +179667,9 @@ justonemoment.com
 justonemore.co.uk
 justonemoreadsyep.com
 justonemorecast.com
-justonemorecock.tumblr.com
 justonemorecraft.com
 justonemoregame.com
 justonemoreoffer.bid
-justonemoreporn.tumblr.com
 justonemorequestion.com
 justonemoreslice.com
 justonemoresportsbarandgrill.com
@@ -183567,9 +179741,7 @@ justonemother.blogspot.sn
 justonemother.blogspot.tw
 justonemother.blogspot.ug
 justoneofakind.com
-justoneofthegays.tumblr.com
 justoneplate.com
-justonepurpose.tumblr.com
 justonerep.com
 justoneroot.com
 justonesecond.com
@@ -183582,7 +179754,6 @@ justoneweek.com
 justonlinegames.com
 justonlinemovies.com
 justonlybonnemeuf.com
-justonlyforhim.tumblr.com
 justonpoint.com
 justonsrep.com
 justontario.com
@@ -183639,7 +179810,6 @@ justowner.org
 justowners.com
 justozone.com
 justp.googlevideo.com
-justp0rngifs.tumblr.com
 justpa.com
 justpace.com
 justpackyourbags.com
@@ -183689,10 +179859,7 @@ justpaythis.cn
 justpaywhen.net
 justpeaceint.org
 justpeaches.com
-justpeachybarbie.tumblr.com
 justpeachynutrition.com
-justpeeeingmypants.tumblr.com
-justpeeingmypants.tumblr.com
 justpeeking.com
 justpeelandstick.com
 justpeelandsticks.com
@@ -183705,9 +179872,7 @@ justpenny.com
 justpepper.com
 justperfectass.com
 justperfectforme.com
-justperfectgirlsblog.tumblr.com
 justpermits.com.au
-justperpection.tumblr.com
 justpersonaltrainerjobs.com
 justperwitcyef.eu
 justpestcontroljobs.com
@@ -183718,10 +179883,8 @@ justpetite.org
 justpetitegirls.com
 justpetitewomen.com
 justpets.com
-justpets.tumblr.com
 justpetsappleton.com
 justpettoys.com
-justphansmut.tumblr.com
 justphelpsit.com
 justphil.com
 justphilatelic.com
@@ -183743,7 +179906,6 @@ justpick.pw
 justpicking.com
 justpicks.com
 justpics.com
-justpicsandvids.tumblr.com
 justpicsplease.com
 justpictureme.com
 justpictures.dk
@@ -183775,12 +179937,9 @@ justplainhome.com
 justplainjoe.gourmetfoodmall.com
 justplainlucky.com
 justplainnaughty.co.uk
-justplainpornography.tumblr.com
 justplainrude.com
 justplainsex.com
-justplainsexxxy.tumblr.com
 justplainsilly.com
-justplainsmut.tumblr.com
 justplainthoughtful.com
 justplainvalues.com
 justplando.com
@@ -183809,7 +179968,6 @@ justplaynow.com
 justplayporducts.com
 justplaythegame.com
 justplayzone.com
-justpleasingmyself.tumblr.com
 justpleasure.biz
 justplowing.com
 justplowsnow.com
@@ -183855,9 +180013,6 @@ justpornandsex.com
 justpornblog.com
 justporncheap.com
 justpornclip.com
-justpornforyou.tumblr.com
-justporngaymovie.tumblr.com
-justpornhc.tumblr.com
 justpornhere.com
 justpornlinks.com
 justpornmovie.com
@@ -183882,7 +180037,6 @@ justporns.com
 justpornsites.com
 justpornstarphotos.com
 justpornstars.com
-justpornus.tumblr.com
 justpornvideos.com
 justpornwallpapers.com
 justpornx.com
@@ -183918,7 +180072,6 @@ justpremium-d.openx.net
 justpremium.com
 justpremium.de
 justpremium.nl
-justpremiumpussy.tumblr.com
 justprepay.com
 justpressittees.com
 justpressplayband.com
@@ -183931,7 +180084,6 @@ justpricedright.com
 justprinterink.com
 justprivate.net
 justprivateinvestigatorjobs.com
-justprn.tumblr.com
 justproceed.com
 justproductsinc.com
 justprofit.xyz
@@ -183946,7 +180098,6 @@ justpropertyspain.com
 justproposals.com
 justprops.com
 justprotect.com
-justprowling.tumblr.com
 justprox.com
 justproxies.info
 justproxies.net
@@ -183969,11 +180120,9 @@ justpublic.tv
 justpublicdomain.com
 justpublishing.com
 justpulled.com
-justpullitout.tumblr.com
 justpump.com
 justpumps.com
 justpunchit.com
-justpurefun69.tumblr.com
 justpuremood.com
 justpuresex.com
 justpurnima431.club
@@ -183983,10 +180132,8 @@ justpushstart.com
 justpuss.com
 justpussies.com
 justpussy.net
-justput2coinsuponmyeyelids.tumblr.com
 justputinapool.com
 justputinonmychest.com
-justputitinabag.tumblr.com
 justputtingitoutthere.net
 justputtingitoutthere74.com
 justputzing.com
@@ -184026,7 +180173,6 @@ justrags.com
 justrainbow.com
 justraleighjobs.com
 justrally.com
-justrandom3001.tumblr.com
 justrandomstuff.com
 justranked.com
 justrap.com
@@ -184058,14 +180204,12 @@ justrecorders.com
 justrecovering.com
 justrecovery.com
 justredheads.com
-justredheads.tumblr.com
 justredheadshemales.com
 justredirect24.com
 justredirect25.com
 justreduce.com
 justredwas.ru
 justreef.com
-justreengo.tumblr.com
 justrees.com
 justrefills.com
 justreggitifyouknowit.ru
@@ -184184,7 +180328,6 @@ justrottweiler.com
 justroute.com
 justrrr.info
 justrs.com
-justrubberguys.tumblr.com
 justrubbers.com
 justrubbish.com
 justruby.com
@@ -184198,16 +180341,13 @@ justrunhappy.com
 justrunit.com
 justruse.ru
 justryit.com
-justs-exual.tumblr.com
 justs.googlevideo.com
-justs0mecrazyguy.tumblr.com
 justsacramento.com
 justsafegiantsurface.info
 justsafelist.com
 justsafelist.net
 justsanantoniojobs.com
 justsanfrancisco.com
-justsarahsnowthings.tumblr.com
 justsasha.com
 justsausages.com
 justsaveelectricbills.us
@@ -184227,7 +180367,6 @@ justsayinghello.com
 justsayinghi.com
 justsayingit.com
 justsayjanet23.com
-justsayjohnny.tumblr.com
 justsaykb.com
 justsaylasvegas.com
 justsaylasvegas.net
@@ -184243,7 +180382,6 @@ justsaynotowallstreet.com
 justsaynotozillow.com
 justsaynowar.com
 justsaypenis.com
-justsaypleaseandgetonyourknees.tumblr.com
 justsayporn.com
 justsayporno.com
 justsaysend.com
@@ -184319,40 +180457,26 @@ justservers.tk
 justservicemysprinklers.com
 justserviceseo.org
 justseventeen.com
-justseventeen.tumblr.com
 justsewsnazzy.com
 justsewyoucan.com
 justsewyouknow.net
-justsex-ink-art.tumblr.com
-justsex-sexgay.tumblr.com
 justsex.com
 justsex.de
 justsex.lycos.it
 justsex.ucoz.ru
-justsex006.tumblr.com
 justsexandporn.com
 justsexcams.net
 justsexclips.com
-justsexgifs.tumblr.com
-justsexgirl.tumblr.com
 justsexmovies.com
-justsexnothingmore.tumblr.com
 justsexpics.com
 justsexportal.com
 justsext.com
 justsextips.com
 justsextoys.com
 justsextube.com
-justsexuality.tumblr.com
 justsexxx.com
 justsexy.info
-justsexy2.tumblr.com
-justsexyalina.tumblr.com
-justsexyass.tumblr.com
-justsexybitches.tumblr.com
-justsexyboy.tumblr.com
 justsexydresses.com
-justsexyebonyhotness.tumblr.com
 justsexygallery.blogspot.ae
 justsexygallery.blogspot.al
 justsexygallery.blogspot.am
@@ -184421,27 +180545,12 @@ justsexygallery.blogspot.sn
 justsexygallery.blogspot.tw
 justsexygallery.blogspot.ug
 justsexygirls.com
-justsexygirlselfies.tumblr.com
-justsexygirlss.tumblr.com
-justsexyjuicychicks.tumblr.com
 justsexylinks.com
-justsexymen.tumblr.com
-justsexymodels.tumblr.com
 justsexynudegirls.com
-justsexyoung.tumblr.com
-justsexypegging.tumblr.com
 justsexypics.com
-justsexypics.tumblr.com
-justsexyselfies.tumblr.com
-justsexysluts.tumblr.com
-justsexystories.tumblr.com
-justsexystuds.tumblr.com
-justsexytapes.tumblr.com
 justsexythings.com
-justsexythinking.tumblr.com
 justsexyuniforms.com
 justsexyvideos.com
-justsexyyu.tumblr.com
 justseychelles.com
 justsh.com
 justshag.com
@@ -184468,7 +180577,6 @@ justshippers.com
 justshipping.com
 justshooting.com
 justshootinggames.com
-justshootit.tumblr.com
 justshootme.net
 justshootmephotographystudio.com
 justshootmyvideos.com
@@ -184482,7 +180590,6 @@ justshortofsane.com
 justshorts.com
 justshots.com
 justshots.net
-justshowmethat.tumblr.com
 justshowupbibleclub.com
 justshowupchurch.com
 justsiblings.com
@@ -184508,13 +180615,10 @@ justsingaporejobs.com
 justsinglechristians.com
 justsinglegirls.com
 justsipit.com
-justsissy.tumblr.com
-justsissychastity.tumblr.com
 justsistas.com
 justsitdown.com
 justsites.com
 justsitstill.com
-justsittinginmyowncorner.tumblr.com
 justsixteen.com
 justsize.com
 justsjusts.com
@@ -184526,14 +180630,12 @@ justskins.com
 justskinsolut.com
 justskirts.com
 justskitubes.com
-justslaveythings.tumblr.com
 justsleeping.com
 justslonka.com
 justslot.com
 justslut.com
 justslutpix.com
 justsluts.com
-justsmallcocks.tumblr.com
 justsmartenough.com
 justsmartstart.com
 justsmil.com
@@ -184542,7 +180644,6 @@ justsmilechampions.com
 justsmilekids.com
 justsmileolympics.com
 justsmilepediatrics.com
-justsmilestuffhappens.tumblr.com
 justsmiling.com
 justsmoke.com
 justsmokedsalmon.com
@@ -184584,25 +180685,12 @@ justsoldlocal.com
 justsoldlocally.com
 justsoldmyhouse.com
 justsoles.com
-justsomebiguy.tumblr.com
-justsomecutetrash.tumblr.com
-justsomefuckingthoughts.tumblr.com
-justsomegayporn.tumblr.com
-justsomeguyoh.tumblr.com
 justsomeguys.com
-justsomeholestofill.tumblr.com
-justsomehotestuff.tumblr.com
-justsomenakeddudes.tumblr.com
 justsomeone.com
 justsomeonetotalkto.com
 justsomeporn.com
 justsomesex.com
-justsomesex.tumblr.com
-justsomesexvideos.tumblr.com
-justsomesexyguys.tumblr.com
-justsomesexythinking.tumblr.com
 justsomespace.de
-justsometape.tumblr.com
 justsongs.ru
 justsonline.info
 justsoperfect.com
@@ -184620,7 +180708,6 @@ justspasandadventures.com
 justspeak.com
 justspeakin.site
 justspecialevents.com
-justspencersluttinitup.tumblr.com
 justspices.de
 justspicysex.com
 justspin2make.com
@@ -184638,7 +180725,6 @@ justsportandleisure.com
 justsprinkles.com
 justsqlserverjobs.com
 justsquareenough.com
-justsquirt.tumblr.com
 justssd.com
 juststacyvalentine.com
 juststagemyhouse.com
@@ -184646,7 +180732,6 @@ juststainmydeck.com
 juststandinthe.tk
 juststare.com
 juststartfun.com
-juststartinglife.tumblr.com
 juststartup.com
 juststat.com
 juststatic.info
@@ -184657,7 +180742,6 @@ juststayin.com
 juststeeljobs.com
 juststep2toys.com
 juststereo.com
-juststeve951.tumblr.com
 juststick.com
 juststickam.com
 juststicker.com
@@ -184694,18 +180778,14 @@ juststuffedanimals.com
 juststunt.com
 juststx.com
 juststyle.net
-justsubmissivee.tumblr.com
 justsuch.com
 justsuch.net
-justsuckandcumvids.tumblr.com
-justsuckthisclit.tumblr.com
 justsuethem.com
 justsummercampjobs.com
 justsuperstar.com
 justsupport.net
 justsupportgroups.com
 justsurprise.com
-justsurrender.tumblr.com
 justsurround.pl.ua
 justsurveymyproperty.com
 justsuspension.com
@@ -184718,7 +180798,6 @@ justsweepmylot.com
 justsweepmyparkinglot.com
 justsweetgirls.com
 justsweets.com
-justsweetteens.tumblr.com
 justswimmac.org
 justswimsuits.com
 justswinger.com
@@ -184729,7 +180808,6 @@ justsyncapps.com
 justsyria.com
 justsystem.122.2o7.net
 justsystemjhs36.club
-justt-sexx.tumblr.com
 justt1.com
 justta.com
 justtablets.com
@@ -184743,7 +180821,6 @@ justtalkinsex.com
 justtamales.com
 justtambo.in
 justtanit.com
-justtanothherteenagerr.tumblr.com
 justtanx.com
 justtanya.com
 justtap.com
@@ -184761,10 +180838,8 @@ justteddybears.com
 justteddys.com
 justteenart.com
 justteenbabes.com
-justteenbieber.tumblr.com
 justteenblog.com
 justteendiscounts.com
-justteengirls.tumblr.com
 justteenlolitas.com
 justteenmodels.com
 justteenmovie.com
@@ -184914,7 +180989,6 @@ justteensiteblond.blogspot.sn
 justteensiteblond.blogspot.tw
 justteensiteblond.blogspot.ug
 justteensluts.com
-justteenson.tumblr.com
 justteenspics.com
 justteensporn.com
 justteenstube.com
@@ -184922,7 +180996,6 @@ justteenstubes.com
 justteentalk.com
 justteentube.com
 justteentubes.com
-justteenwolf.tumblr.com
 justteenx.com
 justteenz.com
 justtelemarketingjobs.com
@@ -184945,7 +181018,6 @@ justtextiles.com
 justtextme.com
 justth.net
 justthanks.com
-justthatgaylurker.tumblr.com
 justthatgood.com
 justthatpress.icu
 justthe3ofus.com
@@ -184953,7 +181025,6 @@ justtheanswers.com
 justtheatre.com
 justtheaudio.com
 justthebasichookup.com
-justthebestgayporn.tumblr.com
 justthebesttraffic.com
 justthebible.com
 justthebookstore.com
@@ -184967,7 +181038,6 @@ justtheday.com
 justthedrone.com
 justtheducksnuts.co.nz
 justtheface.com
-justthefangirl.tumblr.com
 justthefatcahalenge.com
 justthefatmovement.com
 justtheflax.com
@@ -184976,17 +181046,12 @@ justthefonts.com
 justthefourofus.com
 justthegirlnextdoor.com
 justthegoodpills.com
-justthehornyme.tumblr.com
 justthehosting.com
-justthehotstuff97.tumblr.com
-justtheitip.tumblr.com
-justtheitip1.tumblr.com
 justthejob.co.za
 justtheknob.com
 justthelogo.com
 justthemannextdoor.com
 justthemannextdoor.theydirty.com
-justthemannextdoor.tumblr.com
 justtheme.net
 justthenecessary.com
 justthenuts.com
@@ -185005,7 +181070,6 @@ justthesupplement.com
 justthethreeofus.com
 justtheticket.co.uk
 justtheticketpcb.com
-justthetiptoseehowitfeels.tumblr.com
 justthetwoofus.com
 justthewayulikeit.com
 justthewayyoulikeit.com
@@ -185016,7 +181080,6 @@ justthinkbooks.com
 justthinkingoutcloud.com
 justthinkofit.com
 justthinkpink.com
-justthinktwice.gov
 justthinq.com
 justthirtyminutes.com
 justthisaikido.com
@@ -185038,13 +181101,10 @@ justtimes.com
 justtimeto.tk
 justtin.com
 justtinted.com
-justtinytits.tumblr.com
 justtist.com
 justtits.com
 justtitsnass.com
-justtitsnass.tumblr.com
 justtitties.com
-justtkeepcalmm.tumblr.com
 justtoalterthem.com
 justtobaccomn.com
 justtocusmile.tripod.com
@@ -185071,8 +181131,6 @@ justtopgambling.net
 justtoplinks.de
 justtosaybaskets.com
 justtosee.com
-justtosexy.tumblr.com
-justtoshow.tumblr.com
 justtouchme.com
 justtoy.com
 justtoyou.com
@@ -185119,12 +181177,9 @@ justtruss.com
 justtrustinit.com
 justtrustus.com
 justtruth.com
-justtry007.tumblr.com
-justtryandfuckme.tumblr.com
 justtrying.com
 justtshirtprinting.com
 justtube.net
-justtumblrfilthshemales.tumblr.com
 justtune.com
 justtunisia.com
 justturned18.com
@@ -185141,7 +181196,6 @@ justtwenty.com
 justtwistednotbroken.shebatana.com
 justtwitterfollowers.com
 justtwogingers.com
-justtwomorestepstogay.tumblr.com
 justu.googlevideo.com
 justuav.com
 justube.com
@@ -185173,22 +181227,16 @@ justupit.com
 justupload.com
 justupload.it
 justupskirt.com
-justupskirt.tumblr.com
 justupskirts.com
-justuraveragelesbian.tumblr.com
-justurbabe.tumblr.com
 justurflavor.com
 justurl.net
 justurned18.com
-justus-servus.tumblr.com
 justus.co.id
 justus.com-wy16.net
-justus88.tumblr.com
 justusalexander.com
 justusamade.com
 justusamadegoods.com
 justusamadeproducts.com
-justusbeingus.tumblr.com
 justusboys.com
 justusboys.net
 justusboysclub.com
@@ -185205,8 +181253,6 @@ justusedcars.com
 justusee.com
 justuseful.com
 justuseme.com
-justusemeplease.tumblr.com
-justusexploringtogether.tumblr.com
 justuseyourimagination.com
 justusfinancial.com
 justusfolks.com
@@ -185223,7 +181269,6 @@ justusmusic.com
 justusnieland.com
 justusparents.com
 justusroux.com
-justussexyguys.tumblr.com
 justusshemales.com
 justusteens.com
 justuswalls.toreybenni.com
@@ -185258,7 +181303,6 @@ justvideoclips.com
 justvideogames.com
 justvids.com
 justvids.net
-justvids.tumblr.com
 justvie.com
 justviet.com
 justviewthispage.com
@@ -185294,21 +181338,15 @@ justwagon.com
 justwaiheke.co.nz
 justwalk.com
 justwalkmydog.com
-justwanderingthrulife.tumblr.com
 justwank.com
 justwannafly.com
 justwannafuck.com
-justwannahavefunxd.tumblr.com
 justwannalook.com
-justwannaseecocks.tumblr.com
-justwannasex09.tumblr.com
 justwannatalk.com
 justwant.info
-justwantafuck.tumblr.com
 justwantfuck.com
 justwantit.com
 justwants.com
-justwanttofvck.tumblr.com
 justwanttolose10pounds.com
 justwanttolosetenpounds.com
 justwanttotalk.com
@@ -185322,9 +181360,6 @@ justwashmyroof.com
 justwastemanagementjobs.com
 justwatch.info
 justwatches.zoomblog.com
-justwatching7.tumblr.com
-justwatchingsluts456.tumblr.com
-justwatchitpussy.tumblr.com
 justwatchporn.com
 justwatchz.com
 justwaterit.com
@@ -185334,7 +181369,6 @@ justwaterproofyourbasement.com
 justwaterpumps.co.uk
 justwatersavers.com
 justwd.com
-justwearingasmile.tumblr.com
 justweave.com
 justwebads.com
 justwebchat.com
@@ -185359,9 +181393,6 @@ justwesterndecor.com
 justwetpanties.com
 justwetsex.com
 justwetwo.com
-justwhatilike-blog.tumblr.com
-justwhatimattractedto.tumblr.com
-justwhatiminto.tumblr.com
 justwhatineeded.com
 justwhatiwaslookingfor.com
 justwhatsappweb.com
@@ -185376,7 +181407,6 @@ justwhenineedit.net
 justwhiteshirts.com
 justwhiteteeth.com
 justwideshoes.com
-justwifey.tumblr.com
 justwil.com
 justwild.com
 justwillowtree.com
@@ -185394,19 +181424,15 @@ justwinks.com
 justwinmylawsuit.com
 justwinranch.com
 justwisdom.com
-justwishtobeacuterealgirlygirl.tumblr.com
 justwithfriends.com
 justwives.com
-justwives.tumblr.com
 justwonderin.com
-justwondering6770.tumblr.com
 justwood.com
 justwoodworkingjobs.com
 justwoodyyyy.madalenaamalle.com
 justwoofers.com
 justwoofinit.com
 justwool.com
-justwordme6.tumblr.com
 justwork.eu
 justwork.net
 justworkathome.com
@@ -185470,8 +181496,6 @@ justyouandi.com
 justyouknow.com
 justyoung.com
 justyoungboys.net
-justyoungfeet-deactivated201507.tumblr.com
-justyoungfeet.tumblr.com
 justyounggirls.com
 justyounglolitas.com
 justyoungnakedgirls.com
@@ -185484,22 +181508,17 @@ justyoungteengirls.com
 justyoungteens.com
 justyouporn.com
 justyouraverage.com
-justyouraveragecollegeslut-usm.tumblr.com
-justyouraveragekink.tumblr.com
 justyouraveragerunner.com
-justyourboobs.tumblr.com
 justyourelectrician.com
 justyourexterminator.com
 justyourheart.com
 justyourhost.com
 justyourhvac.com
-justyourlittleaveragewhore.tumblr.com
 justyourlove.com
 justyourown.com
 justyourpestcontrol.com
 justyoursex.com
 justyoursongs.com
-justyourtiffany.tumblr.com
 justyousex.com
 justype.com
 justysia.net
@@ -185548,7 +181567,6 @@ juszr.googlevideo.com
 juszt.googlevideo.com
 juszw.googlevideo.com
 juszz.googlevideo.com
-jut.edu.cn
 jut.ycwfqlmj.eu
 jut2.com
 juta8.com
@@ -185725,7 +181743,6 @@ jutsoye.com
 jutstar.com
 jutstream.com
 jutswych.com
-jutt112.tumblr.com
 jutt9244.myftp.biz
 jutta-beckmann.de
 jutta-kleinschmidt.de
@@ -185744,7 +181761,6 @@ juttb.googlevideo.com
 jutte.googlevideo.com
 juttfj.com
 juttg.googlevideo.com
-juttie12.tumblr.com
 juttin.us
 jutting.com
 juttj.googlevideo.com
@@ -185828,7 +181844,6 @@ juugd.googlevideo.com
 juugf.googlevideo.com
 juugg.googlevideo.com
 juugi.googlevideo.com
-juugmayne.tumblr.com
 juugo.com
 juugr.googlevideo.com
 juugt.googlevideo.com
@@ -185839,14 +181854,12 @@ juuhoo.com
 juuhuu.com
 juui-yatabe.com
 juuib.googlevideo.com
-juuichithebiggaybear.tumblr.com
 juuie.googlevideo.com
 juuip.googlevideo.com
 juuis.googlevideo.com
 juuiu.googlevideo.com
 juuix.googlevideo.com
 juujs.googlevideo.com
-juukan-kemono.tumblr.com
 juuks.com
 juuksepikendused.com
 juul.de-france.org
@@ -186017,7 +182030,6 @@ juvenile12.com
 juvenileattorneysandiego.com
 juvenilebedding.net
 juvenilebipolardisorder.com
-juvenilecouncil.gov
 juvenilecriminals.com
 juvenilediabetesfoundation.com
 juveniledrugabuse.com
@@ -186445,7 +182457,6 @@ juxwas.com
 juxxc.googlevideo.com
 juxxf.googlevideo.com
 juxxh.googlevideo.com
-juxxiesconvoitise.tumblr.com
 juxxk.googlevideo.com
 juxxle.com
 juxxn.googlevideo.com
@@ -186573,7 +182584,6 @@ juyuanoem.com
 juyuansuangai.com
 juyuhafrocviwoyat.jaqatupareek.com
 juyujiancai.com
-juyumyn.tumblr.com
 juyv.com
 juyvc.googlevideo.com
 juyvf.googlevideo.com
@@ -186665,7 +182675,6 @@ juzwiesz.com
 juzwl.googlevideo.com
 juzww.googlevideo.com
 juzwz.googlevideo.com
-juzxxx.tumblr.com
 juzyx.googlevideo.com
 juzzflirtin.com
 juzzis.com
@@ -186817,7 +182826,6 @@ jvauto29.free.fr
 jvautoglass.com
 jvautozone.com
 jvauvw.ru
-jvazquez5.tumblr.com
 jvazz.exclusiverewards.018978.xyz
 jvb-aarhus.dk
 jvbac.googlevideo.com
@@ -187069,7 +183077,6 @@ jvdaw.googlevideo.com
 jvdaz.googlevideo.com
 jvdbd.googlevideo.com
 jvdbx.googlevideo.com
-jvdclove.tumblr.com
 jvddb.googlevideo.com
 jvdde.googlevideo.com
 jvddp.googlevideo.com
@@ -187534,7 +183541,6 @@ jvicj.googlevideo.com
 jvicm.googlevideo.com
 jvicp.googlevideo.com
 jvicr.googlevideo.com
-jvicscott.tumblr.com
 jvictor.com
 jvicu.googlevideo.com
 jvicx.googlevideo.com
@@ -187653,7 +183659,6 @@ jvizq.googlevideo.com
 jvizt.googlevideo.com
 jvizw.googlevideo.com
 jvizz.googlevideo.com
-jvizzzle.tumblr.com
 jvja.net
 jvjab.googlevideo.com
 jvjachem.com
@@ -187851,7 +183856,6 @@ jvl.solution.weborama.fr
 jvlab.com
 jvlabw.biz
 jvlac.googlevideo.com
-jvladika69.tumblr.com
 jvlae.googlevideo.com
 jvlaq.googlevideo.com
 jvlas.googlevideo.com
@@ -187964,7 +183968,6 @@ jvmem.googlevideo.com
 jvmenterprise.com
 jvmep.googlevideo.com
 jvmer.googlevideo.com
-jvmesryvnxxx.tumblr.com
 jvmex.googlevideo.com
 jvmf.mnegel.ru
 jvmfx.com
@@ -188262,7 +184265,6 @@ jvpnz.googlevideo.com
 jvpopwqdmhahho.info
 jvportal.com
 jvportfolio.com
-jvpoz.tumblr.com
 jvpp.com.au
 jvpqb.googlevideo.com
 jvpqg.googlevideo.com
@@ -188577,10 +184579,8 @@ jvss.net
 jvssolutions.com
 jvssys.com
 jvst.de
-jvst4kickz.tumblr.com
 jvstar.com
 jvstb.googlevideo.com
-jvstdick.tumblr.com
 jvstg.googlevideo.com
 jvstj.googlevideo.com
 jvstm.googlevideo.com
@@ -189249,7 +185249,6 @@ jw0.com
 jw00.com
 jw0rdycj5ger3pqxr9e1odm7wmw2c1510275602.nuid.imrwo
 jw0rdycj5ger3pqxr9e1odm7wmw2c1510275602.nuid.imrworldwide.com
-jw162.tumblr.com
 jw1w5wbkadvdzurpia2sjfgj8ngz51507001801.nuid.imrwo
 jw1w5wbkadvdzurpia2sjfgj8ngz51507001801.nuid.imrworldwide.com
 jw23.pl
@@ -189368,14 +185367,12 @@ jwarh.googlevideo.com
 jwark.googlevideo.com
 jwarn.com
 jwarn.googlevideo.com
-jwarnerbicur.tumblr.com
 jwarrenphotography.co.uk
 jwart.co.uk
 jwarv.googlevideo.com
 jwary.googlevideo.com
 jwaser.com
 jwashere.com
-jwashxxx.tumblr.com
 jwasia.sg
 jwasset.com
 jwat.com
@@ -189406,7 +185403,6 @@ jway.co.jp
 jwayallure.com
 jwayjesuschrist.com
 jwaysolutions.com
-jwb3ar.tumblr.com
 jwba.jp
 jwbac.googlevideo.com
 jwbae.googlevideo.com
@@ -189527,7 +185523,6 @@ jwcbl.googlevideo.com
 jwcbo.googlevideo.com
 jwcbq.googlevideo.com
 jwcbt.googlevideo.com
-jwcc.edu
 jwccc.com
 jwcchurch.com
 jwcdd.googlevideo.com
@@ -189827,7 +185822,6 @@ jwelleryfair.xyz
 jwellsolutions.com
 jwellsphotography.com
 jwelri.com.ua
-jwemt.tumblr.com
 jwenc.googlevideo.com
 jwendell.com
 jweng.co.kr
@@ -190105,7 +186099,6 @@ jwhitecricket.com
 jwhitegraphics.com
 jwhitemarketing.com
 jwhitephotography.com
-jwhitneylove.tumblr.com
 jwhitt.com
 jwhiw.googlevideo.com
 jwhiz.googlevideo.com
@@ -190271,7 +186264,6 @@ jwirj.googlevideo.com
 jwiru.googlevideo.com
 jwirx.googlevideo.com
 jwiser.markusmohr.vmbanaag.randaec.kiramelli.com
-jwit.edu.tw
 jwitch.com
 jwitx.googlevideo.com
 jwiub.googlevideo.com
@@ -190297,9 +186289,7 @@ jwizzle.com
 jwj.net
 jwj.oedgel.ru
 jwj1.com
-jwj30.tumblr.com
 jwj873.ept.kenandkarenhoofard.com
-jwj89860.tumblr.com
 jwja.com
 jwjab.googlevideo.com
 jwjad.googlevideo.com
@@ -190396,7 +186386,6 @@ jwjxz.googlevideo.com
 jwjy.com.cn
 jwjzo.ws
 jwjztdbakqqk.com
-jwk33.tumblr.com
 jwka3snzxiig7rrbk8wg.asia
 jwkasq.com
 jwkbb.googlevideo.com
@@ -190500,7 +186489,6 @@ jwkxx.googlevideo.com
 jwl-designs.com
 jwl-investment.com
 jwl-kyoya.co.jp
-jwl1318.tumblr.com
 jwland.com
 jwlandscape.com
 jwlashua.com
@@ -190784,7 +186772,6 @@ jwocp.googlevideo.com
 jwocs.googlevideo.com
 jwocv.googlevideo.com
 jwocy.googlevideo.com
-jwod.gov
 jwofc.googlevideo.com
 jwofi.googlevideo.com
 jwofl.googlevideo.com
@@ -190854,7 +186841,6 @@ jworldpay.com
 jworlds.net
 jworldtopcc.ru
 jworthington.com
-jworthingtoniii.tumblr.com
 jwotb.googlevideo.com
 jwote.googlevideo.com
 jwoteijxnbubgkbol.com
@@ -191256,7 +187242,6 @@ jwsupply.com
 jwsus.googlevideo.com
 jwsuv.googlevideo.com
 jwsv.de
-jwswinging.tumblr.com
 jwswipe.com
 jwswipe.net
 jwsxc.googlevideo.com
@@ -191295,7 +187280,6 @@ jwtf.or.jp
 jwtgc.googlevideo.com
 jwtgf.googlevideo.com
 jwtgi.googlevideo.com
-jwtgirl.tumblr.com
 jwtgl.googlevideo.com
 jwtgo.googlevideo.com
 jwtgz.googlevideo.com
@@ -191305,9 +187289,7 @@ jwthg.googlevideo.com
 jwthm.googlevideo.com
 jwthr.googlevideo.com
 jwties.com
-jwties.tumblr.com
 jwtiesamateurs.com
-jwtiesproductions.tumblr.com
 jwtjb.googlevideo.com
 jwtjd.googlevideo.com
 jwtjg.googlevideo.com
@@ -191344,7 +187326,6 @@ jwtrr.googlevideo.com
 jwtru.googlevideo.com
 jwtrx.googlevideo.com
 jwtse.googlevideo.com
-jwtsissy.tumblr.com
 jwtss.googlevideo.com
 jwtsy.googlevideo.com
 jwtube.com
@@ -191372,7 +187353,6 @@ jwtyr.googlevideo.com
 jwtznloxywadsets.review
 jwu-northmiami.com
 jwu.ac.jp
-jwu.edu
 jwubc.googlevideo.com
 jwube.googlevideo.com
 jwubh.googlevideo.com
@@ -191580,7 +187560,6 @@ jwwhsqz.ru
 jwwif.googlevideo.com
 jwwii.googlevideo.com
 jwwil.googlevideo.com
-jwwilsey.tumblr.com
 jwwin.googlevideo.com
 jwwio.googlevideo.com
 jwwit.googlevideo.com
@@ -192082,7 +188061,6 @@ jxcyi.googlevideo.com
 jxcyl.googlevideo.com
 jxcyn.googlevideo.com
 jxcyq.googlevideo.com
-jxd1545.tumblr.com
 jxd6.kaeyucoolenjoy.net
 jxdalayobca.megachangew.su
 jxdbj.googlevideo.com
@@ -192572,7 +188550,6 @@ jxidn.googlevideo.com
 jxidp.googlevideo.com
 jxids.googlevideo.com
 jxidv.googlevideo.com
-jxie.edu.cn
 jxiee.googlevideo.com
 jxieh.googlevideo.com
 jxiek.googlevideo.com
@@ -193031,7 +189008,6 @@ jxmzymx.ws
 jxn.bz
 jxnbleio.cn
 jxnbwgea.bid
-jxnc.tumblr.com
 jxndb.googlevideo.com
 jxnde.googlevideo.com
 jxndh.googlevideo.com
@@ -193092,7 +189068,6 @@ jxntp.googlevideo.com
 jxnts.googlevideo.com
 jxntv.googlevideo.com
 jxnty.googlevideo.com
-jxnu.edu.cn
 jxnu8.com
 jxnulsdo.cn
 jxnwf.googlevideo.com
@@ -193487,9 +189462,7 @@ jxsev.googlevideo.com
 jxsey.googlevideo.com
 jxsgf.googlevideo.com
 jxsgzz.com
-jxsh-a.tumblr.com
 jxshc.googlevideo.com
-jxshecannon.tumblr.com
 jxshen.com
 jxshengding.com
 jxshengtang.com
@@ -194276,7 +190249,6 @@ jy6732.cn
 jy6d.com
 jy6es4.ken.kensprofitsystem.com
 jy7.jt7i.in
-jy75p2avi1.execute-api.us-west-2.amazonaws.com
 jy7yddzuzhy.chat.ru
 jy8.lookin.at
 jy8222.com
@@ -194363,7 +190335,6 @@ jyasw.googlevideo.com
 jyasy.googlevideo.com
 jyatan.us
 jyates.com
-jyatrocio.tumblr.com
 jyau3uoqrdrnloztys9jvsipbdnn9mph.stream
 jyauuwrrigim.com
 jyava.googlevideo.com
@@ -194757,7 +190728,6 @@ jyes.com
 jyeszsj.com
 jyetais.com
 jyetara.com
-jyetheslut.tumblr.com
 jyeuc.googlevideo.com
 jyeuf.googlevideo.com
 jyeui.googlevideo.com
@@ -195295,7 +191265,6 @@ jykip.googlevideo.com
 jykis.googlevideo.com
 jykiv.googlevideo.com
 jykix.googlevideo.com
-jykk9115.tumblr.com
 jykkc.googlevideo.com
 jykkf.googlevideo.com
 jykki.googlevideo.com
@@ -195649,19 +191618,14 @@ jynwn.googlevideo.com
 jynwq.googlevideo.com
 jynww.googlevideo.com
 jynwy.googlevideo.com
-jynx-maze-own.tumblr.com
 jynxed.store.aptoide.com
 jynxem.com
 jynxem.net
-jynxexplicitstuff.tumblr.com
 jynxmaze.com
 jynxmaze.info
 jynxmaze.net
 jynxmaze.org
-jynxmazefan.tumblr.com
-jynxmazehdvideos.tumblr.com
 jynxmazetube.com
-jynxmazexxx.tumblr.com
 jynxstabletop.com
 jynyaqc.com
 jynyj.com
@@ -196071,7 +192035,6 @@ jyrhvzpm73.newaidpurchase.ru
 jyrhxj.com
 jyrhy.googlevideo.com
 jyrimagenempresarial.com
-jyrippler.tumblr.com
 jyrirprsdqfjskshas.info
 jyrjjhdas.bid
 jyrka.googlevideo.com
@@ -196366,7 +192329,6 @@ jytyo.googlevideo.com
 jytyrrdtyhik.com
 jytze.googlevideo.com
 jyu-bako.vis.ne.jp
-jyu.edu.cn
 jyu.fi
 jyu.noneedtostress.net
 jyu45b.easy.faststartwebinars.com
@@ -196463,7 +192425,6 @@ jyuseiraaheave.unizigma.org
 jyusetu-pro.com
 jyusetu.com
 jyusfaze.biz
-jyushimatsu420.tumblr.com
 jyutc.googlevideo.com
 jyute.com
 jyutf.googlevideo.com
@@ -196683,7 +192644,6 @@ jywydegozoserot.info
 jywydpjlf.com
 jywykj.bid
 jywzl.googlevideo.com
-jyx-xarius.tumblr.com
 jyxaa.googlevideo.com
 jyxal.googlevideo.com
 jyxao.googlevideo.com
@@ -196791,7 +192751,6 @@ jyyew.googlevideo.com
 jyyey.com
 jyyey.googlevideo.com
 jyyfaqes.voxjoa.getbigg.ru
-jyyg909.tumblr.com
 jyyga.googlevideo.com
 jyygd.googlevideo.com
 jyygr.googlevideo.com
@@ -196955,7 +192914,6 @@ jzavlgn.phppuswt.ru
 jzayj.googlevideo.com
 jzaykffmlrxgarkjvsnkncywcjv.net
 jzayp.googlevideo.com
-jzb123456.tumblr.com
 jzbabes.com
 jzbags.com
 jzbarlrhbicg.com
@@ -197661,7 +193619,6 @@ jzmal.googlevideo.com
 jzmao.googlevideo.com
 jzmar.googlevideo.com
 jzmarketing.com
-jzmartz25.tumblr.com
 jzmau.googlevideo.com
 jzmaw.googlevideo.com
 jzmb3es7tn.mobi
@@ -197744,7 +193701,6 @@ jznpe.pumbec.ru
 jznrg.googlevideo.com
 jznrl.googlevideo.com
 jzntxs.com
-jznu.edu.cn
 jznuh.googlevideo.com
 jznv.com
 jznvlp.phlort.ru
@@ -197804,7 +193760,6 @@ jzomw.googlevideo.com
 jzomy.googlevideo.com
 jzon.net
 jzona.com
-jzonehottiescgy.tumblr.com
 jzoom.com
 jzopa.googlevideo.com
 jzopd.googlevideo.com
@@ -198446,7 +194401,6 @@ jzyzl.com
 jzz.xoqvtutg.in
 jzz3iwk9s9.mobi
 jzz7.com
-jzzb.tumblr.com
 jzzbw.com
 jzzcbi.coshopnews.com
 jzzcc.googlevideo.com
