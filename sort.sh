@@ -1,5 +1,79 @@
 #!/bin/bash
 
+grep ^0.* MASTERBLOCK >>0
+grep ^1.* MASTERBLOCK >>1
+grep ^2.* MASTERBLOCK >>2
+grep ^3.* MASTERBLOCK >>3
+grep ^4.* MASTERBLOCK >>4
+grep ^5.* MASTERBLOCK >>5
+grep ^6.* MASTERBLOCK >>6
+grep ^7.* MASTERBLOCK >>7
+grep ^8.* MASTERBLOCK >>8
+grep ^9.* MASTERBLOCK >>9
+grep ^a.* MASTERBLOCK >>a
+grep ^b.* MASTERBLOCK >>b
+grep ^c.* MASTERBLOCK >>c
+grep ^d.* MASTERBLOCK >>d
+grep ^e.* MASTERBLOCK >>e
+grep ^f.* MASTERBLOCK >>f
+grep ^g.* MASTERBLOCK >>g
+grep ^h.* MASTERBLOCK >>h
+grep ^i.* MASTERBLOCK >>i
+grep ^j.* MASTERBLOCK >>j
+grep ^k.* MASTERBLOCK >>k
+grep ^l.* MASTERBLOCK >>l
+grep ^m.* MASTERBLOCK >>m
+grep ^n.* MASTERBLOCK >>n
+grep ^o.* MASTERBLOCK >>o
+grep ^p.* MASTERBLOCK >>p
+grep ^q.* MASTERBLOCK >>q
+grep ^r.* MASTERBLOCK >>r
+grep ^s.* MASTERBLOCK >>s
+grep ^t.* MASTERBLOCK >>t
+grep ^u.* MASTERBLOCK >>u
+grep ^v.* MASTERBLOCK >>v
+grep ^w.* MASTERBLOCK >>w
+grep ^x.* MASTERBLOCK >>x
+grep ^y.* MASTERBLOCK >>y
+grep ^z.* MASTERBLOCK >>z
+
+cat 0 | sed 's/^/www./g' >>0-w
+cat 1 | sed 's/^/www./g' >>1-w
+cat 2 | sed 's/^/www./g' >>2-w
+cat 3 | sed 's/^/www./g' >>3-w
+cat 4 | sed 's/^/www./g' >>4-w
+cat 5 | sed 's/^/www./g' >>5-w
+cat 6 | sed 's/^/www./g' >>6-w
+cat 7 | sed 's/^/www./g' >>7-w
+cat 8 | sed 's/^/www./g' >>8-w
+cat 9 | sed 's/^/www./g' >>9-w
+cat a | sed 's/^/www./g' >>a-w
+cat b | sed 's/^/www./g' >>b-w
+cat c | sed 's/^/www./g' >>c-w
+cat d | sed 's/^/www./g' >>d-w
+cat e | sed 's/^/www./g' >>e-w
+cat f | sed 's/^/www./g' >>f-w
+cat g | sed 's/^/www./g' >>g-w
+cat h | sed 's/^/www./g' >>h-w
+cat i | sed 's/^/www./g' >>i-w
+cat j | sed 's/^/www./g' >>j-w
+cat k | sed 's/^/www./g' >>k-w
+cat l | sed 's/^/www./g' >>l-w
+cat m | sed 's/^/www./g' >>m-w
+cat n | sed 's/^/www./g' >>n-w
+cat o | sed 's/^/www./g' >>o-w
+cat p | sed 's/^/www./g' >>p-w
+cat q | sed 's/^/www./g' >>q-w
+cat r | sed 's/^/www./g' >>r-w
+cat s | sed 's/^/www./g' >>s-w
+cat t | sed 's/^/www./g' >>t-w
+cat u | sed 's/^/www./g' >>u-w
+cat v | sed 's/^/www./g' >>v-w
+cat w | sed 's/^/www./g' >>w-w
+cat x | sed 's/^/www./g' >>x-w
+cat y | sed 's/^/www./g' >>y-w
+cat z | sed 's/^/www./g' >>z-w
+
 cat 0 | wc -l && sort -u -o 0 0 && cat 0 | wc -l
 cat 1 | wc -l && sort -u -o 1 1 && cat 1 | wc -l
 cat 2 | wc -l && sort -u -o 2 2 && cat 2 | wc -l
